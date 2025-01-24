@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2025-01-17T16:01:45.287Z
-updated: 2025-01-18T16:20:14.285Z
+date: 2025-01-21T18:10:48.261Z
+updated: 2025-01-24T23:09:40.479Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,6 @@ Facebook's follow feature works in two ways:
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Is the Follow Feature Necessary?
 
 There are two reasons to use the follow feature.
@@ -67,7 +63,15 @@ There are two reasons to use the follow feature.
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You See Who You're Following?
 
@@ -94,7 +98,7 @@ This same page contains three other settings you need to be aware of:
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
@@ -105,11 +109,11 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
- To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
 ## How to See Who Follows You on Facebook
 
@@ -123,10 +127,6 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
  Of course, the draconian approach is just to turn off followers completely. It will remove any followers who aren't already friends with you. For a more nuanced approach, you need to block people on a case-by-case basis.
@@ -138,7 +138,7 @@ This same page contains three other settings you need to be aware of:
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Should You Use the Follow Feature on Facebook?
@@ -162,24 +162,20 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-elevating-engagement-tips-to-share-your-screen-on-facebook-lives/"><u>[New] 2024 Approved Elevating Engagement Tips to Share Your Screen on Facebook Lives</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-8-best-tripods-for-4k-camera/"><u>[New] 2024 Approved Top 8 Best Tripods for 4K Camera</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-harmonizing-musical-pieces-with-cross-sound-techniques/"><u>[Updated] 2024 Approved Harmonizing Musical Pieces with Cross-Sound Techniques</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-next-evaluation-diverse-solutions/"><u>[Updated] Next Evaluation Diverse Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-enterprise-strategies-with-top-5-platforms/"><u>Elevating Enterprise Strategies with Top 5 Platforms</u></a></li>
-<li><a href="https://fox-http.techidaily.com/from-basics-to-brilliance-a-comprehensive-guide-to-polarr-for-2024/"><u>From Basics to Brilliance A Comprehensive Guide to Polarr for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/global-tech-ban-which-three-dont-allow-facebook/"><u>Global Tech Ban: Which Three Don't Allow Facebook?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-m14-4g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Samsung Galaxy M14 4G?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-s-best-video-editors-for-high-resolution-proxy-video-editing/"><u>New S Best Video Editors for High-Resolution Proxy Video Editing</u></a></li>
-<li><a href="https://facebook.techidaily.com/prime-online-spaces-for-seniors-sociability/"><u>Prime Online Spaces for Seniors' Sociability</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/retrieving-purged-documents-from-recycle-bin-easy-methods-in-three-simple-steps/"><u>Retrieving Purged Documents From Recycle Bin: Easy Methods in Three Simple Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-timeline-content-for-lasting-impressions/"><u>Strategic Timeline Content for Lasting Impressions</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-consequences-of-incorporating-meta-ai-on-instagramfacebook/"><u>The Consequences of Incorporating Meta AI on Instagram/Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/track-us-target-ads-datas-new-frontier/"><u>Track Us, Target Ads: Data's New Frontier</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-photos-into-stereoscopic-delights-for-fb/"><u>Transforming Photos Into Stereoscopic Delights for FB</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-poco-m6-pro-5g-by-fonelab-android-recover-music/"><u>Undelete lost music from Poco M6 Pro 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-sharing-features-how-to-access-privately-shared-fb-vids/"><u>Unseen Sharing Features: How to Access Privately Shared FB Vids</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-void-key-apps-cease-to-function/"><u>Virtual Void: Key Apps Cease to Function</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/why-im-holding-off-on-the-new-m4-mac-mini-the-game-changing-aspect-of-apples-upcoming-mac-studio/"><u>Why I'm Holding Off on the New M4 Mac Mini - The Game-Changing Aspect of Apple’s Upcoming Mac Studio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-navigating-the-pathway-ios-tips-for-instagram-content/"><u>[New] 2024 Approved Navigating the Pathway IOS Tips for Instagram Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-evolutionary-tools-redefining-the-art-of-game-capture-beyond-fbx/"><u>[New] Evolutionary Tools Redefining the Art of Game Capture Beyond FBX</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solved-6-fixes-for-baldurs-gate-3-high-cpu-usage-2024/"><u>[Solved] 6 Fixes for Baldur’s Gate 3 High CPU Usage 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-demystifying-the-world-of-youtube-shorts-for-2024/"><u>[Updated] Demystifying the World of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensible-guide-to-protecting-teens-on-facebook/"><u>A Comprehensible Guide to Protecting Teens on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152004902-are-you-a-future-metaverse-architect-join-facebooks-quest/"><u>Are You a Future Metaverse Architect? Join Facebook's Quest</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-capturing-movement-with-clarity-implementing-motion-blur-on-peoples-photos-with-picsart/"><u>In 2024, Capturing Movement with Clarity Implementing Motion Blur on People's Photos with Picsart</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-implements-e2e-encryption-postpone-details-behind-extension-to-23/"><u>Meta Implements E2E Encryption Postpone: Details Behind Extension to '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-approach-to-fbs-memories-feature/"><u>Privacy-First Approach to FB's Memories Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-tiktoks-challenge-is-reel-a-facebook-savior/"><u>Reeling in TikTok's Challenge: Is Reel a Facebook Savior?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-data-breaches-how-common/"><u>Social Network Data Breaches: How Common?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-wwinplusp-glitch-on-pc-solutions-included/"><u>Troubleshooting: WWin+P Glitch on PC, Solutions Included</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-dts-play-fi-the-ultimate-guide/"><u>Understanding DTS Play-Fi: The Ultimate Guide</u></a></li>
 </ul></div>
 

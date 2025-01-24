@@ -1,7 +1,7 @@
 ---
 title: Breaking the Ice Without Revealing Your Hand in a Group
-date: 2024-08-08T11:21:51.228Z
-updated: 2024-08-09T11:21:51.228Z
+date: 2025-01-17T18:17:26.025Z
+updated: 2025-01-24T17:47:30.453Z
 tags:
   - facebook
 categories:
@@ -23,10 +23,11 @@ thumbnail: https://thmb.techidaily.com/e9d9b71440a916b77a73a65e520d732ec704accfc
 
 ## How to Enable Anonymous Posts in Your Facebook Group
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![An anonymous person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/01/teams-anonymous-update-featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Shuttershock](https://www.shutterstock.com/image-photo/girl-holding-sheet-paper-question-mark-1673490064)
 
@@ -36,22 +37,25 @@ thumbnail: https://thmb.techidaily.com/e9d9b71440a916b77a73a65e520d732ec704accfc
 
  Related: [An Intro to Facebook Groups: Open, Closed, and Secret Groups Explained](https://www.makeuseof.com/tag/facebook-closed-secret-groups/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-homepage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![facebook group admin tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-admin-tools-page.jpg)
 
 ![facebook group settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![facebook group type](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -67,9 +71,6 @@ Close
 
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
 
  One reason you might want to enable anonymous posts on your group is so that group members can share their experiences without revealing their identity.
@@ -79,22 +80,20 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people [leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Should You Enable Anonymous Posting in Your Facebook Group?
 
  It's a dicey decision whether to enable anonymous posting on your Facebook group. One thing is for sure, it can't hurt to try! Many people are hesitant about enabling this option because they think that anonymity will result in more rude or offensive posts.
 
  However, this is unlikely as all anonymous posts are subject to admin approval, where you can even see the poster’s identity. Some users will be more likely to share their experiences if they can do so anonymously, which will help to improve engagement in your group.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,6 +102,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/decoding-the-filter-bubble-transparency-act/"><u>Decoding the Filter Bubble Transparency Act</u></a></li>
+<li><a href="https://some-tips.techidaily.com/discovering-unbreakable-ai-watermarks-insights-from-zdnet/"><u>Discovering Unbreakable AI Watermarks - Insights From ZDNet</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/experience-ultra-clarity-in-xiaomis-screen-capture-technology-for-2024/"><u>Experience Ultra Clarity in Xiaomi's Screen Capture Technology for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-age-appropriate-network-websites/"><u>Greatest Age-Appropriate Network Websites</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-samsung-galaxy-s23plus-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Samsung Galaxy S23+ Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-name/"><u>How to Change Your Facebook Name</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-and-prevent-lag-in-league-of-legends-a-step-by-step-guide/"><u>How to Fix and Prevent Lag in League of Legends: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-quick-fixes-to-enhance-your-youtube-reach/"><u>In 2024, Quick-Fixes to Enhance Your YouTube Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-brings-ads-to-reels-and-facebook-tests-sticker-ads-for-stories/"><u>Instagram Brings Ads to Reels and Facebook Tests Sticker Ads for Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-social-media-experience-on-facebook/"><u>Optimizing Your Social Media Experience on Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/prime-6-sleek-designs-in-virtual-houses/"><u>Prime 6 Sleek Designs in Virtual Houses</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-device-from-fb-web-views/"><u>Securing Your Device From FB Web Views</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-easy-driver-upgrade-for-your-intel-ac-3160-wireless-network-card/"><u>Step by Step - Easy Driver Upgrade for Your Intel AC 3160 Wireless Network Card</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-to-tackle-error-code-0x887a0006-in-windows/"><u>Strategies to Tackle Error Code 0X887A0006 in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shoppers-guide-maximizing-safety-on-fb-marketplace/"><u>The Shopper’s Guide: Maximizing Safety on FB Marketplace</u></a></li>
+<li><a href="https://article-files.techidaily.com/top-free-tools-for-flawless-srt-conversion-for-2024/"><u>Top Free Tools for Flawless SRT Conversion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-managing-fb-picture-sharing/"><u>Understanding & Managing Fb Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-ignites-dislike-towards-digital-societal-connections/"><u>What Ignites Dislike Towards Digital Societal Connections?</u></a></li>
+</ul></div>
 

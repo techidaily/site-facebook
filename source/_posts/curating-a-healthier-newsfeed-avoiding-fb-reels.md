@@ -1,7 +1,7 @@
 ---
 title: "Curating a Healthier Newsfeed: Avoiding Fb Reels"
-date: 2024-08-08T11:19:58.043Z
-updated: 2024-08-09T11:19:58.043Z
+date: 2025-01-18T20:52:52.437Z
+updated: 2025-01-24T22:13:05.052Z
 tags:
   - facebook
 categories:
@@ -18,9 +18,9 @@ thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85
  Not a fan of TikTok-like videos on Facebook? You're not the only one. While some people (creators, especially) seem to enjoy Facebook's short-form video feature, plenty of others wish it would go away. You might be wondering how to remove Reels from Facebook. Here's what you should know...
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Hide and Reduce Reels On Facebook
 
  Unfortunately, there's no easy way to disable the Reels feature on Facebook. While Facebook has reduced the rate at which Reels show up on your feed, it still doesn't support disabling the feature completely.
@@ -29,18 +29,23 @@ thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85
 
 ### 1\. Use Facebook Web
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -50,21 +55,16 @@ thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85
 
 ![Screenshot of Settings and Privacy page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 3\. Use an Older Version of Facebook
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
@@ -76,15 +76,17 @@ Close
 ###
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Hide Content You Don't Like
 
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
 Close
@@ -99,9 +101,6 @@ Close
 
  To do this, open the Facebook app and tap on the menu option. Tap the**gear icon** , then scroll down and tap on**Media** . Here you can then choose to never autoplay videos or have them only autoplay when you're on Wi-Fi.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
 
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
@@ -116,21 +115,15 @@ Close
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Working Around Facebook Reels
 
  Facebook Reels are here to stay, whether or not we like them. However, we do have some control over how they auto-play and when they show up in our News Feeds. If you’re not a fan of the feature, hopefully, one of these workarounds will help make things more bearable for you until Facebook decides to give us a “hide reel” button.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,6 +132,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-mobile-sound-library-explore-the-best-free-downloader-apps-for-youtube/"><u>[Updated] 2024 Approved Mobile Sound Library Explore the Best Free Downloader Apps for YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-shaky-video-tamer-for-handheld-cams/"><u>[Updated] In 2024, Shaky Video Tamer for Handheld Cams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximize-your-youtube-channels-financial-potential/"><u>[Updated] Maximize Your YouTube Channel's Financial Potential</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-x-spectrum-visual-recorder-pc/"><u>2024 Approved X-Spectrum Visual Recorder, PC</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/a-brief-guide-to-download-install-and-use-ez-grabber-for-2024/"><u>A Brief Guide to Download, Install, and Use EZ Grabber for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-group-flair-become-the-hub-of-fb-chatter/"><u>Enhance Group Flair: Become the Hub of FB Chatter</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-tweet-and-snap-the-new-frontiers-of-the-jb-strategy/"><u>Facebook, Tweet, and Snap: The New Frontiers of the JB Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-twitter-to-facebook-a-journey-toward-informed-sharing/"><u>From Twitter to Facebook: A Journey Toward Informed Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-manage-apps-and-websites-connected-to-your-facebook/"><u>How to Manage Apps and Websites Connected to Your Facebook</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/leading-edge-photography-the-best-4k-mirrorless-cameras/"><u>Leading Edge Photography The Best 4K Mirrorless Cameras</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-quadcopter-efficiency-with-best-motor-selection-tips-for-2024/"><u>Mastering Quadcopter Efficiency with Best Motor Selection Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mind-over-feedback-the-top-10-reasons-to-escape-facebooks-clutches/"><u>Mind Over Feedback: The Top 10 Reasons to Escape Facebook's Clutches</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-accountability-combating-covid-19-disinformation/"><u>Platform Accountability: Combating COVID-19 Disinformation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/surge-in-online-income-the-revelation-of-500plus-subscribers-power-for-2024/"><u>Surge in Online Income The Revelation of 500+ Subscribers' Power for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-user-transitions-in-a-single-social-network/"><u>Swift User Transitions in a Single Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-still-photographs-into-diverse-textual-manifestations-facebook-ai/"><u>Transforming Still Photographs Into Diverse Textual Manifestations - Facebook AI</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-windows-10-sound-cutouts-effective-strategies-revealed/"><u>Troubleshooting Windows 10 Sound Cutouts: Effective Strategies Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-facebook-update-enhancing-stories-with-reels-rooms/"><u>Upcoming Facebook Update: Enhancing Stories with Reels, Rooms</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-the-ultimate-guide-to-equalizing-auditory-output-in-vlc-software-for-2024/"><u>Updated The Ultimate Guide to Equalizing Auditory Output in VLC Software for 2024</u></a></li>
+</ul></div>
 

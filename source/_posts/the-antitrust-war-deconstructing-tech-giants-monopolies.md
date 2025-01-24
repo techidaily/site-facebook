@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2025-01-16T16:15:45.398Z
-updated: 2025-01-18T16:28:12.819Z
+date: 2025-01-19T22:15:51.000Z
+updated: 2025-01-24T19:55:07.306Z
 tags:
   - facebook
 categories:
@@ -22,11 +22,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
 
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Big Tech’s Beginnings
 
@@ -44,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
 
  A[study by Security.org](https://www.security.org/blog/how-much-would-you-sell-your-social-media-data-for/) found the average U.S. citizen would sell their social media data for $2,000\. However, they cannot decline to give sites their information while still using the respective services.
@@ -56,17 +60,9 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -88,11 +84,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Big Tech Can Impact Government Decisions and Operations
 
@@ -111,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
@@ -129,10 +133,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -157,19 +157,20 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-essential-hashtags-propel-your-posts-to-the-top-for-2024/"><u>[New] Essential #Hashtags Propel Your Posts to the Top for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-sparkling-ideas-creating-engaging-fb-ad-videos/"><u>[New] In 2024, Sparkling Ideas Creating Engaging FB Ad Videos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/4k-resolution-reimagined-picking-the-right-vision-technology-for-2024/"><u>4K Resolution Reimagined Picking the Right Vision Technology for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/boost-your-inbox-workflow-with-these-30-powerful-gmail-keystrocks/"><u>Boost Your Inbox Workflow with These 30 Powerful Gmail Keystrocks</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discovering-the-samsung-un65ru8000fxza-an-exploration-into-its-clever-tech-and-impressive-visuals/"><u>Discovering the Samsung UN65RU8000FXZA - An Exploration Into Its Clever Tech and Impressive Visuals</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-split-and-trim-3gp-files-in-minutes-2023-guide/"><u>In 2024, Split and Trim 3GP Files in Minutes 2023 Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-10t-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme 10T 5G</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-win11s-quickest-image-viewing-experience/"><u>In 2024, Win11's Quickest Image Viewing Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-now-awaits-your-no-media-live-broadcast/"><u>Instagram Now Awaits Your No-Media Live Broadcast</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebook-remove-unwanted-post-comments/"><u>Mastering Facebook: Remove Unwanted Post Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaversescape-vs-vrworld-6-key-areas-of-divergence-unveiled/"><u>Metaversescape vs VRworld: 6 Key Areas of Divergence Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/monitor-fading-image-captures-facebook-messaging-alerts/"><u>Monitor Fading Image Captures: Facebook Messaging Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/polishing-your-digital-footprint-a-facebook-focus-guide/"><u>Polishing Your Digital Footprint: A Facebook Focus Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/synchronizing-your-social-voice-across-diverse-fb-communities/"><u>Synchronizing Your Social Voice Across Diverse FB Communities</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-effective-strategies-for-archiving-vimeo-footage/"><u>[New] In 2024, Effective Strategies for Archiving Vimeo Footage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[Updated] 2024 Approved Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-command-your-cloud-data-leading-providers-to-watch/"><u>[Updated] Command Your Cloud Data Leading Providers to Watch</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-snapchat-tips-uploading-twitter-videos-for-max-impact-for-2024/"><u>[Updated] SnapChat Tips Uploading Twitter Videos for Max Impact for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-birthdate-of-my-facebook-identity/"><u>Discovering the Birthdate of My Facebook Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-whitelisting-strategy/"><u>Dissecting Facebook's Whitelisting Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-metas-verification-justify-its-price/"><u>Does Meta's Verification Justify Its Price?</u></a></li>
+<li><a href="https://facebook.techidaily.com/doppelganger-detection-spotting-digital-dupes/"><u>Doppelgänger Detection: Spotting Digital Dupes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-7-phone-without-pin-by-drfone-android/"><u>How to Unlock Infinix Smart 7 Phone without PIN</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-nubia-red-magic-8s-proplus-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-cutest-and-most-informative-igtvs-now/"><u>In 2024, The Cutest & Most Informative IGTVs Now</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-animated-magic-with-movie-maker-software/"><u>In 2024, Unveiling Animated Magic with Movie Maker Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-coordination-tips-instagram-reels-on-facebook-page/"><u>Social Media Coordination Tips: Instagram Reels on Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-social-feeds-twitter-instagram-and-facebook/"><u>Streamline Your Social Feeds: Twitter, Instagram, & Facebook</u></a></li>
+<li><a href="https://win-answers.techidaily.com/the-ultimate-guide-to-overcoming-the-cannot-open-game-error-in-league-of-legends/"><u>The Ultimate Guide to Overcoming the 'Cannot Open Game' Error in League of Legends</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Current Majority Shareholders of Facebook
-date: 2024-08-08T11:20:02.727Z
-updated: 2024-08-09T11:20:02.727Z
+date: 2025-01-22T22:42:37.746Z
+updated: 2025-01-24T16:34:01.855Z
 tags:
   - facebook
 categories:
@@ -20,9 +20,9 @@ thumbnail: https://thmb.techidaily.com/f5eeb9ebfa2de64a3d4ee3942e718c9f14502e6b8
  The rebranding raises a number of intriguing questions, such as who now owns Facebook? We'll answer that question in this article, while taking a quick trip down memory lane to figure out how we got here.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From The Facebook To Meta
 
  In 2004, Mark Zuckerberg, Eduardo Saverin, Dustin Moskovitz, and Chris Hughes, all Harvard students, founded Facebook. Facebook's popularity grew quickly, and by the end of 2004, it had surpassed one million active users.
@@ -34,20 +34,16 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of [the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Owns Facebook Now?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the [statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -60,8 +56,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -71,22 +68,20 @@ DbSchema database designer for all databases, schema design in the team, schema 
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Zuckerberg Still (Largely) Owns Meta
 
  The governing structure of Facebook, or Meta as it is now called, remains unchanged despite the rebranding. Zuckerberg, with his Class B share majority, still maintains his iron grip on Facebook.
 
  Zuckerberg will remain in charge of Facebook until he sells his shares or the shares' power gets diluted. The Meta rebrand is a change in name but not much else.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,6 +90,24 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/teady-shots-expert-tips-on-tripods-in-vlog-production-for-2024/"><u>[New] Steady Shots Expert Tips on Tripods in Vlog Production for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-budgetary-skynetting-massively-saving-cloud-data-costs/"><u>[Updated] 2024 Approved Budgetary SkyNetting Massively Saving Cloud Data Costs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-hero5-black-mastery-techniques-to-take-photos-and-videos-from-great/"><u>[Updated] 2024 Approved Hero5 Black Mastery Techniques to Take Photos & Videos From Great</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-12-pro-5g-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from 12 Pro 5G</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-google-pixel-8-pro-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Google Pixel 8 Pro? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-social-sites-ideal-for-corporate-growth/"><u>Essential Social Sites: Ideal for Corporate Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-ar-world-with-new-messenger-features-from-fb/"><u>Explore AR World with New Messenger Features From FB</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/exploring-key-contrasts-in-cryptocurrency-options-insights-from-yl-software-experts/"><u>Exploring Key Contrasts in Cryptocurrency Options - Insights From YL Software Experts</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-realme-narzo-n55-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Realme Narzo N55 Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebooks-reel-capable-of-dethroning-tiktok/"><u>Is Facebook's Reel Capable of Dethroning TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-layers-understanding-fbctas-intent/"><u>Peeling Back Layers: Understanding FBCTA's Intent</u></a></li>
+<li><a href="https://facebook.techidaily.com/phone-data-silent-salesperson-real-luck-or-designed-deception/"><u>Phone Data: Silent Salesperson? Real Luck, Or Designed Deception?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-stealth-evasion-of-friendlists/"><u>Social Stealth: Evasion of Friendlists</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-name-changes-in-social-media-networks/"><u>The Essentials of Name Changes in Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-transformative-power-of-sharing-on-facebook/"><u>The Transformative Power of 'Sharing' On Facebook</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-rotate-your-avi-videos-for-free-16-excellent-options-for-windows-mac-android-iphone-and-online/"><u>Updated In 2024, Rotate Your AVI Videos for Free 16 Excellent Options for Windows, MAC, Android, iPhone, and Online</u></a></li>
+</ul></div>
 

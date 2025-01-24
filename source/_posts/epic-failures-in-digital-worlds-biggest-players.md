@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2025-01-13T16:27:44.723Z
-updated: 2025-01-18T16:11:05.359Z
+date: 2025-01-23T16:20:22.567Z
+updated: 2025-01-24T19:28:20.413Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,18 +51,20 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-breaking-news-afbs-secret-to-trending-content-for-2024/"><u>[New] Breaking News AFB's Secret to Trending Content for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-various-ways-to-earn-on-youtube/"><u>[New] In 2024, Exploring Various Ways to Earn on YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-vintage-racing-spectacles-top-five/"><u>[New] In 2024, Vintage Racing Spectacles Top Five</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-top-10-boosting-tiktok-success-with-key-analytics-for-2024/"><u>[Updated] TOP 10 Boosting TikTok Success with Key Analytics for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/compatibility-checklist-phone-list-for-gear-vr-2023/"><u>Compatibility Checklist Phone List for Gear VR 2023</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-official-acer-touchpad-driver-for-windows-10-compatible-and-updated-version/"><u>Download Official Acer Touchpad Driver for Windows 10 - Compatible and Updated Version</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/dynamic-instagram-collage-views/"><u>Dynamic Instagram Collage Views</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-enhances-user-experience-with-whatsapp-2fa-integration/"><u>Instagram Enhances User Experience with WhatsApp 2FA Integration</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-emotional-connection-via-facebook-memories/"><u>Maximizing Emotional Connection via Facebook Memories</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-assurance-delete-your-fb-browsing-data/"><u>Privacy Assurance: Delete Your FB Browsing Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/transitioning-personal-brand-how-to-alter-your-name-on-facebook/"><u>Transitioning Personal Brand: How to Alter Your Name on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/troubleshooting-fb-account-inaccessibility-and-lockout/"><u>Troubleshooting FB Account Inaccessibility & Lockout</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/webcam-innovation-cutting-edge-live-video-technology-for-2024/"><u>Webcam Innovation Cutting-Edge Live Video Technology for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-richest-rewarded-creators-on-youtube/"><u>[New] In 2024, The Richest Rewarded Creators on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-approach-for-changing-your-fb-visual-identity/"><u>Best Approach for Changing Your FB Visual Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-barriers-learn-these-30-social-acronyms-fast/"><u>Breaking Down Barriers: Learn These 30 Social Acronyms Fast</u></a></li>
+<li><a href="https://program-issues.techidaily.com/crash-proof-your-play-pathfinders-wrath-of-the-righteeus-stability-guide/"><u>Crash-Proof Your Play: Pathfinder's 'Wrath of the Righteeus' Stability Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-purpose-and-effect-of-fbcta/"><u>Dissecting the Purpose and Effect of FBCTA</u></a></li>
+<li><a href="https://win-forum.techidaily.com/easy-guide-removing-applications-in-windows-11-step-by-step/"><u>Easy Guide: Removing Applications in Windows 11 Step-by-Step</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-tips-for-diagnosing-and-correcting-wireless-adapteraccess-point-malfunctions-in-10-steps/"><u>Expert Tips for Diagnosing and Correcting Wireless Adapter/Access Point Malfunctions in 10 Steps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-poco-c51-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Poco C51 Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-stop-that-annoying-boom-overcoming-subwoofer-distortion/"><u>How to Stop That Annoying Boom: Overcoming Subwoofer Distortion</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-samsung-galaxy-a05s-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Samsung Galaxy A05s to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-the-challenge-of-a-disabled-facebook-login/"><u>Overcoming the Challenge of a Disabled Facebook Login</u></a></li>
+<li><a href="https://os-tips.techidaily.com/1723620273643-simple-techniques-to-restart-your-apple-timepiece-no-phone-necessary/"><u>Simple Techniques to Restart Your Apple Timepiece: No Phone Necessary!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-mysteries-of-metas-data-policy-overhaul/"><u>Unlocking the Mysteries of Meta’s Data Policy Overhaul</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-navigating-video-editing-incorporating-dubbing-techniques-in-filmora/"><u>Updated 2024 Approved Navigating Video Editing Incorporating Dubbing Techniques in Filmora</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-facebook-for-app-logins/"><u>Weighing the Advantages and Disadvantages of Facebook for App Logins</u></a></li>
 </ul></div>
 

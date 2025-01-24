@@ -1,7 +1,7 @@
 ---
 title: "Connectivity Crisis: Global Social Platform Failure"
-date: 2024-08-08T11:21:23.339Z
-updated: 2024-08-09T11:21:23.339Z
+date: 2025-01-23T18:27:33.166Z
+updated: 2025-01-24T22:22:19.859Z
 tags:
   - facebook
 categories:
@@ -23,25 +23,24 @@ thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e5
 
  As usual, Facebook remains silent regarding the outage. Although Facebook blackouts take place periodically, the company never reveals much about why the network goes down, preferring to fix the issue and move on without explaining the technical details to its users.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
 
  That means other sites that rely on Facebook's login to provide secure access to their own services are also affected, potentially locking users out even if they're not attempting to access Facebook specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
  A DNS (Domain Name System) issue appears to be the culprit behind Facebook's massive outage.
@@ -51,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e5
  As per the tweet linked in the previous section, even Facebook's internal services were down in what's described as "a pretty epic configuration error."
 
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What Are BGP Routes?
 
@@ -63,15 +66,13 @@ thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e5
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
@@ -79,22 +80,20 @@ thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e5
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a [Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Will Facebook Come Back Online?
 
  Right now, there is no specific timeframe available for Facebook coming back online, nor WhatsApp, Instagram, or any other affected service. The Facebook outage is affecting the company in more ways than one. For example, Facebook staffers couldn't access buildings at Facebook HQ to begin assessing the damage because of internal networking issues brought about by the outage.
 
  Furthermore, other experts believe that it will take some time for Facebook and its associated services to return to full capacity. It isn't just a case of flicking a switch and restarting the system. Restoring a distributed network of Facebook's size will require patience from the company and of course, its users.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,6 +102,26 @@ thumbnail: https://thmb.techidaily.com/ff65255da837891834ddbec118debc41ab0f1d1e5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-vlc-media-player-review-and-alternatives/"><u>[Updated] 2024 Approved VLC Media Player Review and Alternatives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discover-the-secrets-to-superior-scalability-in-roblox-worlds/"><u>[Updated] Discover the Secrets to Superior Scalability in Roblox Worlds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-top-selection-of-mice-designed-for-mac-computers/"><u>2024'S Top Selection of Mice Designed for Mac Computers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-samsung-galaxy-z-fold-5-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Samsung Galaxy Z Fold 5 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://win-answers.techidaily.com/boosting-your-downloads-top-tips-to-improve-ubisoft-connects-internet-speed/"><u>Boosting Your Downloads: Top Tips to Improve Ubisoft Connect's Internet Speed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-reliable-speed-of-motorola-mg7700-phone-detailed-insights/"><u>Evaluating the Reliable Speed of Motorola MG7700 Phone: Detailed Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-twitter-and-snapchat-key-players-in-jbs-vaccine-campaign/"><u>FB, Twitter & Snapchat: Key Players in JB's Vaccine Campaign</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-how-to-keep-viewers-engaged-with-these-videos/"><u>In 2024, How to Keep Viewers Engaged with These Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-inaudible-audio-assemblers-6-low-profile-recorders-for-smartphones/"><u>In 2024, Inaudible Audio Assemblers 6 Low-Profile Recorders for Smartphones</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-labyrinth-of-facebook-inquiries/"><u>Navigating the Social Labyrinth of Facebook Inquiries</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscover-the-social-network-guided-password-recovery-on-fb/"><u>Rediscover the Social Network - Guided Password Recovery on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-implementation-of-facebooks-mtfc-mechanism/"><u>Stepwise Implementation of Facebook's MTFC Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-fights-for-users-with-legal-suit-against-india/"><u>Tech Giant Fights for Users with Legal Suit Against India</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-my-digital-footprint-the-inception-of-facebook-usage/"><u>Tracing My Digital Footprint: The Inception of Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-earlier-friends-interactions-on-fb/"><u>Tracking Down Earlier Friends Interactions on FB</u></a></li>
+<li><a href="https://blog-min.techidaily.com/troubleshooting-guide-how-to-solve-black-display-issues-while-recording-on-pc-or-mac-systems/"><u>Troubleshooting Guide: How to Solve Black Display Issues While Recording on PC or Mac Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-governments-targeting-techs-colossal-entities/"><u>Why Are Governments Targeting Tech's Colossal Entities?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
+</ul></div>
 

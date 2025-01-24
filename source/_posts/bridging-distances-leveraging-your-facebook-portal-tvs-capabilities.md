@@ -1,7 +1,7 @@
 ---
 title: "Bridging Distances: Leveraging Your Facebook Portal TV's Capabilities"
-date: 2024-08-08T11:19:18.355Z
-updated: 2024-08-09T11:19:18.355Z
+date: 2025-01-18T23:02:59.760Z
+updated: 2025-01-24T21:27:06.710Z
 tags:
   - facebook
 categories:
@@ -23,10 +23,11 @@ thumbnail: https://thmb.techidaily.com/e52d2b220bf33233df1f453020b7bd5deb6b55f7c
 
 ## Why Video Chat on a TV?
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-video-call.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Smartphones are unarguably the most popular devices for video chats. Their portability makes them easy and convenient to carry around. However, the user experience of video chatting on a smartphone falls short in some areas.
 
@@ -42,9 +43,17 @@ thumbnail: https://thmb.techidaily.com/e52d2b220bf33233df1f453020b7bd5deb6b55f7c
 
  Having large images of your family, friends, and/or colleagues on the TV screen during a video call creates an illusion of proximity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Portal TV?
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
@@ -58,9 +67,6 @@ thumbnail: https://thmb.techidaily.com/e52d2b220bf33233df1f453020b7bd5deb6b55f7c
 
  The Portal TV offers additional services to you based on your subscription category.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make Video Calls on the Facebook Portal TV
 
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
@@ -73,9 +79,6 @@ thumbnail: https://thmb.techidaily.com/e52d2b220bf33233df1f453020b7bd5deb6b55f7c
 2. Connect the HDMI cable to your TV. Use HDMI1 for best results.
 3. Select the input after turning on your TV.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Finding the Right Spot for Your Portal TV
 
 1. Place your Portal TV close to your TV, either on top of it or underneath it, on a flat surface.
@@ -91,23 +94,22 @@ Your Portal TV has two clips.
 3. Simultaneously press the back clip of your Portal TV against the back of your TV frame and the front clip of your Portal TV against the front of your TV frame.
 4. Press the back clip of your Portal TV against the back of your TV for a firm grip.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Setting Up Your Remote
 
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### Selecting Your Language and Connecting to Wi-Fi
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -118,9 +120,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  If the software on your Portal TV isn’t up to date, you'll be required to download the latest version. You may need to restart your Portal TV to proceed with the setup.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Choosing a Name for Your Portal TV and Logging In With Facebook or WhatsApp
 
  You can select one of the options on the menu or proceed to create a custom name for your Portal TV. Tap**Custom** to create a name of your choice.
@@ -131,10 +130,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ## Facebook Portal Voice Commands You Need to Know
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -144,23 +144,17 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 **To hang up a call** , say "Hey Portal, hang up."
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## Building Stronger Relationships by Connecting on the Big Screen
 
  Video chatting with family and friends on the big screen can make you feel closer to them even when they are far away. You can see their faces and expressions clearly like they are standing in front of you.
 
  Indeed, Facebook's Portal TV is helping people build stronger relationships among friends, families, and/or colleagues. Even in the midst of a pandemic.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,6 +163,24 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-how-can-you-air-facebook-videos-on-your-television-set-in-2024/"><u>[Updated] How Can You Air Facebook Videos on Your Television Set, In 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-calm-clicks-the-ideal-screen-free-puzzles/"><u>2024 Approved Calm Clicks The Ideal Screen-Free Puzzles</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-oppo-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Oppo</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-list-of-15-free-windows-11-designs/"><u>Discover the Ultimate List of 15 FREE Windows 11 Designs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/download-now-official-winx-burner-and-dvd-ripper-top-rated-free-hardware-disc-converters/"><u>Download Now: Official WinX Burner & DVD Ripper – Top Rated Free Hardware Disc Converters</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-factors-for-buying-a-facebook-smart-hub/"><u>Essential Factors for Buying a Facebook Smart Hub</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-your-facebook-search-history/"><u>How to Clear Your Facebook Search History</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-retire-your-facebook-business-profile-without-astonishment/"><u>How to Retire Your Facebook Business Profile Without Astonishment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/indestructible-sunbriteveranda-55-4k-uhd-hdtv-with-superior-hdr-quality/"><u>Indestructible SunBriteVeranda 55 4K UHD HDTV with Superior HDR Quality</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-your-apple-watch-unlock-the-secrets-of-the-handy-double-click-command/"><u>Mastering Your Apple Watch: Unlock the Secrets of the Handy Double-Click Command!</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-complexities-of-social-media-service-links-in-fb/"><u>Navigating the Complexities of Social Media Service Links in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-dangerous-trade-tide-scam-spotting-and-safeguarding-tips-for-facebook/"><u>Navigating the Dangerous Trade Tide – Scam Spotting & Safeguarding Tips for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-new-journey-begins-with-launch-of-go-model/"><u>Portal’s New Journey Begins with Launch of Go Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-on-the-horizon-facebooks-new-story-panel-features/"><u>What's on the Horizon? Facebook's New Story Panel Features?</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-owns-the-photos-you-upload-online/"><u>Who Owns the Photos You Upload Online?</u></a></li>
+<li><a href="https://win11.techidaily.com/win-centric-tips-for-switching-mkv-format-to-mp4/"><u>Win-Centric Tips for Switching MKV Format to MP4</u></a></li>
+</ul></div>
 

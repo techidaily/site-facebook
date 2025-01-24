@@ -1,7 +1,7 @@
 ---
 title: Stealthy Social Media Investigation Techniques
-date: 2025-01-17T16:04:05.375Z
-updated: 2025-01-18T16:04:54.289Z
+date: 2025-01-17T22:14:48.154Z
+updated: 2025-01-24T18:45:37.780Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
  In that, the largest vulnerability to Facebook privacy is the human connection: social engineering, weak passwords, and poor personal security.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Users See Someone's Locked Profile on Facebook
@@ -55,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -75,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
  You can[take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Spyware Apps
@@ -90,12 +86,16 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
@@ -108,15 +108,15 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Otherwise, start using stronger passwords, possibly using one of these[online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Is a Facebook Locked Profile Viewer?
 
@@ -147,19 +147,21 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-enhancing-visual-interest-utilizing-secondary-footage-wisely/"><u>[New] Enhancing Visual Interest Utilizing Secondary Footage Wisely</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-crime-quest-clones-video-game-list-like-gta-v/"><u>[New] In 2024, Crime Quest Clones Video Game List Like GTA V</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-prodigy-machines-top-quality-computers-available/"><u>[New] Prodigy Machines Top-Quality Computers Available</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-best-mobile-photography-note-taking-tools/"><u>[Updated] Best Mobile Photography Note-Taking Tools</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-sync-audio-to-powerpoint-presentations/"><u>[Updated] Sync Audio to PowerPoint Presentations</u></a></li>
-<li><a href="https://win-dash.techidaily.com/complete-tutorial-on-how-to-refresh-razers-blackwidow-drivers/"><u>Complete Tutorial on How to Refresh Razer's BlackWidow Drivers</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-who-steers-its-future/"><u>Facebook: Who Steers Its Future?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Life360 Learn How Everything Works On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructional-guide-to-split-up-spotify-and-fb/"><u>Instructional Guide to Split Up Spotify and FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-intertwined-lives-friends-on-facebook-history/"><u>Investigating Intertwined Lives: Friends on Facebook History</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolve-silent-facebook-videos-a-comprehensive-troubleshooting-manual-for-pc-users/"><u>Resolve Silent Facebook Videos : A Comprehensive Troubleshooting Manual for PC Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-removing-your-fb-watch-history/"><u>Understanding the Impact of Removing Your FB Watch History</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-top-8-interactive-gloves-in-vr-for-2024/"><u>Unveiling Top 8 Interactive Gloves in VR for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/youtubes-untold-story-on-how-monitoring-keeps-it-free-and-functional/"><u>YouTube's Untold Story on How Monitoring Keeps It Free and Functional</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-football-inscriptions-premier-fifa-youtube-insights/"><u>[New] 2024 Approved Football Inscriptions Premier FIFA YouTube Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-ties-with-facebook-via-android-platform/"><u>Cut Ties with Facebook via Android Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-scope-of-facebooks-support-system/"><u>Discovering the Scope of Facebook's Support System</u></a></li>
+<li><a href="https://win-updates.techidaily.com/effective-strategies-for-enabling-tamper-defense-in-windows-10-insights-from-malwarefox-experts/"><u>Effective Strategies for Enabling Tamper Defense in Windows 10 - Insights From MalwareFox Experts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-quickly-locate-and-use-your-windows-11-boot-up-folder-a-simple-guide/"><u>How to Quickly Locate and Use Your Windows 11 Boot Up Folder: A Simple Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6s-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 6s Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-oppo-f25-pro-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo F25 Pro 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-turbo-speed-for-snapchat-newcomers-video-edition/"><u>In 2024, Turbo Speed for Snapchat Newcomers Video Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-interaction-facebooks-enriched-auditory-experience/"><u>Innovating Interaction: Facebook’s Enriched Auditory Experience</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/lenovo-touch-screen-not-working-solved/"><u>Lenovo Touch Screen Not Working [SOLVED]</u></a></li>
+<li><a href="https://extra-information.techidaily.com/perfect-pitch-integrating-music-with-cropping-and-editing-in-canva/"><u>Perfect Pitch Integrating Music with Cropping and Editing in Canva</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-chat-app-usage-without-a-facebook-account/"><u>Secrets of Chat App Usage without a Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-for-singles-deciphering-new-facebook-features/"><u>Social Networking for Singles: Deciphering New Facebook Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-enterprise-friendly-social-networks-today/"><u>Top 5 Enterprise-Friendly Social Networks Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://win-able.techidaily.com/warzone-20-stability-issues-how-to-prevent-frequent-pc-crashes/"><u>Warzone 2.0 Stability Issues - How to Prevent Frequent PC Crashes</u></a></li>
 </ul></div>
 

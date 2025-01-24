@@ -1,7 +1,7 @@
 ---
 title: Big Three of Social Networking Inspire Biden's Health Strategy
-date: 2024-08-08T11:20:46.279Z
-updated: 2024-08-09T11:20:46.279Z
+date: 2025-01-21T20:48:21.610Z
+updated: 2025-01-24T22:22:09.098Z
 tags:
   - facebook
 categories:
@@ -20,16 +20,18 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
  To do this, his administration is making use of just about every form of digital communication to encourage people to get vaccinated.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The White House Will Use Social Media to Push Vaccine Eligibility
 
  According to an [Axios](https://www.axios.com/biden-vaccine-eligibility-push-e438587b-9b34-4b75-9132-7395c2768ed7.html) report, the White House is launching a "targeted media blitz" to promote the Biden administration's promotional campaign for vaccine eligibility. Facebook, Twitter, and Snapchat are some of the companies that'll help spread the word.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/biden-and-us-flag.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: The White House/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:President%5Fof%5Fthe%5FUnited%5FStates%5FJoe%5FBiden%5F%282021%29.jpg)
 
@@ -44,16 +46,18 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper [Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform [launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even [froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -61,14 +65,11 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
  Admittedly, it did take some time for major platforms to step up like this. When the pandemic first began, COVID-19 misinformation was spreading like wildfire. But now, some of the social media giants are now trying to turn things around for the sake of everyone's safety, which is wonderful to see.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,6 +78,22 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-capturing-life-in-high-quality-with-xiaomis-mi-11-screens/"><u>[New] 2024 Approved Capturing Life in High Quality with Xiaomi's Mi 11 Screens</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-video-to-music-youtube-to-mp3-on-macos/"><u>[New] 2024 Approved From Video to Music YouTube to MP3 on MacOS</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-mac-screenshot-strategy-revealed-for-2024/"><u>[New] The Ultimate Mac Screenshot Strategy Revealed for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-vlc-capture-a-comprehensive-recording-tutorial/"><u>[Updated] In 2024, VLC Capture A Comprehensive Recording Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-for-whatsapp-to-implement-updated-privacy-policy/"><u>Extension for WhatsApp to Implement Updated Privacy Policy</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-linguistics-australian-outback-speech-compared-with-uk-and-us/"><u>Global Linguistics: Australian Outback Speech Compared with UK & US</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-glow-enhanced-video-a-right-move-for-hdr-crafting/"><u>In 2024, Glow-Enhanced Video A Right Move for HDR Crafting?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-connectivity-a-comprehensive-pros-vs-cons-analysis/"><u>Leveraging Facebook Connectivity: A Comprehensive Pros vs Cons Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/major-stakeholders-owning-facebook/"><u>Major Stakeholders Owning Facebook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-model-names-unraveling-your-device-in-six-easy-ways/"><u>Mastering Model Names: Unraveling Your Device in Six Easy Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-unexpected-contact-suggestions-from-fb/"><u>Stop Unexpected Contact Suggestions From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-filtering-out-the-pesky-promos-on-your-feed/"><u>Strategies for Filtering Out the Pesky Promos on Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/stream-with-style-on-ig-less-is-more/"><u>Stream with Style on IG, Less Is More</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-price-9-perils-of-social-engagement/"><u>The Hidden Price: 9 Perils of Social Engagement</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-tecno-pova-6-pro-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Tecno Pova 6 Pro 5G Device</u></a></li>
+</ul></div>
 

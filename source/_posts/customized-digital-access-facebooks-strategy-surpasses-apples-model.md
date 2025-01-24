@@ -1,7 +1,7 @@
 ---
 title: "Customized Digital Access: Facebook's Strategy Surpasses Apple's Model"
-date: 2024-08-08T11:20:10.147Z
-updated: 2024-08-09T11:20:10.147Z
+date: 2025-01-18T20:00:36.966Z
+updated: 2025-01-24T20:54:44.819Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
  Facebook is helping creators to save money on subscription fees through a new payment solution. This enables creators with popular pages to circumvent Apple's 30% cut on subscription fees, but how will it work? Keep reading to find out.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Giving Creators Custom Links to Receive Direct Payments
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
@@ -33,14 +34,16 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook's Custom Payment Links Work
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -53,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
  Related:[The Top Social Media Apps and Sites in 2021](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Helping Creators Make More Money
 
  At 30%, Apple's cut from paid apps and in-app payments through iOS is too steep. It's no surprise that Apple has been embroiled in controversy and lawsuits around this.
@@ -63,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
  And while Facebook may eventually take a cut from fan payments, it may still be lower than Apple's, which would still make Facebook's payment system preferable over Apple's.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,6 +80,24 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-starting-with-a-gopro-essential-upgrades-for-new-filmmakers/"><u>[New] 2024 Approved Starting with a GoPro Essential Upgrades for New Filmmakers</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/comprehensive-analysis-of-the-cooler-master-ion-360-all-in-one-liquid-cooler-progress-and-setbacks/"><u>Comprehensive Analysis of the Cooler Master ION 360 All-In-One Liquid Cooler: Progress and Setbacks</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/diy-changing-your-cellphones-glass-protective-film-without-damage/"><u>DIY: Changing Your Cellphone's Glass Protective Film Without Damage</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-presence-through-effective-facebook-strategies/"><u>Enhancing Online Presence Through Effective Facebook Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-optimize-fb-visual-data-control/"><u>How to Optimize Fb Visual Data Control</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/immerse-slides-with-audio-harmony/"><u>Immerse Slides with Audio Harmony</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-prime-10-image-repositories-without-costs/"><u>In 2024, Prime 10 Image Repositories Without Costs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-creativity-with-animated-gifs/"><u>In 2024, Unleash Creativity with Animated GIFS</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-influence-7-hidden-harmfulness-of-networking-sites/"><u>Invisible Influence: 7 Hidden Harmfulness of Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-gen-image-sharing-autocaption-tech-for-enhanced-engagement-on-fb/"><u>Next-Gen Image Sharing: AutoCaption Tech for Enhanced Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-personal-photos-from-pervading-public-domain-at-meta/"><u>Preventing Personal Photos From Pervading Public Domain at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/quintessential-destinations-to-find-freelancing-work/"><u>Quintessential Destinations to Find Freelancing Work</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-mouse-issues-how-to-enable-right-clicks-in-windows-11-efficiently/"><u>Resolving Mouse Issues: How to Enable Right Clicks in Windows 11 Efficiently</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-issue-excessive-cpu-consumption-by-msmpengine-in-windows-10-systems/"><u>Solving the Issue: Excessive CPU Consumption by MsMpEngine in Windows 10 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailor-your-facebook-experience-with-these-key-settings/"><u>Tailor Your Facebook Experience with These Key Settings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/uninterrupted-shots-optimal-cameraphone-trackers-for-2024/"><u>Uninterrupted Shots Optimal Camera/Phone Trackers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-risks-are-fb-quizzes-a-hidden-danger/"><u>Unveiling Risks: Are FB Quizzes a Hidden Danger?</u></a></li>
+</ul></div>
 

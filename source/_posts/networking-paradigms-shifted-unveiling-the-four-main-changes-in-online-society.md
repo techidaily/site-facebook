@@ -1,7 +1,7 @@
 ---
 title: "Networking Paradigms Shifted: Unveiling the Four Main Changes in Online Society"
-date: 2025-01-13T16:26:54.356Z
-updated: 2025-01-18T16:06:28.200Z
+date: 2025-01-17T16:38:32.826Z
+updated: 2025-01-24T19:49:52.110Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Facebook’s Increased Focus on the Metaverse
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to[CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Elon Musk Took Over Twitter
@@ -56,16 +56,12 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
  Reels are Instagram’s answer to TikTok gaining popularity. TikTok isn’t the only social media that Instagram copied in 2022 though.[Instagram also tested Candid Stories](https://www.makeuseof.com/instagram-candid-challenges-test-bereal-feature/) in 2022 which are the same concept as new social media app BeReal, where a notification at a random time each day prompts you to immediately post a picture of whatever you are doing at that moment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. The Rise of BeReal
@@ -77,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 ## Social Media in 2022
 
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
@@ -97,16 +97,20 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-enabling-auto-hdr-in-windows-11-a-step-by-step-guide/"><u>[New] 2024 Approved Enabling Auto HDR in Windows 11 A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ontent-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[New] Content Creation Battleground Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-the-potential-of-fb-chronicles-with-free-apps/"><u>[Updated] 2024 Approved Unlock the Potential of FB Chronicles with Free Apps</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-real-time-recording-faceoff-obs-vs-shadowplay/"><u>[Updated] Real-Time Recording Faceoff OBS Vs ShadowPlay</u></a></li>
-<li><a href="https://common-error.techidaily.com/beat-windows-error-code-31-with-these-simple-troubleshooting-steps/"><u>Beat Window’s Error Code 31 with These Simple Troubleshooting Steps!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-the-windows-registry-easy-entry-methods-for-tech-enthusiasts-yl-software-insights/"><u>Mastering the Windows Registry: Easy Entry Methods for Tech Enthusiasts - YL Software Insights</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/syncopating-success-stories-facebook-and-spotifys-upcoming-boombox-feat/"><u>Syncopating Success Stories: Facebook & Spotify's Upcoming Boombox Feat</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-digital-footprints-changing-your-facebook-account-name/"><u>Transforming Digital Footprints: Changing Your Facebook Account Name</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-instagrams-and-facebooks-ad-innovations/"><u>Unveiling Instagram's and Facebook's Ad Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-governments-seek-to-curtail-the-power-of-technology-titans/"><u>Why Governments Seek to Curtail the Power of Technology Titans</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-16-best-kickstart-videos-on-youtube-for-visibility-boost/"><u>[New] In 2024, 16 Best Kickstart Videos on YouTube for Visibility Boost</u></a></li>
+<li><a href="https://facebook.techidaily.com/convenient-techniques-for-eliminating-facebook-updates/"><u>Convenient Techniques for Eliminating Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/find-rich-ambiance-for-video-content/"><u>Find Rich Ambiance for Video Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-home-to-on-the-move-portal-go-innovation/"><u>From Home to On-the-Move: Portal Go Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-your-facebook-watch-history-and-why-you-should/"><u>How to Delete Your Facebook Watch History (and Why You Should)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-inside-the-wearable-world-how-does-vr-work/"><u>In 2024, Inside the Wearable World How Does VR Work?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/inside-scoop-on-nvidia-blackwell-and-rtx-50-series-gpus-unveiling-detailed-insights-into-features-release-windows-price-points-and-all-current-developments.2/"><u>Inside Scoop on Nvidia Blackwell & RTX 50-Series GPUs Unveiling: Detailed Insights Into Features, Release Windows, Price Points, and All Current Developments</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-tools-for-superior-collaborative-endeavors-on-facebook/"><u>Integrating Social Tools for Superior Collaborative Endeavors on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-online-networks-for-workplace-success/"><u>Mastering Online Networks for Workplace Success</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/revolutionizing-voice-capture-a-compreenas-guide-to-facetime-recording/"><u>Revolutionizing Voice Capture A Compreenas Guide to FaceTime Recording</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-tips-to-enhance-fps-and-cut-down-lag-issues-in-watch-dogs-legion/"><u>Step-by-Step Tips to Enhance Fps and Cut Down Lag Issues in Watch Dogs: Legion</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y17s-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y17s Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-leaving-no-footprint-on-facebook-is-smart/"><u>Why Leaving No Footprint on Facebook Is Smart</u></a></li>
 </ul></div>
 

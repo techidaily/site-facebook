@@ -1,7 +1,7 @@
 ---
 title: "Connectivity's Catch: Understanding Social Media Risks"
-date: 2024-08-08T11:19:14.656Z
-updated: 2024-08-09T11:19:14.656Z
+date: 2025-01-19T21:47:40.008Z
+updated: 2025-01-24T17:09:37.293Z
 tags:
   - facebook
 categories:
@@ -19,18 +19,12 @@ thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc
 
  Unfortunately, the bad effects of social media are all too real for a lot of us. Let's look at the negative impacts of social media on real people, so you can recognize these symptoms and get help if needed.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Social Media Is Bad for You
 
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While [social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly [positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## 1\. Depression and Anxiety
 
  Do you spend several hours per day browsing through social media? Spending too long on social networking sites could adversely affect your mood. In fact, chronic social users are more likely to report poor mental health, including symptoms of anxiety and depression.
@@ -41,13 +35,6 @@ thumbnail: https://thmb.techidaily.com/5b80927e68923eec1d1361008f6bde3827f135dcc
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
@@ -71,15 +58,16 @@ No advertising on the website.
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Unrealistic Expectations
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -93,6 +81,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -104,6 +96,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  It's really important to remember that everybody is human. No one wakes up every day looking like a supermodel, and while many people have gone to great lengths to train their bodies, that's not the case for everyone who looks fit. Many people, in search of social media fame, have definitely taken unhealthy routes to appear more attractive.
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Unhealthy Sleep Patterns
 
@@ -119,6 +115,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
  If you're not sure whether you're addicted to social networks, try to remember the last time you went a full day without checking any social media accounts. Do you feel rejected if someone unfollows you? And if your favorite social networks completely disappeared tomorrow, would the absence make you feel empty and depressed?
@@ -127,23 +127,17 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our [guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Handle the Negative Effects of Social Media
 
  As with everything else, there are good and bad aspects of social media. We've discussed some of the negative impacts social media has for many, but you're the one who must decide whether there's more help or harm in it for you personally.
 
  If you find that social media is having a negative impact on your life, stop using it. However, if you decide to stay, there are ways to waste less time on social media, and thus maintain a healthier relationship with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,6 +146,26 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-comparing-the-best-of-both-worlds-obs-vs-bandicam/"><u>[New] 2024 Approved Comparing the Best of Both Worlds OBS vs Bandicam</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-bringing-imagery-elements-into-harmony/"><u>[New] In 2024, Bringing Imagery Elements Into Harmony</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-overcoming-low-light-footage-issues-on-your-iphone/"><u>[Updated] Overcoming Low-Light Footage Issues on Your iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-unknown-carolyn-everson-retires/"><u>From Facebook to Unknown: Carolyn Everson Retires</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-enforces-restriction-on-facebooks-collection-of-whatsapp-info/"><u>Germany Enforces Restriction on Facebook's Collection of WhatsApp Info</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-microphone-issues-when-it-wont-capture-sound/"><u>How to Fix Microphone Issues When It Won't Capture Sound</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-maximizing-video-memories-3-itunes-saving-methods/"><u>In 2024, Maximizing Video Memories 3 iTunes Saving Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-facebooks-continuous-content-recommendations/"><u>Insights Into Facebook's Continuous Content Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/location-transparency-in-fb-direct-messages/"><u>Location Transparency in FB Direct Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/lock-down-facebook-privacy-for-personal-space/"><u>Lock Down Facebook Privacy for Personal Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-locating-sharing-in-fbs-direct-messages/"><u>Master Locating Sharing in FB's Direct Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/peering-beyond-numbers-facebooks-true-losses/"><u>Peering Beyond Numbers: Facebook’s True Losses</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/proactive-system-care-self-update-plus-gpu-driver-change-routine/"><u>Proactive System Care: Self-Update + GPU Driver Change Routine</u></a></li>
+<li><a href="https://techtrends.techidaily.com/recommended-films-to-binge-watch-today-as-suggested-by-the-experts-at-lifewire/"><u>Recommended Films to Binge-Watch Today, as Suggested by the Experts at Lifewire</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-shadow-side-identifying-risks-to-users/"><u>Social Media's Shadow Side: Identifying Risks to Users</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-list-of-mac-screen-capture-software-for-2024/"><u>The Ultimate List of Mac Screen Capture Software for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unboxing-the-google-pixel-4a-a-smart-choice-for-casual-users/"><u>Unboxing the Google Pixel 4A: A Smart Choice for Casual Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/undo-motion-recapturing-video-from-mobile-devices-for-2024/"><u>Undo Motion Recapturing Video From Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-photodna-and-how-does-it-work/"><u>What Is PhotoDNA and How Does It Work?</u></a></li>
+</ul></div>
 

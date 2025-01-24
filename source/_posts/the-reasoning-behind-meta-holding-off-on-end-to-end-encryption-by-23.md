@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2025-01-12T16:12:40.167Z
-updated: 2025-01-18T16:22:11.363Z
+date: 2025-01-19T16:30:05.080Z
+updated: 2025-01-24T21:25:07.076Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Does Meta Want End-to-End Encryption?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -85,22 +85,18 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-perfecting-presentation-adding-fonts-to-ae-projects-for-2024/"><u>[New] Perfecting Presentation Adding Fonts to AE Projects for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-comprehensive-breakdown-sony-fdr-x1000-video-gear/"><u>[Updated] Comprehensive Breakdown Sony FDR-X1000 Video Gear</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-guide-to-playing-twitter-on-chromium-browser-for-2024/"><u>[Updated] Guide to Playing Twitter on Chromium Browser for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-decision-temporary-ban-on-trump-proves-prudent/"><u>Facebook's Decision: Temporary Ban on Trump Proves Prudent</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-samsung-galaxy-a05-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Samsung Galaxy A05 Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-post-anonymously-in-a-facebook-group/"><u>How to Post Anonymously in a Facebook Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-meta-verification-a-prudent-expense/"><u>Is Meta Verification a Prudent Expense?</u></a></li>
-<li><a href="https://facebook.techidaily.com/its-not-just-you-facebook-whatsapp-and-instagram-are-down-right-now/"><u>It's Not Just You: Facebook, WhatsApp, and Instagram Are Down Right Now</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastery-start-essence-of-storyline-development-for-2024/"><u>Mastery Start Essence of Storyline Development for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/path-to-regain-lost-fb-access-without-previous-keys/"><u>Path to Regain Lost FB Access without Previous Keys</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/d-hacks-top-youtube-experts-to-elevate-learning-for-2024/"><u>Sci-Ed Hacks Top YouTube Experts to Elevate Learning for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-cut-off-removing-someone-from-your-network/"><u>Social Cut-Off: Removing Someone From Your Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-engagement-peaks-and-troughs-analysis/"><u>Social Engagement Peaks and Troughs Analysis</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-bargain-video-snippets-grab-youtube-images-without-cost-for-2024/"><u>Top Bargain Video Snippets - Grab YouTube Images Without Cost for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-metas-ascension-frightens-us-all/"><u>Why Meta's Ascension Frightens Us All</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722962727498-wild-relatives-landraces-and-cultivated-varieties-are-primary-sources-of-new-alleles-in-breeding-programs/"><u>Wild Relatives, Landraces, and Cultivated Varieties Are Primary Sources of New Alleles in Breeding Programs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-9-pinnacle-in-live-game-broadcasting/"><u>[Updated] 9 Pinnacle in Live Game Broadcasting</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mobilize-your-storytelling-crafting-content-with-a-phone/"><u>[Updated] In 2024, Mobilize Your Storytelling Crafting Content with a Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-t2x-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo T2x 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comprehensive-review-of-powerdirector-pro-suite-for-2024/"><u>Comprehensive Review of PowerDirector Pro Suite for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-guide-modifying-fb-picture-sharing/"><u>Detailed Guide: Modifying FB Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-ways-to-detect-unauthorized-pc-access/"><u>Easy Ways to Detect Unauthorized PC Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-meta-ai-a-step-forward-or-back-for-social-networks/"><u>Is Meta AI a Step Forward or Back for Social Networks?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/online-mp4-ogg-video-format-transformation-zero-cost-with-movavi/"><u>Online MP4-OGG Video Format Transformation: Zero Cost with Movavi</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/resolving-screen-freeze-on-pc/"><u>Resolving Screen Freeze on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-kids-digital-footprint-update-on-messenger-kids/"><u>Safeguarding Kids' Digital Footprint: Update on Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshielded-from-sanctions-facebook-fosters-hate-campaigns/"><u>Unshielded From Sanctions, Facebook Fosters Hate Campaigns</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/utilizing-fb-features-for-broadcasting-historical-video-footage-for-2024/"><u>Utilizing FB Features for Broadcasting Historical Video Footage for 2024</u></a></li>
 </ul></div>
 

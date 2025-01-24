@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Worlds: Understanding the Metaverse"
-date: 2025-01-17T16:12:50.021Z
-updated: 2025-01-18T16:22:40.382Z
+date: 2025-01-23T22:37:32.365Z
+updated: 2025-01-24T16:56:11.183Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,13 @@ So, what is the metaverse?
 
  Nonetheless, after the arrival of the World Wide Web, people started to use the term cyberspace as a synonym of the internet in its present state. By the time Stephenson’s Snow Crash hit the shelves, the term “metaverse” caught on, and common use established it as the concept’s signifier.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Metaverse?
 
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
 
@@ -63,7 +63,7 @@ Yet.
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
@@ -78,9 +78,17 @@ Yet.
 
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
@@ -89,10 +97,6 @@ Yet.
 ### The Metaverse Precursors
 
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -104,16 +108,12 @@ Yet.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -136,22 +136,19 @@ Yet.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-quick-guide-to-restore-video-sharing-in-fb-messengers-iosandroid/"><u>[Updated] 2024 Approved Quick Guide to Restore Video Sharing in FB Messengers (iOS/Android)</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-essential-steps-to-proficiently-employing-iphone-x-animoji-for-2024/"><u>[Updated] Essential Steps to Proficiently Employing iPhone X Animoji for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-fbx-recorder-essentials-for-players-for-2024/"><u>[Updated] FBX Recorder Essentials For Players for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-metas-trusted-identity-in-america/"><u>Embrace Meta's Trusted Identity in America</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-transform-your-imagination-into-reality-with-top-animation-software/"><u>In 2024, Transform Your Imagination Into Reality with Top Animation Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-communal-territories-now-on-facebook/"><u>Interactive Communal Territories Now on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mass-perception-study-networkings-adverse-effects/"><u>Mass Perception Study: Networking's Adverse Effects</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/preparing-to-engage-in-googles-video-meetings-for-2024/"><u>Preparing to Engage in Google's Video Meetings for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/say-goodbye-to-gaming-hiccups-the-definitive-2024-strategies-for-stunningly-fluid-gameplay-at-maximum-fps/"><u>Say Goodbye to Gaming Hiccups: The Definitive 2024 Strategies for Stunningly Fluid Gameplay at Maximum FPS</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-profile-visibility-on-fb/"><u>Securing Your Profile Visibility on FB</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/smartwatch-shopping-guide-the-key-factors-you-shouldnt-ignore/"><u>Smartwatch Shopping Guide: The Key Factors You Shouldn't Ignore</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-how-to-preventing-responses-on-your-social-media-update/"><u>The Ultimate How-To: Preventing Responses on Your Social Media Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-unspoken-etiquette-for-online-acquaintance-requests/"><u>Understanding Unspoken Etiquette for Online Acquaintance Requests</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleashing-the-power-of-hd-media-in-social-networks/"><u>Unleashing the Power of HD Media in Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-anticipate-a-crypto-fueled-ad-wave/"><u>Why Anticipate a Crypto-Fueled Ad Wave?</u></a></li>
-<li><a href="https://discover-able.techidaily.com/wie-man-fotos-vom-iphone-erfolgreich-in-windows-1011-ubertragen-kann/"><u>Wie Man Fotos Vom iPhone Erfolgreich in Windows 10/11 Übertragen Kann</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-premium-list-10-budget-friendly-picture-storage-vaults-for-2024/"><u>[Updated] Premium List 10 Budget-Friendly Picture Storage Vaults for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-windows-edition-toolkit-for-videos/"><u>[Updated] Ultimate Windows Edition Toolkit for Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-edge-vr-game-development-technology-2023-edition/"><u>2024 Approved Leading Edge VR Game Development Technology, 2023 Edition</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-peak-engagement-spark-plug/"><u>2024 Approved Peak Engagement Spark Plug</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-hidden-organizational-diagram/"><u>Discovering Facebook's Hidden Organizational Diagram</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-iphone-14-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked iPhone 14 Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/large-techs-credibility-questioned-by-survey-results/"><u>Large Tech's Credibility Questioned by Survey Results</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-gesture-based-functionality/"><u>Navigating Facebook’s Gesture-Based Functionality</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-samsung-galaxy-xcover-7-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Samsung Galaxy XCover 7 has been deleted.</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-securing-your-facebook-pics/"><u>Strategies for Securing Your Facebook Pics</u></a></li>
+<li><a href="https://win-able.techidaily.com/the-ultimate-walkthrough-for-using-driver-easys-mobile-app/"><u>The Ultimate Walkthrough for Using Driver Easy's Mobile App</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-15-free-windows-11-theme-packs-enhance-your-pcs-look/"><u>Top 15 Free Windows 11 Theme Packs: Enhance Your PC's Look</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/win7-hdmi-sounds-not-playing-heres-how-to-get-it-working-again/"><u>Win7 HDMI Sounds Not Playing? Here's How to Get It Working Again!</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-personal-cybersecurity-roadmap-on-facebook/"><u>Your Personal Cybersecurity Roadmap on Facebook</u></a></li>
 </ul></div>
 

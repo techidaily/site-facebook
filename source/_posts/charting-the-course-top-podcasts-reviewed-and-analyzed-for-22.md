@@ -1,7 +1,7 @@
 ---
 title: "Charting the Course: Top Podcasts Reviewed & Analyzed for '22"
-date: 2024-08-08T11:22:20.711Z
-updated: 2024-08-09T11:22:20.711Z
+date: 2025-01-18T19:44:20.818Z
+updated: 2025-01-24T21:43:16.615Z
 tags:
   - facebook
 categories:
@@ -20,15 +20,17 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
  You can subscribe to the Really Useful Podcast on [Apple Podcasts](https://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) ,[Spotify](https://open.spotify.com/show/283gDxLd6OTNEpRq6tN7ha) ,[Google Podcasts](https://www.google.com/podcasts?feed=aHR0cHM6Ly9hbmNob3IuZm0vcy8zMWJlNDcwL3BvZGNhc3QvcnNz) ,[Amazon Music and Audible](https://music.amazon.co.uk/podcasts/20ab73d4-5da2-46c7-a17f-dc6eb39bdb48/The-Really-Useful-Podcast) ,[Player FM](https://player.fm/series/the-really-useful-podcast-2491856) , or copy the [RSS feed](https://feeds.transistor.fm/the-really-useful-podcast) into your podcast player.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Shownotes
 
 Here's everything we discuss in this week's 2022 special:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### High points of 2022
 
 * Meta crash and burn
@@ -36,8 +38,9 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Low points of 2022
 
 * [Cryptocurrency crash](https://www.makeuseof.com/us-justice-department-seizes-billions-bitcoin/)
@@ -48,8 +51,9 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best devices of 2022
 
 * [Nothing Phone (1)](https://www.makeuseof.com/nothing-phone-1-review/)
@@ -57,17 +61,9 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best games of 2022
 
 * [Vampire Survivors](https://poncle.itch.io/vampire-survivors)
@@ -78,14 +74,11 @@ Here's everything we discuss in this week's 2022 special:
 
  Christian Cawley, Gavin Phillips, and Ben Stegner host this podcast. You can contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) ,[@gavinspavin](https://twitter.com/gavinspavin) , and [@stegnersaurus](https://twitter.com/stegnersaurus) , with your suggestions for future topics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,6 +87,21 @@ Here's everything we discuss in this week's 2022 special:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-prime-strategies-for-high-quality-youtube-mp3mpeg/"><u>[New] 2024 Approved Prime Strategies for High-Quality YouTube MP3/MPEG</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-instantaneously-engaging-audiences-how-obs-simplifies-instagram-streams-for-2024/"><u>[New] Instantaneously Engaging Audiences How OBS Simplifies Instagram Streams for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-play-nba-anytime-anywhere-with-these-15-livestream-tips/"><u>[New] Play NBA Anytime, Anywhere with These 15 Livestream Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tutorial-keeping-youtube-like-tweets-in-android-cache/"><u>[Updated] In 2024, Tutorial Keeping YouTube-Like Tweets in Android Cache</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discover-the-top-10-capabilities-of-windows-powertoys-tools/"><u>Discover the Top 10 Capabilities of Windows PowerToys Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-witnessing-trumps-return/"><u>Facebook & Instagram, Witnessing Trump’s Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-interactive-communities-with-facebooks-channels/"><u>Fostering Interactive Communities with Facebook's Channels</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-nokia-105-classic-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Nokia 105 Classic online without jailbreak</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-infusing-life-into-text-instagram-story-animations-tips/"><u>In 2024, Infusing Life Into Text Instagram Story Animations Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-facebooks-altered-meanings-for-page-labels/"><u>Interpreting Facebook's Altered Meanings for Page Labels</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/nft-creation-simplified-for-novice-developers-for-2024/"><u>NFT Creation Simplified for Novice Developers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-social-network-events-with-facebook/"><u>Streamlining Your Social Network Events with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-audio-expressions-in-fb-messenger/"><u>The Art of Audio Expressions in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emergence-of-metaai-and-its-impact-on-bots/"><u>The Emergence of MetaAI and Its Impact on Bots</u></a></li>
+</ul></div>
 

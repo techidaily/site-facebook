@@ -1,7 +1,7 @@
 ---
 title: "Building Bridges Socially: The 7 Networking Benefits"
-date: 2024-08-08T11:19:03.181Z
-updated: 2024-08-09T11:19:03.181Z
+date: 2025-01-19T19:50:02.042Z
+updated: 2025-01-24T20:57:20.725Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Social Media Makes It Easier to Make Friends
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
@@ -38,10 +39,11 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 ## 2\. Social Media Fosters Empathy
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -56,8 +58,9 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 **Social media can act as a kind of group therapy session.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Social Media Allows for Speedy Communication
 
 ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
@@ -87,13 +90,11 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 **Social media has made the world a much smaller place.**
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Social Media Helps You Build Relationships
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
@@ -106,9 +107,6 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
  **Social media can help foster friendships and more besides.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
@@ -125,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 7\. Social Media Helps You Find Common Ground
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
@@ -143,18 +137,19 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,6 +158,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagrams-backward-glimpse-reverse-video-tips/"><u>[New] 2024 Approved Instagram's Backward Glimpse Reverse Video Tips</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-chromatic-confluence-blending-colors-with-flair/"><u>[New] In 2024, Chromatic Confluence Blending Colors with Flair</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-pinnacle-camera-technology-the-best-reviewed/"><u>[Updated] 2024 Approved Pinnacle Camera Technology – The Best Reviewed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-advances-in-syma-x8c-flight-autonomy-for-2024/"><u>[Updated] Advances in Syma X8C Flight Autonomy for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-unresponsive-voice-typing-with-error-x80049dd3-fixes/"><u>Eliminating Unresponsive Voice Typing with Error X80049DD3 Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-touch-features-a-utility-check-up/"><u>Facebook Touch Features: A Utility Check-Up</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-redmi-note-13-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Xiaomi Redmi Note 13 5G?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-thumbnail-crafting-simplified-macos-edition/"><u>In 2024, YouTube Thumbnail Crafting Simplified (macOS Edition)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-to-music-directing-videos-to-mp3-outputs/"><u>Instagram to Music Directing Videos to MP3 Outputs</u></a></li>
+<li><a href="https://facebook.techidaily.com/scamming-through-false-identities-on-facebook/"><u>Scamming Through False Identities on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/screenshot-your-peace-blocking-fb-notifies/"><u>Screenshot Your Peace: Blocking FB Notifies</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-access-restricted-videos-on-fb-without-issues/"><u>Techniques to Access Restricted Videos on FB Without Issues</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-a24-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy A24 Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/tidy-tactics-for-a-smarter-facebook-presence/"><u>Tidy Tactics for a Smarter Facebook Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-vanishing-snapshots-in-facebook-messenger/"><u>Track Vanishing Snapshots in Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwanted-network-facebooks-top-3-ban-countries/"><u>Unwanted Network: Facebook's Top 3 Ban Countries</u></a></li>
+</ul></div>
 

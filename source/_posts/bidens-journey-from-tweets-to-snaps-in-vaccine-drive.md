@@ -1,7 +1,7 @@
 ---
 title: "Biden's Journey: From Tweets to Snaps in Vaccine Drive"
-date: 2024-08-08T11:20:15.964Z
-updated: 2024-08-09T11:20:15.964Z
+date: 2025-01-22T20:05:41.931Z
+updated: 2025-01-24T21:34:58.095Z
 tags:
   - facebook
 categories:
@@ -20,16 +20,18 @@ thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea5
  To do this, his administration is making use of just about every form of digital communication to encourage people to get vaccinated.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The White House Will Use Social Media to Push Vaccine Eligibility
 
  According to an [Axios](https://www.axios.com/biden-vaccine-eligibility-push-e438587b-9b34-4b75-9132-7395c2768ed7.html) report, the White House is launching a "targeted media blitz" to promote the Biden administration's promotional campaign for vaccine eligibility. Facebook, Twitter, and Snapchat are some of the companies that'll help spread the word.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/biden-and-us-flag.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: The White House/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:President%5Fof%5Fthe%5FUnited%5FStates%5FJoe%5FBiden%5F%282021%29.jpg)
 
@@ -44,16 +46,18 @@ thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea5
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper [Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform [launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even [froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -61,14 +65,11 @@ thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea5
 
  Admittedly, it did take some time for major platforms to step up like this. When the pandemic first began, COVID-19 misinformation was spreading like wildfire. But now, some of the social media giants are now trying to turn things around for the sake of everyone's safety, which is wonderful to see.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,6 +78,21 @@ thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-saving-your-desktop-display-with-free-tech-tools/"><u>[New] In 2024, Saving Your Desktop Display with Free Tech Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-discovering-the-best-practices-for-a-bigger-roi-with-fb-videos-for-2024/"><u>[Updated] Discovering the Best Practices for a Bigger ROI with FB Videos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-expert-strategies-for-seamless-clip-composition-for-2024/"><u>[Updated] Expert Strategies for Seamless Clip Composition for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-spotify-collaborate-on-innovative-boombox-venture/"><u>Facebook & Spotify Collaborate on Innovative Boombox Venture</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-mastering-screen-recording-mi-11-edition/"><u>In 2024, Mastering Screen Recording Mi 11 Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-your-facebook-page-excluding-post-comments-effectively/"><u>Quiet Your Facebook Page: Excluding Post Comments Effectively</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-rhythm-potential-with-graphics-pads/"><u>Unlocking Rhythm Potential with Graphics Pads</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-extends-period-for-reviewing-new-privacy-policies/"><u>WhatsApp Extends Period for Reviewing New Privacy Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-can-i-expect-facebooks-e2ee-to-secure-my-messages/"><u>When Can I Expect Facebook's E2EE to Secure My Messages?</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-daily-soundtrack-via-spotifys-mini-player-facebook-style/"><u>Your Daily Soundtrack via Spotify's Mini Player, Facebook Style</u></a></li>
+</ul></div>
 

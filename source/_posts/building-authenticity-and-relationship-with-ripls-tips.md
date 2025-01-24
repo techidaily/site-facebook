@@ -1,7 +1,7 @@
 ---
 title: Building Authenticity and Relationship with Ripl's Tips
-date: 2024-08-08T11:21:43.627Z
-updated: 2024-08-09T11:21:43.627Z
+date: 2025-01-20T20:25:50.948Z
+updated: 2025-01-24T23:09:16.086Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/c7f6e1d56c05b1571f57a7f9b04e195b30e35f1ef
  If you're a social media enthusiast, you'll know that images and videos have a much higher potential for engagement than text-only posts. However, you might think that creating these posts requires extensive technical design skills. With apps like Ripl, though, you can create spectacular graphics for your feed—without the hassle of attending design school.
 
  Today, we'll show you how to use Ripl to create social media posts that stand out from the rest of the crowd.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is Ripl?
 
@@ -65,12 +69,13 @@ thumbnail: https://thmb.techidaily.com/c7f6e1d56c05b1571f57a7f9b04e195b30e35f1ef
 
  Click the**See all** link at the right of each section to get the complete list of template options for that category. And scroll down for more template categories.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Creating a Collage With Ripl
 
 ![Visualization of Ripl editor with collage template](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-08.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To create a remarkable family photo collage for your Facebook or Instagram feed, try these steps:
 
@@ -80,14 +85,19 @@ thumbnail: https://thmb.techidaily.com/c7f6e1d56c05b1571f57a7f9b04e195b30e35f1ef
 4. Ripl defaults to the**Media tab** . If you'd like to delete the stock photos from the collage, click the**X** above each image.
 5. Select**Upload from computer** to add your images to the template. Keep the number of images the same as the original template.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Visualization of adding external images to the collage template of Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  6\. Click on the**Text tab** to edit the**Primary** and**Secondary** text of the collage template.
 
 ![Illustration of Primary and Secondary texts in Texts tab of Ripl editor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  7\. Double-click on**Your Logo Here** to upload a personal logo or hide the element.
 
@@ -97,14 +107,8 @@ thumbnail: https://thmb.techidaily.com/c7f6e1d56c05b1571f57a7f9b04e195b30e35f1ef
 
  Related:[Best Video Editors for Creating Social Media Posts](https://www.makeuseof.com/tag/best-video-editors-social-media/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Creating a Ripl Slideshow
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Visualization of a Ripl template for slideshow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-13.jpg)
 
  Slideshow posts are perfect when you want to tell a story or showcase several images. Ripl enables you to convert each photo into a single slide. You can also add unique text to customize your slideshow deck.
@@ -118,19 +122,21 @@ To create a slideshow:
 
 ![Illustrating the Size tab functions of Ripl editor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  5\. Click on the**Fill Style tab** to choose between**Solid** ,**Gradient** , or**Stripes** .
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Image showing the Fill Style tab of Ripl editor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-15.jpg)
 
  6\. Now, click the**Media tab** . You may either upload photos from your computer or use stock photos from the Ripl content library.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Visualization of inserting stock photos to the slideshow template of Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-16.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  7\. Once you've selected your photos, click on the**Play** button beneath the image to preview the slideshow. Ripl employs a unique algorithm to determine the slideshow's speed.
 
@@ -141,9 +147,6 @@ Here are some tips to control the pace of slideshow elements:
 * Use fewer images to increase the display time of each image.
 * Don’t add lengthy text captions if you want to increase the transition speed.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Creating a Social Media Poll
 
 ![Image of expanded list under This or that section of Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-17.jpg)
@@ -159,10 +162,11 @@ Here are some tips to control the pace of slideshow elements:
 5. To do so, gather some images you'd like to use for your poll.
 6. Transfer the images to your computer, and then click on the**Upload from computer** button in the**Ripl editor** to upload.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Image showing file upload from local computer to Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-18.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  7\. Select two images. They’ll appear above the**Upload from computer** button.
 
@@ -170,32 +174,23 @@ Here are some tips to control the pace of slideshow elements:
 
  9\. Click on the**Text tab** to enter custom messages in the**Primary** and**Secondary** text fields.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Visualization of editing the texts of poll visuals in Ripl editor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-19.jpg)
 
  10\. To save the image on your computer, right-click on the image and select**Save image as** .
 
  11\. Now, you can use the saved image for Facebook, Instagram, or any other social media platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Effortlessly Create Eye-Catching Social Media Content
 
  Now that you've learned the basics of Ripl feel free to let your creativity run wild. Once you're comfortable, you'll be creating engaging posts with only a few clicks.
 
  Designing exceptional graphics for social media doesn't have to be complicated. With sites like Ripl, you can focus less on the mechanics of design software and more on content that makes an impact on your audience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -204,6 +199,20 @@ Here are some tips to control the pace of slideshow elements:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/updated-adding-apple-music-to-video/"><u>[Updated] Adding Apple Music to Video</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-green-tech-in-the-world-of-screen-capture-for-2024/"><u>[Updated] Elite Green Tech in the World of Screen Capture for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-zoom-mastering-screen-sharing-basics-for-2024/"><u>[Updated] Zoom Mastering Screen-Sharing Basics for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-poco-c50-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-from-dates-via-facebook-nostalgia/"><u>Disconnect From Dates via Facebook Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-guide-elevate-your-fb-pages-guardianship/"><u>Essential Guide: Elevate Your FB Page's Guardianship</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-digital-frontiers-with-meta-drops-trial-run/"><u>Exploring Digital Frontiers with Meta Drops Trial Run</u></a></li>
+<li><a href="https://win-blog.techidaily.com/extracting-month-and-year-from-dates-using-microsoft-excel-a-step-by-step-guide/"><u>Extracting Month and Year From Dates Using Microsoft Excel: A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-list-selecting-excellent-webcams-for-podcasts/"><u>In 2024, Ultimate List Selecting Excellent Webcams for Podcasts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726028876995-mp42/"><u>MP4動画映像に追加するアウディオ：効果的な方法2つ</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
+<li><a href="https://os-tips.techidaily.com/solving-issues-with-your-iphones-nearness-gauge/"><u>Solving Issues with Your iPhone's Nearness Gauge</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ultimate-highlight-trail-from-skatescape-2022-for-2024/"><u>The Ultimate Highlight Trail From Skatescape 2022 for 2024</u></a></li>
+</ul></div>
 

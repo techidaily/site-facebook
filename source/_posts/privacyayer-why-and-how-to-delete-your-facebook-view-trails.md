@@ -1,7 +1,7 @@
 ---
 title: "Privacy'ayer: Why and How to Delete Your Facebook View Trails"
-date: 2025-01-16T16:00:20.720Z
-updated: 2025-01-18T16:00:27.281Z
+date: 2025-01-23T20:27:23.942Z
+updated: 2025-01-24T18:59:02.942Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Delete Your Facebook Watch History on Android
 
  To delete your Facebook watch history on the Android app, follow these steps:
@@ -47,10 +51,14 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
@@ -72,7 +80,7 @@ Close
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 2. Click on the**three-dot icon** , then click**Activity log** .
@@ -80,15 +88,11 @@ Close
  Click on**Videos you’ve watched** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
 
@@ -101,14 +105,10 @@ Close
  You can then clear any videos you find there.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
 
@@ -135,17 +135,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-unveiling-vegaspro-the-19-edition/"><u>[New] Unveiling VegasPro The '19 Edition</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-access-yt-comments-desktopiosandroid-edition-explained-for-2024/"><u>[Updated] Access YT Comments Desktop/iOS/Android Edition Explained for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-correct-yt-monetization-checklist-maximize-your-earnings-for-2024/"><u>[Updated] Correct YT Monetization Checklist – Maximize Your Earnings for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-green-walls-in-grey-buildings-a-step-towards-eco-cities/"><u>[Updated] Green Walls in Grey Buildings A Step Towards Eco-Cities</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-vsr-video-vaulter-reviews-comprehensive-guide-for-2024/"><u>[Updated] VSR Video Vaulter Reviews Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-realme-11-proplus-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Realme 11 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/identifying-prevalent-factors-behind-poor-pc-speed-a-guide-by-yl-software/"><u>Identifying Prevalent Factors Behind Poor PC Speed: A Guide by YL Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-and-fb-stickers-a-test-of-brand-engagement/"><u>Instagram and FB Stickers: A Test of Brand Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-as-a-tool-facebook-users-spend-300-on-recovery/"><u>Oculus as a Tool: Facebook Users Spend $300 on Recovery</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-quest-update-rescheduled-for-next-fiscal-year/"><u>Oculus Quest Update: Rescheduled for Next Fiscal Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/organizing-connected-tools-a-compreayers-guide-to-fb-integration/"><u>Organizing Connected Tools: A Compreayer's Guide to Fb Integration</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-trailblaze-the-gaming-frontier-samsung-edition/"><u>[New] 2024 Approved Trailblaze the Gaming Frontier Samsung Edition</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-lilliputscreenmugger-review-analysis-for-2024/"><u>[New] LilliputScreenMugger Review Analysis for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-yt-masterpieces-for-igtv-showcase/"><u>[Updated] Crafting YT Masterpieces for IGTV Showcase</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/4-ways-to-fix-hibernate-mode-not-working-on-windows/"><u>4 Ways to Fix Hibernate Mode Not Working on Windows</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/act-now-uncover-the-five-essential-strategies-for-windows-11-users-before-microsoft-discontinues-support-zdnet-tech-analysis/"><u>Act Now: Uncover the Five Essential Strategies for Windows 11 Users Before Microsoft Discontinues Support | ZDNet Tech Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-intractability-of-social-media-feeds/"><u>Dissecting the Intractability of Social Media Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-security-while-utilizing-connected-websites-and-apps-in-fb/"><u>Ensuring Security While Utilizing Connected Websites & Apps in FB</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-motorola-moto-e13-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Motorola Moto E13 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-message-memorable-stylized-text-in-chats/"><u>Making Your Message Memorable: Stylized Text in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/precise-connections-curating-your-fb-circle/"><u>Precise Connections: Curating Your FB Circle</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rising-star-how-jake-paul-conquered-youtube-for-2024/"><u>Rising Star How Jake Paul Conquered YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-decoding-the-meanings-behind-key-smarts/"><u>The Language of Likes & Shares: Decoding the Meanings Behind Key SMARTs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Xiaomi Redmi K70E | Dr.fone</u></a></li>
 </ul></div>
 

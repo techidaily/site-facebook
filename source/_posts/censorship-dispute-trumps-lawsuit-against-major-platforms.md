@@ -1,7 +1,7 @@
 ---
 title: "Censorship Dispute: Trump's Lawsuit Against Major Platforms"
-date: 2024-08-08T11:19:32.989Z
-updated: 2024-08-09T11:19:32.989Z
+date: 2025-01-21T20:24:34.336Z
+updated: 2025-01-24T19:47:11.425Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
  Former President Donald Trump is taking legal action against Twitter, Facebook, and YouTube after he was banned from each platform following the January 6 Capitol riots. Trump announced that he's filing class-action lawsuits against each platform and their respective CEOs, arguing that he was wrongfully censored on these social networks.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Trump Is Suing Big Tech for Alleged Censorship
 
  At a press conference in New Jersey, Trump told his audience that he's suing Facebook, Twitter, and YouTube for allegedly infringing on his right to free speech. Trump's filing seeks punitive damages, as well as the reinstatement of his accounts on each social network.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
  YouTube also suspended Trump in January, and only [plans to lift the ban once "the risk of violence has decreased](https://www.makeuseof.com/youtube-on-trump-suspension/) ."
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What About Trump's New Social Network?
 
  To counteract his bans from the most popular social platforms, Trump has created his own: GETTR. GETTR prides itself on "rejecting political censorship and 'cancel culture,'" which is a policy that Twitter, Facebook, and YouTube allegedly don't have.
@@ -47,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
 
  Image Credit: Chairman of the Joint Chiefs of Staff/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Trump,%5FPentagon%5Fleaders%5Fhonor%5F9-11%5Fvictims%5F%2836979645216%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,6 +62,21 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-iphone-photo-excellence-simple-tips-and-tricks/"><u>[New] In 2024, IPhone Photo Excellence Simple Tips & Tricks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-definitive-list-of-economical-teleconference-platforms/"><u>[New] In 2024, The Definitive List of Economical Teleconference Platforms</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-step-by-step-guide-to-painless-iphone-screen-sharing/"><u>[New] Step-by-Step Guide to Painless iPhone Screen Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-crowdflower-tech-for-enhanced-analytics/"><u>Essential CrowdFlower Tech for Enhanced Analytics</u></a></li>
+<li><a href="https://win-info.techidaily.com/exploring-the-top-competing-technologies-that-challenge-conventional-looms-ranking-and-reviews/"><u>Exploring the Top Competing Technologies That Challenge Conventional Looms: Ranking & Reviews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/high-res-horizons-in-depth-analysis-of-samsung-ue590-tv-for-2024/"><u>High-Res Horizons In-Depth Analysis of Samsung UE590 TV for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-to-apple-iphone-12-pro-drfone-by-drfone-ios/"><u>In 2024, How to Mirror PC to Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-vivo-s18-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Vivo S18 Pro Device</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/individual-use-software-permit/"><u>Individual Use Software Permit</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sonic-landscape-of-modern-chats-on-fb/"><u>Navigating the Sonic Landscape of Modern Chats on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-and-google-should-do-more-to-remove-scam-ads/"><u>Report: Facebook and Google Should Do More to Remove Scam Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-truth-on-platforms-during-a-global-crisis/"><u>The Battle for Truth on Platforms During a Global Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-social-media-experience-with-todays-feature/"><u>Transforming Your Social Media Experience with Today’s Feature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/why-my-photos-are-upside-down-on-instagram-feed-for-2024/"><u>Why My Photos Are Upside Down on Instagram Feed for 2024</u></a></li>
+</ul></div>
 

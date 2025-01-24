@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook’s Privacy Update: Essential Steps"
-date: 2025-01-15T16:20:56.319Z
-updated: 2025-01-18T16:19:40.103Z
+date: 2025-01-20T19:32:17.234Z
+updated: 2025-01-24T19:54:03.248Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -34,21 +38,29 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
@@ -69,19 +81,11 @@ Here's how:
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
@@ -90,10 +94,6 @@ Here's how:
  To return to the main menu and explore other privacy settings, simply click on**Privacy Center home** , go to your preferred category and click**Read more** .
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why You Should Use Facebook's Privacy Center
 
@@ -128,15 +128,18 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-veiled-viewer-in-the-social-sphere/"><u>[New] 2024 Approved Veiled Viewer in the Social Sphere</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-selecting-the-best-free-melodies-for-your-youtube-video/"><u>[Updated] In 2024, Selecting the Best Free Melodies for Your YouTube Video</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-live-stream-your-google-meet-on-youtube-for-2024/"><u>[Updated] Step-By-Step Guide to Live Stream Your Google Meet on YouTube for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhanced-chat-on-the-horizon-for-facebook-users/"><u>Enhanced Chat on the Horizon for Facebook Users</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/extensive-breakdown-what-the-google-podcast-app-means-for-you-for-2024/"><u>Extensive Breakdown What the Google Podcast App Means for You for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes.</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721475955510-iphone-qr-scanner-issues-discover-these-5-quick-fixes/"><u>IPhone QR Scanner Issues? Discover These 5 Quick Fixes!</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-web-searches-post-fbcta-implementation/"><u>Navigating Web Searches Post-FBCTA Implementation</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-tecno-camon-20-premier-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Tecno Camon 20 Premier 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-scrubbing-facebooks-past-mistakes/"><u>The Ultimate Guide to Scrubbing Facebook's Past Mistakes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-discover-apples-best-vr-gaming-titles-on-your-phone/"><u>[New] 2024 Approved Discover Apple's Best VR Gaming Titles on Your Phone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unraveling-the-purpose-behind-a-common-symbol-on-fb-chat-for-2024/"><u>[New] Unraveling the Purpose Behind a Common Symbol on FB Chat for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-complete-overview-of-full-scene-in-ppro/"><u>[Updated] Complete Overview of Full Scene in PPro</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-samsung-galaxy-f34-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Samsung Galaxy F34 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-functionality-of-facebook-portal-for-virtual-meetups/"><u>Exploring the Functionality of Facebook Portal for Virtual Meetups</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-defiance-why-it-wont-go-dead/"><u>Facebook's Defiance: Why It Won't Go 'Dead'</u></a></li>
+<li><a href="https://extra-information.techidaily.com/gopros-newest-clash-max-360-versus-hero-11-showdown/"><u>GoPro's Newest Clash Max 360 Versus Hero 11 Showdown</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi Note 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-locate-people-youve-shut-out-of-your-fb-life/"><u>How To Locate People You’ve Shut Out of Your FB Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/metamorphose-your-approach-with-meta-profile-center-guide/"><u>Metamorphose Your Approach with Meta Profile Center Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/resolving-synaptic-smbus-driver-problems-in-windows-11-a-step-by-step-guide/"><u>Resolving Synaptic SMBus Driver Problems in Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-virtual-world-be-selective-dont-accept-everyone/"><u>Safeguarding Your Virtual World: Be Selective, Don't Accept Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-demystified-utilizing-facebooks-transparency-hub-features/"><u>Social Media Demystified: Utilizing Facebook's Transparency Hub Features</u></a></li>
 </ul></div>
 

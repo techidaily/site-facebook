@@ -1,7 +1,7 @@
 ---
 title: Cricket Associations Cut Ties with Social Sites
-date: 2024-08-08T11:21:34.681Z
-updated: 2024-08-09T11:21:34.681Z
+date: 2025-01-19T16:02:01.870Z
+updated: 2025-01-24T21:15:06.707Z
 tags:
   - facebook
 categories:
@@ -18,13 +18,9 @@ thumbnail: https://thmb.techidaily.com/7e22f518017db6277dcd7e1190b41157a79340260
  Stamping out racism in any respect is, quite rightly, very much on many people's agendas. One example being England's athletes and sports stars who, along with their teams, are taking a social media stand against online racism.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## England Sports' Social Media Blackout Has Begun
 
  We reported previously that [English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
@@ -34,8 +30,9 @@ thumbnail: https://thmb.techidaily.com/7e22f518017db6277dcd7e1190b41157a79340260
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Will the Social Media Blackout Involve?
 
  As with any blackout, it involves sports players and teams steering clear of social media. So there will be no posts about football, cricket, or rugby, from the teams and players involved in each respective sport. That is because they have boycotted all the platforms mentioned above.
@@ -43,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/7e22f518017db6277dcd7e1190b41157a79340260
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Are Sports Teams Boycotting Social Media?
 
  One word. Racism. It is unacceptable to racially abuse anyone, on or offline. Sporting personalities want you to know this. The Premier League announcement says:
@@ -56,20 +54,18 @@ thumbnail: https://thmb.techidaily.com/7e22f518017db6277dcd7e1190b41157a79340260
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Taking a Stand Against Racism
 
  Perhaps if more people followed suit and abandoned social media on the grounds of stamping out racism, then platform owners might stop and pay attention. While it isn't going to end racism overnight, unfortunately, it is a great place for everyone who uses social media to start.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -78,6 +74,20 @@ thumbnail: https://thmb.techidaily.com/7e22f518017db6277dcd7e1190b41157a79340260
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-navigating-through-youtube-shorts-knowledge/"><u>[New] 2024 Approved Navigating Through YouTube Shorts Knowledge</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-androvid-video-editor-complete-review-for-2024/"><u>[Updated] AndroVid Video Editor – Complete Review for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connecting-in-cyberspace-exploring-facebook-twitter-instagram-and-you-tubes-impact/"><u>Connecting in Cyberspace: Exploring Facebook, Twitter, Instagram & You-Tube's Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-breathes-easier-entire-energy-sourced-from-nature/"><u>FB Breathes Easier: Entire Energy Sourced From Nature</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-memory-test-failed-errors-in-windows/"><u>Fixing 'Memory Test Failed' Errors in Windows</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-xiaomi-13t-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Xiaomi 13T Phone Screen?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-picture-data-holders/"><u>In 2024, Leading Picture Data Holders</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-cancellation-of-a-social-network-clan/"><u>Navigating the Cancellation of a Social Network Clan</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-account-preventing-social-media-scams/"><u>Securing Your Account: Preventing Social Media Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-strategy-behind-facebooks-news-to-just-feed-shift/"><u>Unpacking the Strategy Behind Facebook's News to Just Feed Shift</u></a></li>
+<li><a href="https://driver-download.techidaily.com/updated-nvidia-940mx-graphics-driver-download-now/"><u>Updated NVIDIA 940MX Graphics Driver - Download Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-in-support-during-60-minutes-report/"><u>Who Spoke in Support During 60 Minutes Report?</u></a></li>
+</ul></div>
 

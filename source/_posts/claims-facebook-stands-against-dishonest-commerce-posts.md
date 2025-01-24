@@ -1,7 +1,7 @@
 ---
 title: "Claims: Facebook Stands Against Dishonest Commerce Posts"
-date: 2024-08-08T11:19:05.058Z
-updated: 2024-08-09T11:19:05.058Z
+date: 2025-01-21T19:07:31.332Z
+updated: 2025-01-24T17:55:16.233Z
 tags:
   - facebook
 categories:
@@ -18,22 +18,9 @@ thumbnail: https://thmb.techidaily.com/a270605ef2ab426a6767629ae263537bc25fdbd24
  The ad account of the encrypted messaging app Signal has been banned from Facebook for running what Signal calls the most honest ad campaign on the social network.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Signal Sees Its Facebook Ad Account Disabled
 
  Signal is taking an issue with tremendous data collection happening behind the scenes on Facebook, Instagram, and WhatsApp designed to "sell visibility into people and their lives."
@@ -45,8 +32,9 @@ Key features:
  In a post on the [Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Responds to Signal's Move
 
 Facebook responded with the following statement to the media:
@@ -60,8 +48,9 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -71,12 +60,9 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
  Signal wrapped it up nicely with the following passage in its blog post:
@@ -87,14 +73,11 @@ No advertising on the website.
 
  Signal is a secure messaging app that uses end-to-end encryption, vanishing messages, and other features to prevent eavesdropping. While not as popular as WhatsApp or Viber, Signal saw a sudden surge in popularity following Facebook's controversial privacy policy update on WhatsApp which drove some WhatsApp users away from that platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,6 +86,20 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/updated-craft-a-powerhouse-channel-with-studio-expertise/"><u>[Updated] Craft a Powerhouse Channel with Studio Expertise</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-art-of-skype-calls-on-windowsmac-best-free-and-paid-strategies/"><u>[Updated] The Art of Skype Calls on Windows/Mac Best Free and Paid Strategies</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-professionals-blueprint-for-investing-in-high-definition-viewing/"><u>[Updated] The Professional's Blueprint for Investing in High-Definition Viewing</u></a></li>
+<li><a href="https://windows11.techidaily.com/differences-between-cloud-based-windows-installations/"><u>Differences Between Cloud-Based Windows Installations</u></a></li>
+<li><a href="https://facebook.techidaily.com/erosion-of-trust-in-technology-titans-especially-facebook/"><u>Erosion of Trust in Technology Titans, Especially Facebook</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-steps-for-chromakey-magic/"><u>Essential Steps for Chromakey Magic</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unpacking-the-essence-of-digital-tales/"><u>In 2024, Unpacking the Essence of Digital Tales</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-new-privacy-hub-a-must-know-guide/"><u>Mastering Facebook's New Privacy Hub: A Must-Know Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-vs-facebook-privacy-comparison-for-oculus-quest/"><u>Meta Vs. Facebook: Privacy Comparison for Oculus Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-truth-insights-from-the-tech-industrys-leaks/"><u>Navigating Through Truth: Insights From the Tech Industry's Leaks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/obs-techniques-for-clear-skype-screen-recording-for-2024/"><u>OBS Techniques for Clear Skype Screen Recording for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/revive-laptop-display-on-tv-with-hdmi-fix/"><u>Revive Laptop Display on TV with HDMI Fix</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-list-of-podcast-interview-questions-to-hook-up-listeners/"><u>Updated List Of Podcast Interview Questions To Hook Up Listeners</u></a></li>
+</ul></div>
 

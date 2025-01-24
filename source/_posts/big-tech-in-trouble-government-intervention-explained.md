@@ -1,7 +1,7 @@
 ---
 title: Big Tech in Trouble? Government Intervention Explained
-date: 2024-08-08T11:22:19.775Z
-updated: 2024-08-09T11:22:19.775Z
+date: 2025-01-17T20:00:21.687Z
+updated: 2025-01-24T21:11:56.437Z
 tags:
   - facebook
 categories:
@@ -17,9 +17,6 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -27,8 +24,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -41,11 +39,12 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -57,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
@@ -70,8 +70,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Limits the Market Access of Smaller Companies
 
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
@@ -94,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 ## Big Tech Can Impact Government Decisions and Operations
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -121,15 +119,16 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
 
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -138,14 +137,11 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,6 +150,22 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-crafting-a-powerful-earnings-strategy-on-the-vimeo-platform/"><u>[New] Crafting a Powerful Earnings Strategy on the Vimeo Platform</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-instantly-optimize-iphone-videos-in-size-and-duration/"><u>[New] In 2024, Instantly Optimize iPhone Videos in Size and Duration</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-harmonizing-hearts-and-hertz-music-on-the-vimeo-scene/"><u>[Updated] Harmonizing Hearts and Hertz Music on the Vimeo Scene</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-effective-is-sponsored-view-count-boosting-in-2024/"><u>[Updated] How Effective Is Sponsored View Count Boosting, In 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/1-the-ultimate-guide-top-3-free-players-similar-to-smplayer-for-macos-users/"><u>1. The Ultimate Guide: Top 3 Free Players Similar to SMPlayer for macOS Users</u></a></li>
+<li><a href="https://fox-that.techidaily.com/comprehensive-troubleshooting-for-error-4013-during-ios-device-restoration/"><u>Comprehensive Troubleshooting for Error 4013 During iOS Device Restoration</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/design-your-own-content-formula-with-facebooks-reel-feature/"><u>Design Your Own Content Formula with Facebook's Reel Feature</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-complementary-items-for-ps-vr2/"><u>Essential Complementary Items for PS VR2</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-curve-top-or-trough/"><u>Facebook's Engagement Curve: Top or Trough?</u></a></li>
+<li><a href="https://facebook.techidaily.com/indian-tech-regulation-faces-legal-challenge-from-whatsapp/"><u>Indian Tech Regulation Faces Legal Challenge From WhatsApp</u></a></li>
+<li><a href="https://fox-info.techidaily.com/navigating-the-google-podcast-submission-guide-for-2024/"><u>Navigating the Google Podcast Submission Guide for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/skys-new-choreographer-gopro-karma-takes-center-stage/"><u>Sky's New Choreographer GoPro Karma Takes Center Stage</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-backs-new-content-platform-with-5m-financing/"><u>Social Network Backs New Content Platform with $5M Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unspoken-stories-in-whistleblowing-documents-on-fb/"><u>The Unspoken Stories in Whistleblowing Documents on FB</u></a></li>
+</ul></div>
 

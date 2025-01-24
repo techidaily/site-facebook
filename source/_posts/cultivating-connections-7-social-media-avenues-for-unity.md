@@ -1,7 +1,7 @@
 ---
 title: "Cultivating Connections: 7 Social Media Avenues for Unity"
-date: 2024-08-08T11:22:14.159Z
-updated: 2024-08-09T11:22:14.159Z
+date: 2025-01-19T19:36:35.700Z
+updated: 2025-01-24T16:53:10.594Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 
 Here are the ways that social media brings people together...
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## 1\. Keeping in Touch With Friends and Family
 
 ![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
@@ -33,6 +30,10 @@ Here are the ways that social media brings people together...
  Thankfully, social media allows us to connect with anyone, at any time.
 
  It's a great way to reconnect with people you have lost touch with and keep in contact with your loved ones. Check out our guide on [stopping strangers from seeing your Facebook](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) if you want to up your privacy settings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Maintaining Long-Distance Relationships
 
@@ -52,15 +53,13 @@ To use Facebook Messenger's video call feature:
 
  If you're looking for different messaging apps to try, consider checking out the [best all-in-one messaging platforms to simplify your communications](https://www.makeuseof.com/best-all-in-one-messaging-platforms/) .
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Sharing Pictures With Your Family and Friends
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
@@ -78,10 +77,11 @@ To use Facebook Messenger's video call feature:
 
 ### How to Join Groups on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To join a group on Facebook, follow these steps:
 
@@ -96,14 +96,8 @@ Then, wait for your request to be approved and start connecting!
 
  Facebook groups are an excellent way to make friends and business connections. After all, a stranger is just a friend you haven't met yet.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## 5\. Joining Social Media Movements
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
 
  Social media has brought many of us closer together. One of the major ways people are uniting is via social media movements like the "Me Too" movement against sexual harassment and assault, which is one of the many [Twitter hashtags that have shaped history](https://www.makeuseof.com/twitter-hashtags-that-shaped-history/) .
@@ -113,18 +107,20 @@ Then, wait for your request to be approved and start connecting!
  The birthplace of many social media movements is on Twitter. People use hashtags such as #metoo to unite all the posts in one place and tell their stories. Hashtags have brought attention to many injustices in the world and have also bonded people together in times of tragedy.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Meeting New People
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
 
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
 
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great [social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Helping People Reunite With Others and Items
 
@@ -134,20 +130,21 @@ Then, wait for your request to be approved and start connecting!
 
  Similarly, social media is useful for reuniting people with items that they might have lost—such as their house keys or wallet.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Social Media Can Be a Positive Influence
 
  These are just a few of the many ways that social media connects us all in our daily lives. Because when you open yourself up to the idea of making friends online, the possibilities for connecting are endless.
 
  Sure, many people will condemn social media for being a negative influence on our lives—but it's up to us to use social media as a force for good rather than bad.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,6 +153,18 @@ Then, wait for your request to be approved and start connecting!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-sharing-media-from-one-iphone-to-another/"><u>[Updated] Step-by-Step Sharing Media From One iPhone to Another</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/1728490088351-excel/"><u>保存直前のExcelファイルでエラーを回避するためのディスク使用率最適化方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-missteps-in-virtual-vending-identifying-scams-and-safeguarding-self/"><u>Avoid Missteps in Virtual Vending: Identifying Scams & Safeguarding Self</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-ae-titles-with-maximum-impression-for-2024/"><u>Crafting AE Titles with Maximum Impression for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-democracy-decisions-valid-banning-of-trump-short-term-strategy/"><u>Digital Democracy Decisions: Valid Banning of Trump, Short-Term Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-mobility-centric-portal-model/"><u>Facebook Unveils Mobility-Centric Portal Model</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-tecno-spark-20-proplus-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Tecno Spark 20 Pro+ to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-no-cost-memes-made-simple-our-meme-kit/"><u>In 2024, No-Cost Memes Made Simple Our Meme Kit</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-launched-by-facebook-what-you-need-to-know/"><u>Ray-Ban Stories Launched by Facebook - What You Need to Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-real-deal-on-applecareplus-does-it-add-worth/"><u>The Real Deal on AppleCare+ – Does It Add Worth?</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145296408-zucks-farming-ventures-crypto-inspired-goat-name-revealed/"><u>Zuck's Farming Ventures: Crypto-Inspired Goat Name Revealed</u></a></li>
+</ul></div>
 

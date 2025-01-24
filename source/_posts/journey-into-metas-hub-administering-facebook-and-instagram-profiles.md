@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Meta's Hub: Administering Facebook & Instagram Profiles"
-date: 2025-01-15T16:09:17.093Z
-updated: 2025-01-18T16:15:40.764Z
+date: 2025-01-21T18:04:31.336Z
+updated: 2025-01-24T17:23:33.379Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 
 ![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  It's easy to confuse the Accounts Center in the Facebook and Instagram apps with other settings, like**Account** ,**Security** ,**Notifications** , and**Privacy** . These options are specific for each app and the account you're using. The Accounts Center, however, is a central hub under Meta, the parent company of both platforms. Among the many features it offers, you can use it to[create and link Facebook and Instagram](http://www.makeuseof.com/facebook-instagram-account-center-linked-accounts/) accounts.
 
  Here's a brief look at how to access the Accounts Center on Instagram and Facebook.
@@ -37,16 +41,12 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 ![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
 ![Settings menu for Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151644.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -58,24 +58,20 @@ Here's how you can access the Accounts Center on Instagram:
 4. At the bottom of the**Settings** page tap**Accounts Center** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Finding the Accounts Center on Facebook
 
 ![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Meta Accounts Center hub with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -86,6 +82,10 @@ Here's how to access the Accounts Center on Facebook:
 3. Scroll all the way to the bottom and tap the**Accounts Center** tab.
 
  Opening the Accounts Center on both apps is relatively straightforward. After following these steps, you're ready to start testing its features.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Accounts Center Is Optional For Now
 
@@ -108,18 +108,24 @@ Here's how to access the Accounts Center on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/isrupt-unbidden-youtube-content-feeds/"><u>[New] Disrupt Unbidden YouTube Content Feeds</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevate-your-online-engagements-with-pc-and-phone-recordings/"><u>[New] Elevate Your Online Engagements with PC & Phone Recordings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-unmatched-timers-for-weddings-top-10-choices-on-phones/"><u>[New] Unmatched Timers for Weddings Top 10 Choices on Phones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-beyond-acid-the-future-of-graphic-vectors/"><u>[Updated] Beyond ACID The Future of Graphic Vectors</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ganzheitliche-anweisungen-zur-behebung-der-dvd-regionseinschrankung-auf-ihrem-player-ein-umfassender-leitfaden/"><u>Ganzheitliche Anweisungen Zur Behebung Der DVD-Regionseinschränkung Auf Ihrem Player - Ein Umfassender Leitfaden</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-x90s-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo X90S</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-streams-to-next-level-with-av1-on-youtube/"><u>In 2024, Elevate Streams to Next Level with AV1 on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essence-and-impact-of-recently-released-facebook-files/"><u>The Essence and Impact of Recently Released Facebook Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-social-media-platforms-hangs-in-balance/"><u>The Future of Social Media Platforms Hangs in Balance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-pick-unbeatable-black-friday-laptop-bargains-exclusive-offers-you-cant-miss-in-oct-24-pcmag/"><u>Top Pick: Unbeatable Black Friday Laptop Bargains - Exclusive Offers You Can't Miss in Oct '24 | PCMag</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-ambitions-deciphering-the-secrets-to-facebooks-wearable-device/"><u>Unseen Ambitions: Deciphering the Secrets to Facebook’s Wearable Device</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-up-space-5-best-video-compression-apps-for-iphone-and-ipad/"><u>Updated Free Up Space 5 Best Video Compression Apps for iPhone and iPad</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-does-the-facebook-support-interface-accomplish/"><u>What Does the Facebook Support Interface Accomplish?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-video-potential-key-tactics-for-backlink-creation/"><u>[New] 2024 Approved Unleash Video Potential Key Tactics for Backlink Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-paid-content-guide-mastering-membership-for-monetization/"><u>[New] 2024 Approved YouTube Paid Content Guide Mastering Membership for Monetization</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos/"><u>[Updated] Elevating Your Video's Visual Impact YoutubThumbnail Design on macOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-news-feed-unraveling-facebooks-truths-and-myths/"><u>Beyond the News Feed: Unraveling Facebook's Truths and Myths</u></a></li>
+<li><a href="https://win-webster.techidaily.com/como-activar-con-elegancia-el-modo-fantasma-de-uefi-en-tu-pc-con-windows-11/"><u>Cómo Activar Con Elegancia El Modo Fantasma De UEFI en Tu PC Con Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-profile-naming-and-username-systems/"><u>Demystifying Profile Naming and Username Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/enrich-networking-on-facebooks-messenger-service/"><u>Enrich Networking on Facebook's Messenger Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-is-helping-creators-make-money-through-reels/"><u>How Meta Is Helping Creators Make Money Through Reels</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-lava-blaze-curve-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Lava Blaze Curve 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-iphone-13-pro-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From iPhone 13 Pro Smoothly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-lava-yuva-2-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Lava Yuva 2 Pro Lock Screen Password</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-is-it-illegal-to-archive-your-youtube-watch-history/"><u>In 2024, Is It Illegal to Archive Your YouTube Watch History?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-introduces-enhanced-auditory-services/"><u>Social Media Giant Introduces Enhanced Auditory Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-clash-between-technology-titans-and-antitrust-edicts/"><u>The Clash Between Technology Titans and Antitrust Edicts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-conversation-are-phones-market-spies/"><u>The Silent Conversation: Are Phones Market Spies?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/top-10-iphone-voice-capture-apps-the-ultimate-list/"><u>Top 10 iPhone Voice Capture Apps The Ultimate List</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-diy-repair-dealing-with-nonfunctional-stylus-on-hp-envy-x2-touchscreen/"><u>Ultimate DIY Repair: Dealing with Nonfunctional Stylus on HP Envy X2 Touchscreen</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-hashtag-dynamics-a-closer-look-at-content-virality-on-facebook/"><u>Unraveling Hashtag Dynamics: A Closer Look at Content Virality on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-realities-seeing-the-whole-picture-in-fb-data-exposes/"><u>Unveiling Realities: Seeing the Whole Picture in FB Data Exposés</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2025-01-12T16:04:38.062Z
-updated: 2025-01-18T16:02:39.197Z
+date: 2025-01-23T21:44:21.286Z
+updated: 2025-01-24T16:58:45.870Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Hide Your Reactions Count on Facebook
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hiding the Facebook Reaction Count on Mobile
 
@@ -39,10 +39,14 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -55,7 +59,7 @@ To hide the number of reactions on your posts, follow these steps.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hiding the Reaction Count on Facebook on the Web
@@ -69,16 +73,12 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
@@ -112,24 +112,15 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-global-iptv-connectivity-solutions/"><u>[New] In 2024, Global IPTV Connectivity Solutions</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-switch-clash-top-10-intense-battles-to-play/"><u>[New] In 2024, Switch Clash Top 10 Intense Battles to Play</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/oise-reduction-for-better-video-experiences-on-youtube-for-2024/"><u>[New] Noise Reduction for Better Video Experiences on YouTube for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-sifting-through-social-media-stars-targeting-your-specific-interests/"><u>[New] Sifting Through Social Media Stars Targeting Your Specific Interests</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ultimate-guide-to-best-android-video-capture-software-5/"><u>[Updated] In 2024, Ultimate Guide to Best Android Video Capture Software #5</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-6-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-find-anything-you-want-to-know-about-instagram-video-limit/"><u>In 2024, Find Anything You Want to Know About Instagram Video Limit</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-13-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On Apple iPhone 13</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-interruption-new-rules-for-young-user-engagement/"><u>Instagram Interruption: New Rules for Young User Engagement?</u></a></li>
-<li><a href="https://facebook.techidaily.com/masterclass-on-managing-and-muting-your-fb-company-pages/"><u>Masterclass on Managing and Muting Your FB Company Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-two-factor-authentication-without-access-to-phone/"><u>Overcoming Two-Factor Authentication without Access to Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/pinpointing-the-moment-in-time-when-i-became-a-facebook-user/"><u>Pinpointing The Moment in Time – When I Became a Facebook User</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/securely-removing-the-windowsapps-folder-on-windows-11-a-step-by-step-guide/"><u>Securely Removing the WindowsApps Folder on Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-silent-enforcement-unmasking-shadowbanning/"><u>Social Media's Silent Enforcement: Unmasking Shadowbanning</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-mobile-payments-by-facebook-surpassing-traditional-apple-systems/"><u>Tailored Mobile Payments by Facebook Surpassing Traditional Apple Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-era-of-anonymous-admiration-fbig-secret-likes/"><u>The New Era of Anonymous Admiration: FB/IG Secret Likes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-friendships-storyline-on-facebook/"><u>Unlock Friendships’ Storyline on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/will-past-social-media-behavior-eternal/"><u>Will Past Social Media Behavior Eternal?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-mac-slicer-software-enhance-video-production-prowess-for-2024/"><u>[New] Best Mac Slicer Software Enhance Video Production Prowess for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-how-to-make-slow-motion-video-with-photos-app-and-online/"><u>2024 Approved How to Make Slow Motion Video with Photos App and Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-synergy-transforming-groups-on-the-platform/"><u>Channel Synergy: Transforming Groups on the Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/credibility-clash-who-wins-in-the-meta-blue-battle/"><u>Credibility Clash: Who Wins in the Meta-Blue Battle?</u></a></li>
+<li><a href="https://games-able.techidaily.com/discover-pimaxs-vivid-ventures-with-a-side-of-software-slip-ups/"><u>Discover Pimax's Vivid Ventures with a Side of Software Slip-Ups</u></a></li>
+<li><a href="https://win11.techidaily.com/discovering-the-best-of-win11s-feb-2023-update/"><u>Discovering the Best of Win11's Feb 2023 Update</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/recognizing-and-repairing-a-missing-hard-drive-connection-issue-fixes/"><u>Recognizing and Repairing a Missing Hard Drive Connection Issue [FIXES]</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-process-of-hooking-up-amazon-fire-tv-stick-to-a-projector/"><u>Step-by-Step Process of Hooking Up Amazon Fire TV Stick to a Projector</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-era-for-social-listening-at-facebook/"><u>Unveiling a New Era for Social Listening at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-enters-metas-verification-era/"><u>US Enters Meta's Verification Era</u></a></li>
 </ul></div>
 

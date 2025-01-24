@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2025-01-15T16:14:39.610Z
-updated: 2025-01-18T16:09:00.772Z
+date: 2025-01-18T22:25:43.357Z
+updated: 2025-01-24T17:34:49.562Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is an Antitrust Law?
@@ -35,16 +35,12 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
@@ -53,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -65,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -92,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -102,13 +102,13 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -143,20 +143,17 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-screenmasterreview-latest-editions-performance-insights/"><u>[New] ScreenMasterReview Latest Edition's Performance Insights</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-exploring-splitcams-recording-capabilities-and-excellence-for-2024/"><u>[Updated] Exploring SplitCam's Recording Capabilities and Excellence for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-update-easy-access-to-your-shorts/"><u>[Updated] YouTube Update Easy Access to Your Shorts</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-conquer-video-quality-with-best-3-transcoder-methods-for-zoom/"><u>2024 Approved Conquer Video Quality with Best 3 Transcoder Methods for Zoom</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-safer-online-spaces/"><u>Exploring Safer Online Spaces</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-poco-c65-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Poco C65 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/macos-x-dvd-schrumpfen-und-komprimieren-mit-dvd-shrink-perfekt-fur-apple-benutzer/"><u>MacOS X DVD Schrumpfen Und Komprimieren Mit DVD Shrink: Perfekt Für Apple Benutzer</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-during-outages-a-survival-guide/"><u>Social Networking During Outages: A Survival Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-scope-scouting-discovering-profile-and-group-links/"><u>Social Scope Scouting: Discovering Profile & Group Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-updating-fb-contacts/"><u>Step-by-Step Guide to Updating FB Contacts</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/step-by-step-infographic-for-picking-a-stellar-karaoke-number-with-professional-tips-from-top-djs/"><u>Step-by-Step Infographic for Picking a Stellar Karaoke Number with Professional Tips From Top DJs</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-facebook-extensions-use/"><u>Streamlining Your Facebook Extensions Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-disruptive-power-of-ios-145-for-facebooks-ad-business/"><u>The Disruptive Power of iOS 14.5 for Facebook's Ad Business</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-enigma-of-gone-from-facebook/"><u>The Enigma of Gone-From-Facebook</u></a></li>
-<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-15-pro-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone 15 Pro</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-camstudio-2023-screen-recorder-insights-and-reviews/"><u>[Updated] CamStudio 2023 Screen Recorder Insights & Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-your-digital-footprint-with-multiple-app-login-through-facebook/"><u>Dissecting Your Digital Footprint with Multiple App Login Through Facebook</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/easy-fixes-for-roblox-issue-overcoming-error-524-instantly/"><u>Easy Fixes for Roblox Issue: Overcoming Error 524 Instantly</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/enhanced-windows-10-streaming-the-fix/"><u>Enhanced Windows 10 Streaming - The Fix</u></a></li>
+<li><a href="https://facebook.techidaily.com/goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-14-plus-data-recovery-software-to-recover-lost-ios-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 14 Plus® Data Recovery Software to Recover Lost iOS® Data | Stellar</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-notifications-track-vanished-screenshots/"><u>Messenger Notifications: Track Vanished Screenshots</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/optimal-size-strategy-for-click-driven-titles/"><u>Optimal Size Strategy for Click-Driven Titles</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-guide-8-real-world-promotion-tools-for-videos-for-2024/"><u>The Ultimate Guide 8 Real-World Promotion Tools for Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ate-live-broadcast-guide-software-and-hardware-recommendations/"><u>Ultimate Live Broadcast Guide Software & Hardware Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-activating-the-facebook-shield/"><u>Understanding and Activating the Facebook Shield</u></a></li>
 </ul></div>
 

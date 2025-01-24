@@ -1,7 +1,7 @@
 ---
 title: Can We Trust Our Devices Not to Use Us for Profits?
-date: 2024-08-08T11:19:09.873Z
-updated: 2024-08-09T11:19:09.873Z
+date: 2025-01-21T17:25:40.294Z
+updated: 2025-01-24T16:02:48.092Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 ## Can We Trust Our Devices Not to Use Us for Profits?
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -30,9 +31,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -40,6 +38,10 @@ What is going on?
  They believe that smartphone microphones are being used to record what they say, with the information used to [better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman [reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
 
@@ -67,9 +69,6 @@ What is going on?
 
  Google reacted to this by taking action,[stating](https://www.blog.google/products/assistant/more-information-about-our-processes-safeguard-speech-data/) : "Audio snippets are not associated with user accounts." But as VRT pointed out, they don't need to be. More recently, I was brushing my teeth while reading an article about a movie when this advert appeared.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
@@ -79,8 +78,9 @@ What is going on?
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Prove If an App Is Listening to You?
 
  Could apps capture audio data using your smartphone's microphone? To find out, cybersecurity experts Ken Munro and David Lodge from Pen Test Partners developed an app. Its aim is to record what was being said in the vicinity of a phone and display it on a monitor.
@@ -91,13 +91,18 @@ What is going on?
 
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi [told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -122,9 +127,6 @@ What is going on?
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -137,14 +139,11 @@ What is going on?
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,6 +152,21 @@ What is going on?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-tiktokplusinstagram-social-media-fusion-guide/"><u>[New] TikTok+Instagram Social Media Fusion Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-prime-techniques-converting-visual-content-on-pinterest-to-mp3s/"><u>[Updated] Prime Techniques Converting Visual Content on Pinterest To MP3s</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-profile-name-vs-username-the-differences-and-what-you-should-know/"><u>Facebook Profile Name Vs. Username: The Differences and What You Should Know</u></a></li>
+<li><a href="https://extra-information.techidaily.com/masterclass-in-minimal-photoshop-alterations/"><u>Masterclass in Minimal Photoshop Alterations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/optimal-video-length-and-width-for-instagram-posts-for-2024/"><u>Optimal Video Length and Width for Instagram Posts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-alerts-on-tiktok-reddit-your-activity-ensures-usability/"><u>Privacy Alerts on TikTok, Reddit: Your Activity Ensures Usability</u></a></li>
+<li><a href="https://video-capture.techidaily.com/speak-and-record-iphone-voice-memo-basics/"><u>Speak and Record IPhone Voice Memo Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/to-embrace-or-refrain-from-meta-ais-social-media-journey/"><u>To Embrace or Refrain From Meta AI's Social Media Journey</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-9-entry-level-courses-in-artificial-intelligence-tool-utilization/"><u>Top 9 Entry-Level Courses in Artificial Intelligence Tool Utilization</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-top-insights-from-facebook-documents/"><u>Unveiling Top Insights From Facebook Documents</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unbiased-comparison-sony-vegas-vs-adobe-premiere-pro-for-video-creators-for-2024/"><u>Updated Unbiased Comparison Sony Vegas vs Adobe Premiere Pro for Video Creators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-what-you-liked-no-more-unveiling-yt-deletions-online/"><u>Watch What You Liked No More Unveiling YT Deletions Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-behind-metas-choice-to-wait-until-2023-for-default-encryption/"><u>What's Behind Meta's Choice to Wait Until 2023 for Default Encryption</u></a></li>
+<li><a href="https://win-studio.techidaily.com/yl-software-tutorial-step-by-step-instructions-for-removing-applications/"><u>YL Software Tutorial: Step-by-Step Instructions for Removing Applications</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Reclaim Your Feed, Say No to Politics
-date: 2025-01-15T16:11:48.558Z
-updated: 2025-01-18T16:07:10.459Z
+date: 2025-01-19T16:35:51.422Z
+updated: 2025-01-24T22:46:19.168Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
@@ -40,22 +40,22 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
@@ -68,13 +68,13 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Remove Your Political Views From Your Profile
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use a Browser Extension
@@ -117,16 +117,22 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/parking-interest-with-the-top-8-most-effective-youtube-thumbnails-for-2024/"><u>[New] Sparking Interest with the Top 8 Most Effective YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-smartscreen-capture-v11-professional/"><u>[Updated] 2024 Approved SmartScreen Capture V11 Professional</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-24-hour-heavyweights-top-10-most-watched-on-yt/"><u>[Updated] In 2024, 24 Hour Heavyweights Top 10 Most Watched on YT</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streamline-your-video-queue-step-by-step-guide-to-a-youtube-saved-playlist/"><u>[Updated] In 2024, Streamline Your Video Queue Step-By-Step Guide to a YouTube Saved Playlist</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/access-your-screen-star-downloadable-rights/"><u>Access Your Screen Star Downloadable Rights</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721460064303-cure-your-iphones-application-malfunctions-with-these-10-tips/"><u>Cure Your iPhone's Application Malfunctions with These 10 Tips</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/from-idea-to-execution-reviewing-spring-screenrecorder-for-2024/"><u>From Idea to Execution - Reviewing Spring ScreenRecorder for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-delete-facebook-notifications/"><u>How to Delete Facebook Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-updated-feeds/"><u>Navigating Through Facebook's Updated Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviewing-friendships-a-facebook-guide/"><u>Reviewing Friendships: A Facebook Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-under-scrutiny-but-facebook-sees-worst-impact/"><u>Tech Titans Under Scrutiny, but Facebook Sees Worst Impact</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-finish-to-start-the-art-of-negative-playback-on-instagram-for-2024/"><u>[New] From Finish to Start The Art of Negative-Playback on Instagram for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-unlocking-twitters-potential-with-live-videos-for-2024/"><u>[New] Unlocking Twitter's Potential with Live Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-perfecting-your-iphone-video-shortening-and-altering-size/"><u>[Updated] 2024 Approved Perfecting Your iPhone Video Shortening and Altering Size</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-revolutionize-virtuality-top-7-devices-for-success/"><u>[Updated] 2024 Approved Revolutionize Virtuality - Top 7 Devices for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-privacy-iphone-users-growing-aversion/"><u>App Privacy: IPhone Users' Growing Aversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/converting-followers-to-professional-clients-facebooks-role-unveiled/"><u>Converting Followers to Professional Clients: Facebook's Role Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-into-dragons-lair-a-full-review-of-the-remastered-spyro-trilogys-epic-value-proposition/"><u>Diving Into Dragon's Lair: A Full Review of the Remastered Spyro Trilogy's Epic Value Proposition</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-tecno-spark-10c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hassle-free-installation-amd-ryzen-5-2600-driver-downloads-at-lightning-speed/"><u>Hassle-Free Installation: AMD Ryzen 5 2600 Driver Downloads at Lightning Speed</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-workings-of-facebooks-content-filter/"><u>Inside the Workings of Facebook's Content Filter</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-analysis-facebooks-organizational-framework/"><u>Insightful Analysis: Facebook's Organizational Framework</u></a></li>
+<li><a href="https://games-able.techidaily.com/leading-ddr5-motherboards-2024/"><u>Leading DDR5 Motherboards 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-lifes-priorities-by-curbing-excessive-facebook-visits/"><u>Optimizing Life's Priorities by Curbing Excessive Facebook Visits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revolutionary-duo-facebook-meets-spotify-for-project-boombox/"><u>The Revolutionary Duo: Facebook Meets Spotify for Project Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-personal-brand-reformation-on-social-media/"><u>Unveiling the Secrets to Personal Brand Reformation on Social Media</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-the-power-of-youtube-live-selling-unlock-your-sales-potential/"><u>Updated 2024 Approved The Power of YouTube Live Selling Unlock Your Sales Potential</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-does-a-new-fb-icon-signify-change/"><u>When Does a New Fb Icon Signify Change?</u></a></li>
 </ul></div>
 

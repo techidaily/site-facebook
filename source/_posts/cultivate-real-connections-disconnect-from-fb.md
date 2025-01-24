@@ -1,7 +1,7 @@
 ---
 title: Cultivate Real Connections, Disconnect From FB
-date: 2024-08-08T11:21:33.710Z
-updated: 2024-08-09T11:21:33.710Z
+date: 2025-01-19T23:05:14.931Z
+updated: 2025-01-24T20:08:02.534Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,18 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
  In addition, the following things happen when you deactivate your Facebook account...
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### No Visibility
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
  Once your account has been deactivated, the platform does not let others [tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### No Notifications
 
@@ -46,22 +51,24 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 
  You can even opt out of or adjust receiving email notifications for a deactivated account. This gives you time to relax and relieves the stress of opening the app every now and then.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### Adjusted Messages and Comments
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
 
  Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can [deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Deactivate Your Facebook Account
 
  Taking time off from Facebook seems like an effective stress reliever, right? But you should follow the proper steps. Here is how you can deactivate your Facebook account through the mobile app and desktop:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Via Mobile
 
  If you are using a mobile, follow this method to deactivate your Facebook account.
@@ -71,24 +78,13 @@ thumbnail: https://thmb.techidaily.com/c9a47d41b34d7090487ad8a1c43825738349119fb
 ![Personal and account information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-and-account-information.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Deactivation and deletion of Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account.JPG)
 
 ![Deactivate your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-your-Facebook-account.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Reason for deactivating Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account.JPG)
 
 Close
@@ -110,14 +106,6 @@ Close
 
 **Download:** Facebook for [iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ### Via Desktop
 
  To deactivate Facebook using a browser, open [Facebook](https://www.facebook.com/) and log in to your account.
@@ -127,31 +115,30 @@ Close
 3. Click**Settings & Privacy** to open a new menu and select**Settings** .  
 ![Facebook Settings and Privacy desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Settings-and-Privacy-desktop.jpg)
 4. From the menu on your left, navigate to**Privacy** and click**Your Facebook Information** . This section contains all the settings to delete the account or download your information.  
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Personal Account Information of Facebook on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-Account-Information-of-Facebook-on-desktop.jpg)
 5. Scroll down to**Deactivation and Deletion** and press**View** .
 
 1. In this section, you can deactivate or delete your account. Select the**Deactivate Account** option, and tap**Continue to Account Deactivation** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Deactivation and deletion of Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account-desktop.jpg)
 2. Enter your password and tap**Continue** .
 3. Choose a reason why you want to deactivate your account. Facebook also offers the option to**Transfer Your Information** and**Reason for Leaving** .  
 ![Reason for deactivating Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account-desktop.jpg)
 4. Scroll down and check to**Opt out of receiving future emails from Facebook** to block notifications.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Select**Deactivate** , and you’ll be logged out of Facebook.  
 ![Choose to deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Choose-to-deactivate-account.jpg)
 
  You can use a similar method to deactivate Facebook using a browser on a mobile phone or a Chromebook.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## How to Reactivate Your Facebook Account
 
  After a while, you might feel relaxed enough to resume your activities on Facebook. Users who deactivate their Facebook account have the option to reactivate it.
@@ -168,14 +155,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  There is no limit to how many times you deactivate your account. Simply set your desired account reactivation time, or come back whenever you want.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,6 +168,16 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-illusions-manipulating-past-and-future-events/"><u>[New] Illusions Manipulating Past & Future Events</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-safeguard-creativity-validating-content-for-tiktok-posting/"><u>[Updated] Safeguard Creativity Validating Content for TikTok Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-detect-and-dodge-deceptive-social-media-schemes/"><u>How to Detect and Dodge Deceptive Social Media Schemes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-ultimate-guide-best-7-color-grades-in-editing/"><u>In 2024, The Ultimate Guide Best 7 Color Grades in Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-dominance-a-chilling-reality/"><u>Meta's Dominance: A Chilling Reality</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-5-best-free-tools-to-merge-mpeg-videos/"><u>Updated In 2024, 5 Best Free Tools to Merge MPEG Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-network-offers-better-anonymity-on-rift-2/"><u>Which Social Network Offers Better Anonymity on Rift 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-skips-joining-facebook-in-metaverse-journey/"><u>Why Apple Skips Joining Facebook in Metaverse Journey</u></a></li>
+</ul></div>
 

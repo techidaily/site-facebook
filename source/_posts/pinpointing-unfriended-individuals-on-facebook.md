@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2025-01-15T16:00:21.296Z
-updated: 2025-01-18T16:15:43.341Z
+date: 2025-01-20T20:21:57.659Z
+updated: 2025-01-24T23:31:27.521Z
 tags:
   - facebook
 categories:
@@ -25,24 +25,20 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
-![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
 Close
 
@@ -56,16 +52,12 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -77,6 +69,10 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -84,6 +80,10 @@ Close
  For example, if they try to search for your profile on Facebook and can't find it, that's a pretty good indication you've blocked them. Additionally, they will no longer be able to see any of your posts or profile information. They'll also not be able to tag you in posts or send you messages on Facebook.
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
 
@@ -104,16 +104,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/xpanding-your-audience-stream-successfully-across-30plus-outlets-for-2024/"><u>[New] Expanding Your Audience Stream Successfully Across 30+ Outlets for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-art-of-disabling-youtube-shorts/"><u>[New] In 2024, Mastering the Art of Disabling YouTube Shorts</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-cutting-edge-techniques-making-mac-videos-for-snapchat/"><u>[Updated] 2024 Approved Cutting-Edge Techniques Making Mac Videos for Snapchat</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-visual-vividity-techniques-in-hue-adjustment/"><u>[Updated] In 2024, Visual Vividity Techniques in Hue Adjustment</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/avchd-on-samsung-galaxy-z-fold-5-convert-mts-for-samsung-galaxy-z-fold-5-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD on Samsung Galaxy Z Fold 5-convert MTS for Samsung Galaxy Z Fold 5</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-x90s-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo X90S Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-visual-virtuosos-popular-ig-effects/"><u>In 2024, Visual Virtuosos Popular IG Effects</u></a></li>
-<li><a href="https://facebook.techidaily.com/profile-versus-screen-name-dissecting-social-media-labels/"><u>Profile Versus Screen Name: Dissecting Social Media Labels</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-synchronized-symphony-facebook-and-spotifys-projected-boombox-masterpiece/"><u>The Synchronized Symphony: Facebook & Spotify's Projected Boombox Masterpiece</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-picks-facebook-portals-reviewed/"><u>Top Picks: Facebook Portals Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-life-heres-how-to-leave-facebook-behind/"><u>Transform Your Life – Here’s How to Leave Facebook Behind</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-cinematic-dialogue-assembler/"><u>[New] In 2024, Cinematic Dialogue Assembler</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-efficient-screen-capture-strategies-for-effective-facetime-recording/"><u>[Updated] In 2024, Efficient Screen-Capture Strategies for Effective FaceTime Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-guide-to-swiftly-acquire-and-save-youtube-watch-lists/"><u>[Updated] In 2024, Guide to Swiftly Acquire and Save YouTube Watch Lists</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-video-spin-a-comprehensive-2023-users-guide-to-youtube-angles/"><u>[Updated] In 2024, Mastering Video Spin A Comprehensive 2023 User's Guide to YouTube Angles</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-ride-on-others-tiktok-waves-as-a-guest/"><u>2024 Approved How to Ride on Others' TikTok Waves as a Guest</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-iphone-se-2022-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock iPhone SE (2022) to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-red-flags-how-to-disable-pages-on-facebook/"><u>Eliminating Red Flags: How to Disable Pages on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-v27-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo V27</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-from-your-apple-iphone-15-plus-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status From Your Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-user-engagement-facebook-vs-apple-with-custom-linkages/"><u>Revolutionizing User Engagement: Facebook Vs. Apple with Custom Linkages</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-symphony-revisited-the-top-4-digital-renaissance-themes/"><u>Social Symphony Revisited: The Top 4 Digital Renaissance Themes</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-grounded-a-guide-to-understanding-stablecoin-basics/"><u>Staying Grounded: A Guide to Understanding Stablecoin Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-checklist-for-producing-high-quality-facebook-reels/"><u>The Ultimate Checklist for Producing High-Quality Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/transform-viewership-seo-for-the-newbie-on-youtube-for-2024/"><u>Transform Viewership SEO for the Newbie on YouTube for 2024</u></a></li>
 </ul></div>
 

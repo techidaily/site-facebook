@@ -1,7 +1,7 @@
 ---
 title: "Break Free: Delete, Disconnect & Discover"
-date: 2024-08-08T11:21:49.308Z
-updated: 2024-08-09T11:21:49.308Z
+date: 2025-01-17T18:46:38.034Z
+updated: 2025-01-24T23:14:01.339Z
 tags:
   - facebook
 categories:
@@ -21,14 +21,8 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  Here's how you can block political and other annoying content on your Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook's Timeline Can Get Swamped With Politics
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
@@ -43,9 +37,17 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  We've talked about [how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -58,14 +60,16 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Remove Your Political Views From Your Profile
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -75,15 +79,13 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Use a Browser Extension
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You can use a browser extension called [FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
@@ -95,14 +97,11 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  With these tools at your disposal, there's very little reason to get annoyed at Facebook ever again. Facebook doesn't have to be irritating—it can be a legitimate way to keep up with friends and talk about interesting things, without getting bogged down in toxic rants and attention-seeking behavior.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,6 +110,24 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-look-at-comments-on-youtube/"><u>[Updated] How to Look at Comments on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-transform-your-instagram-reels-into-high-quality-mp4-files-anywhere-for-2024/"><u>[Updated] Transform Your Instagram Reels Into High-Quality MP4 Files Anywhere for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/1-comprehensive-guide-syncing-your-apple-watch-data-with-iphone-icloud-and-pc/"><u>1. Comprehensive Guide: Syncing Your Apple Watch Data with iPhone, iCloud & PC</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-soft-ending-sounds-in-premiere-pro/"><u>2024 Approved The Art of Soft-Ending Sounds in Premiere Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-meta-business-tools-that-can-help-you-succeed-in-your-business/"><u>4 Meta Business Tools That Can Help You Succeed in Your Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-taking-leisinasse-using-facebook-timer/"><u>Digital Harmony: Taking Leisinasse Using Facebook Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreetly-indulge-hidden-interactions-online/"><u>Discreetly Indulge: Hidden Interactions Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-video-previews-a-compreayer-approach-for-youtube/"><u>Elevating Video Previews A Compreayer Approach for YouTube</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/from-silicon-to-software-comprehensive-guides-by-toms-hardware-expert/"><u>From Silicon to Software: Comprehensive Guides by Tom’s Hardware Expert</u></a></li>
+<li><a href="https://facebook.techidaily.com/impact-on-safety-do-user-records-removal-influence-facebook-privacy/"><u>Impact on Safety: Do User Records Removal Influence Facebook Privacy?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-speeding-up-periscope-live-broadcasting-tips/"><u>In 2024, Speeding Up Periscope Live Broadcasting Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/modern-relationship-management-why-sticking-to-facebook-matters/"><u>Modern Relationship Management: Why Sticking to Facebook Matters</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/no-more-mute-life-easily-correcting-skype-noise-malfunctions/"><u>No More Mute Life: Easily Correcting Skype Noise Malfunctions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-a-solution-does-facebook-have-one-against-tiktok/"><u>Reeling in a Solution: Does Facebook Have One Against TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-teardown-customizing-the-deletion-of-your-facebook-profile/"><u>Tailored Teardown: Customizing the Deletion of Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/thwarting-facebook-tracking-essential-steps-explored/"><u>Thwarting Facebook Tracking: Essential Steps Explored</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-mirage-in-machine-learning-spotting-pretend-predictions/"><u>Unveiling the Mirage in Machine Learning: Spotting Pretend Predictions</u></a></li>
+</ul></div>
 

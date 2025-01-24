@@ -1,7 +1,7 @@
 ---
 title: Breaking Down the Process of Checking Blocked Users
-date: 2024-08-08T11:22:13.173Z
-updated: 2024-08-09T11:22:13.173Z
+date: 2025-01-17T17:30:46.199Z
+updated: 2025-01-24T21:40:19.884Z
 tags:
   - facebook
 categories:
@@ -19,28 +19,21 @@ thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f1
 
  That's where this guide comes in. In this article, we will show you how to view the list of people you have blocked on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -55,14 +48,16 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -73,9 +68,6 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by [refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are [ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -85,20 +77,18 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Checking Your Facebook Blocked List
 
  It's fairly easy to view your blocked list on both the mobile app and web browser. It's important to periodically check this list to make sure you're not blocking people accidentally or by mistake. If you do find someone who shouldn't be there, simply unblock them with a click of a button. And if you want to re-establish a connection, go ahead and send them a friend request.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,6 +97,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-how-to-check-your-videos-legal-status-before-tiktok-upload/"><u>2024 Approved How to Check Your Video's Legal Status Before TikTok Upload</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/excellent-choices-of-podcast-listening-tools-on-apples-mobile-platform/"><u>Excellent Choices of Podcast Listening Tools on Apple's Mobile Platform</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-the-future-of-immersion-with-sonys-rumored-virtual-reality-headset-price-and-specs-inside/"><u>Exploring the Future of Immersion with Sony's Rumored Virtual Reality Headset - Price and Specs Inside!</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-your-gone-facebook-comments-back/"><u>Getting Your Gone Facebook Comments Back</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-amend-your-birthday-details-on-facebook/"><u>How to Amend Your Birthday Details on Facebook</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-mix-fold-3-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Mix Fold 3 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-confidentiality-a-guide-to-social-media-caution/"><u>Maintaining Confidentiality: A Guide to Social Media Caution</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-space-capturing-videos-on-your-iphone-15-pro-the-ultimate-guide-and-hidden-technique-revealed/"><u>Mastering Space-Capturing Videos on Your iPhone 15 Pro: The Ultimate Guide and Hidden Technique Revealed</u></a></li>
+<li><a href="https://games-able.techidaily.com/mwc-breakthroughs-celebrated-by-makeuseof/"><u>MWC Breakthroughs: Celebrated by MakeUseOf</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-internet-use-less-facebook-more-action/"><u>Navigating Internet Use: Less Facebook, More Action</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-through-intellectual-property-laws-for-ai-produced-artwork-who-gains-the-recognition/"><u>Navigating Through Intellectual Property Laws for AI-Produced Artwork: Who Gains the Recognition?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-sets-tough-limits-against-information-lies/"><u>Social Network Sets Tough Limits Against Information Lies</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-spreading-your-message-broadly-on-fb/"><u>Strategies for Spreading Your Message Broadly on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-trap-of-convenience-your-data-at-stake/"><u>The Trap of Convenience: Your Data at Stake</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/17241260693471-toms-tech-insights-in-depth-reviews-and-guides/"><u>Tom's Tech Insights: In-Depth Reviews & Guides</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-techniques-to-correct-corrupted-files-on-your-windows-computer/"><u>Troubleshooting Techniques to Correct Corrupted Files on Your Windows Computer</u></a></li>
+</ul></div>
 

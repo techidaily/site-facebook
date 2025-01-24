@@ -1,7 +1,7 @@
 ---
 title: Tactics to Decrease Fb Reel Viewing Frequency
-date: 2025-01-14T16:25:14.670Z
-updated: 2025-01-18T16:01:32.229Z
+date: 2025-01-23T20:04:38.802Z
+updated: 2025-01-24T18:00:59.712Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Use Facebook Web
 
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
@@ -36,16 +40,12 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
@@ -79,7 +79,7 @@ Close
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -96,22 +96,18 @@ Close
 
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## These Are Your Only Good Options
@@ -119,6 +115,10 @@ Close
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Working Around Facebook Reels
 
@@ -139,20 +139,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-asgard-unleashed-echoes-of-ragnarok/"><u>[New] In 2024, Asgard Unleashed Echoes of Ragnarök</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-stardews-successors-top-10-farming-sim-picks/"><u>[Updated] Stardew's Successors Top 10 Farming Sim Picks</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-2024s-android-in-the-cloud-innovators/"><u>[Updated] Top 2024'S Android in the Cloud Innovators</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/gagmaster-start-crafting-fun-videos-today/"><u>GagMaster Start Crafting Fun Videos Today</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/secure-your-hotmail-emails-3-methods-for-external-hard-drive-backup/"><u>Secure Your Hotmail Emails: 3 Methods for External Hard Drive Backup</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-exploration-learn-more-through-messenger-games/"><u>Social Exploration: Learn More Through Messenger Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-strategies-facebooks-8-keys-to-project-success/"><u>Social Networking Strategies: Facebook's 8 Keys to Project Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/techs-six-most-vocal-and-contentious-figures/"><u>Tech's Six Most Vocal and Contentious Figures</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pivotal-figures-in-techs-great-divide/"><u>The Pivotal Figures in Tech's Great Divide</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-potential-of-meta-ai-on-instagramfacebook-invitation/"><u>The Potential of Meta AI on Instagram/Facebook Invitation</u></a></li>
-<li><a href="https://games-able.techidaily.com/unique-curve-design-balancing-thermal-management-and-performance/"><u>Unique Curve Design: Balancing Thermal Management and Performance</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-the-mystery-an-in-depth-guide-to-understanding-ai-black-boxes/"><u>Unveiling the Mystery: An In-Depth Guide to Understanding AI Black Boxes</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-is-killing-facebooks-facial-recognition-system/"><u>Why Meta Is Killing Facebook's Facial Recognition System</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-dissective-review-of-sharex-criticism-and-substitutes/"><u>[New] In 2024, Dissective Review of ShareX Criticism & Substitutes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-gear-checklist-for-youtube-success-for-2024/"><u>[Updated] Essential Gear Checklist for YouTube Success for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/assessing-igtv-content-performance-levels-for-2024/"><u>Assessing IGTV Content Performance Levels for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-oppo-a58-4g-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Oppo A58 4G</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-privacy-tips-shun-these-threatening-apps/"><u>Essential Privacy Tips: Shun These Threatening Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-is-the-upsurge-over/"><u>Facebook's Engagement: Is the Upsurge Over?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-effective-techniques-for-screen-display-on-google-meet/"><u>In 2024, Effective Techniques for Screen Display on Google Meet</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/quick-guide-bypassing-lg-dvd-player-regional-locks-effortlessly/"><u>Quick Guide: Bypassing LG DVD Player Regional Locks Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-social-facebooks-portable-portal-gone/"><u>Revolutionizing Social: Facebook's Portable Portal Gone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-latest-positive-developments-at-southwest-airlines-and-why-they-dont-benefit-billionaires-like-bill-gates-featured-on-zdnet/"><u>The Latest Positive Developments at Southwest Airlines and Why They Don't Benefit Billionaires Like Bill Gates | Featured on ZDNET</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-truth-facebook-data-reports-milder-impact/"><u>Unveiling Truth: Facebook Data Reports Milder Impact</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/visual-studio-code-wiederherstellung-von-geloschten-dateien-die-nicht-im-papierkorb-waren/"><u>Visual Studio Code: Wiederherstellung Von Gelöschten Dateien, Die Nicht Im Papierkorb Waren</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-neighborhoods-and-who-can-use-it/"><u>What Is Facebook Neighborhoods and Who Can Use It?</u></a></li>
 </ul></div>
 

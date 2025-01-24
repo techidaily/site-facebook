@@ -1,7 +1,7 @@
 ---
 title: Carrying On Without Carolyn, Facebook's Ad Head
-date: 2024-08-08T11:20:08.304Z
-updated: 2024-08-09T11:20:08.304Z
+date: 2025-01-21T16:47:34.703Z
+updated: 2025-01-24T22:33:36.030Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Loses Its Top Ad Executive
 
  Carolyn Everson, now former vice president of Facebook's Global Business Group, has [posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
@@ -30,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
  "I am extremely proud of what we set out to accomplish but way more proud of my team and the support we showed each other, especially in difficult times," Everson writes. "I am very much looking forward to starting a new chapter."
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
@@ -50,14 +52,16 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
 
@@ -65,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
 
  It's a role with a lot of responsibilities, and thus, a lot of stress. We'll have to wait and see whether this'll cause any major changes to the company's operations.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,6 +82,26 @@ thumbnail: https://thmb.techidaily.com/e35da50e74d4ad42a2d4ca6cbb01ed72157240229
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-brushstrokes-breakthrough-top-10-mac-drawers-at-no-cost/"><u>[New] Brushstrokes Breakthrough Top 10 Mac Drawers at No Cost</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-visual-markers-guide-customizing-instagram-photo-watermarks/"><u>[Updated] 2024 Approved The Visual Marker's Guide Customizing Instagram Photo Watermarks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-a-list-makeup-tutorials-who-to-watch-in-2024/"><u>[Updated] A-List Makeup Tutorials Who to Watch , In 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-inside-the-innovative-world-of-intova-x/"><u>[Updated] Inside the Innovative World of Intova X</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-connect-and-converse-advanced-techniques-for-facebook-live-screens/"><u>2024 Approved Connect and Converse Advanced Techniques for Facebook Live Screens</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tiktok-number-modification-easy-to-follow-steps/"><u>2024 Approved TikTok Number Modification Easy to Follow Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-metaais-edge-in-ai-dialogue-arena/"><u>Evaluating MetaAI's Edge in AI Dialogue Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-redefine-phoneemail-on-facebook/"><u>How to Redefine Phone/Email on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/infinite-pathways-chronicling-every-click-like-share-in-your-facebook-story/"><u>Infinite Pathways: Chronicling Every Click, Like, Share in Your Facebook Story</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/leverage-technology-for-business-excellence-via-apps/"><u>Leverage Technology for Business Excellence via Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/pre-deletion-self-assessment-are-you-ready-for-an-unplugged-life/"><u>Pre-Deletion Self-Assessment: Are You Ready for an Unplugged Life?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ringtune-guide-downloading-and-cutting-tamil-melodies/"><u>RingTune Guide Downloading and Cutting Tamil Melodies</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-unveiled-delete-your-social-media-narrative/"><u>Secrets Unveiled: Delete Your Social Media Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-how-hashtags-drive-traffic-on-facebook/"><u>Social Media Savvy: How #Hashtags Drive Traffic on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unsung-rules-of-social-networking-keep-your-info-to-yourself/"><u>The Unsung Rules of Social Networking: Keep Your Info to Yourself</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/transform-your-footage-effective-strategies-for-cropping-and-export-on-instagram-for-2024/"><u>Transform Your Footage Effective Strategies for Cropping & Export on Instagram for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-potential-with-a-company-profile-on-facebook-top-8-insights/"><u>Unlocking Brand Potential with a Company Profile on Facebook - Top 8 Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-hidden-voices-fb-groups-edition/"><u>Unmasking Hidden Voices: FB Groups Edition</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-honor-play-40c-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Honor Play 40C | Dr.fone</u></a></li>
+</ul></div>
 

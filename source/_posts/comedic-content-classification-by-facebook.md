@@ -1,7 +1,7 @@
 ---
 title: Comedic Content Classification by Facebook
-date: 2024-08-08T11:21:09.709Z
-updated: 2024-08-09T11:21:09.709Z
+date: 2025-01-22T18:19:50.615Z
+updated: 2025-01-24T20:30:56.905Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
  Satire is social commentary. It's the use of humor, ridicule, and wit to point out the vices, follies, and shortcomings of people and society. But how does Facebook define the genre, and does it have a place on the platform?
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Will Soon Update Its Community Standards
 
  In response to a recommendation from its Oversight Board, Facebook is updating its Community Standards to better explain what the it considers to be satirical content in the first place.
@@ -30,11 +31,11 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
 
 > Given the context-specific nature of satire, we are not immediately able to scale this kind of assessment or additional consultation to our content moderators. We need time to assess the potential tradeoffs (...), and \[there will be\] potentially slower review times among our content moderators.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![off-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/09/off-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This update comes after the Oversight Board challenged Facebook's decision to remove a user comment that referred to the Turkish government with the ["Daily Struggle" meme](https://knowyourmeme.com/memes/daily-struggle) . Here is the board's description of the comment in question:
 
@@ -45,8 +46,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Related: [What Is Facebook's Oversight Board and What Does It Do?](https://www.makeuseof.com/what-is-facebook-oversight-board/)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Satire a Dying Art?
 
  As the current generation of young people works to become more inclusive of and privy to the many cultures of the world, there is much discussion of whether political correctness is "killing" satire, and even comedy in general.
@@ -57,14 +59,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  You can read Facebook's full post on the upcoming changes on the [Transparency Center](https://transparency.fb.com/oversight/oversight-board-cases/comment-related-to-armenian-people-and-the-armenian-genocide/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,6 +72,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-acquiring-safe-gratis-vlc-media-player-on-macos-systems-for-2024/"><u>[New] Acquiring Safe, Gratis VLC Media Player on macOS Systems for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-from-basic-recording-to-masterpiece-your-webcam-guide-for-2024/"><u>[New] From Basic Recording to Masterpiece Your WebCam Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-favorite-frames-socials-1-8-vids/"><u>[New] In 2024, Favorite Frames Social's #1-#8 Vids</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-clear-video-soundtracks-free-vs-licensed-software-guide-for-2024/"><u>[Updated] Clear Video Soundtracks Free Vs. Licensed Software Guide for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlocking-full-capabilities-in-macs-preview-software/"><u>[Updated] Unlocking Full Capabilities in Mac's Preview Software</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-nokia-105-classic-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-tour-of-metas-digital-command-center/"><u>A Comprehensive Tour of Meta's Digital Command Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-rising-trends-causing-a-drop-in-facebooks-user-count/"><u>Four Rising Trends Causing a Drop in Facebook's User Count</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimized-lights-optimal-drives-the-best-upgrades/"><u>Optimized Lights, Optimal Drives: The Best Upgrades</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-pics-and-popularity-the-image-based-connection/"><u>Profile Pics & Popularity: The Image-Based Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-on-confirming-facebooks-online-presence/"><u>Quick Tips on Confirming Facebook’s Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-those-who-youve-shunned-on-facebook/"><u>Revisiting Those Who You’ve Shunned on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-the-digital-space-how-facebook-will-assess-news-feeds/"><u>Tailoring the Digital Space: How Facebook Will Assess News Feeds</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2025-01-16T16:03:15.010Z
-updated: 2025-01-18T16:03:13.540Z
+date: 2025-01-19T21:26:44.176Z
+updated: 2025-01-24T20:00:50.556Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Launches New Admin Tools to Moderate Groups
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -83,20 +83,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-expert-selections-top-ios-emulators-for-playstation-2-games/"><u>[New] In 2024, Expert Selections Top IOS Emulators for PlayStation 2 Games</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-from-raw-footage-to-riveting-content-the-ultimate-guide-to-yt-video-edits/"><u>[New] In 2024, From Raw Footage to Riveting Content The Ultimate Guide to YT Video Edits</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-tackling-video-upload-snags-your-pathway-to-success-on-fb-for-2024/"><u>[Updated] Tackling Video Upload Snags Your Pathway to Success on Fb for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/comprehensive-razer-driver-update-tutorial-for-the-blackwidow-series/"><u>Comprehensive Razer Driver Update Tutorial for the BlackWidow Series</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-guide-obtaining-and-installing-the-epson-v600-printer-driver-software/"><u>Easy Guide: Obtaining & Installing the Epson V600 Printer Driver Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-zero-to-hero-in-online-communities/"><u>From Zero to Hero in Online Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/outsmart-the-obfuscators-spotting-fake-profiles-with-precision/"><u>Outsmart the Obfuscators: Spotting Fake Profiles with Precision</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-mastery-for-career-growth-and-success/"><u>Social Media Mastery for Career Growth and Success</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-issue-of-defective-usb-ports-in-windows-11-systems/"><u>Solving the Issue of Defective USB Ports in Windows 11 Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/sweep-away-stored-views-delete-fb-watch-trails/"><u>Sweep Away Stored Views: Delete FB Watch Trails</u></a></li>
-<li><a href="https://games-able.techidaily.com/swiftly-swapping-steam-deck-storage-cloning-made-simple/"><u>Swiftly Swapping Steam Deck Storage: Cloning Made Simple</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-overestimated-world-of-facebook-statistics/"><u>The Overestimated World of Facebook Statistics</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-most-watched-videos-on-facebook-today/"><u>Uncover Most Watched Videos on Facebook Today</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/1723016690091-what-to-do-if-your-nvidia-component-is-disconnected-discover-fixes-here/"><u>What To Do If Your Nvidia Component Is Disconnected? Discover Fixes Here</u></a></li>
-<li><a href="https://techidaily.com/will-redmi-12-5g-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Redmi 12 5G play AVCHD mts files?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-epic-tales-of-filmmaking-8-distinct-categories/"><u>[Updated] 2024 Approved Epic Tales of Filmmaking 8 Distinct Categories</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-full-disclosure-on-the-t5-cameras-action-features/"><u>[Updated] 2024 Approved Full Disclosure on the T5 Camera's Action Features</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premium-winpodcast-solutions-roundup/"><u>2024 Approved Premium WinPodcast Solutions Roundup</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-effective-cost-saving-methods-for-fb-post-timing-optimization/"><u>5 Effective, Cost-Saving Methods for FB Post Timing Optimization</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/dialogue-design-dexterity-constructing-custom-ai/"><u>Dialogue Design Dexterity: Constructing Custom AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-subtle-shifts-leading-to-user-decline-on-fb/"><u>Exploring the Subtle Shifts Leading to User Decline on FB</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-apple-iphone-13-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On Apple iPhone 13 in the Best Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-control-removing-browsing-history-on-facebook/"><u>Privacy Control: Removing Browsing History on Facebook</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/securing-your-emails-with-two-effective-methods-on-windows-11/"><u>Securing Your Emails with Two Effective Methods on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-account-the-friendly-facebook-fixerup/"><u>Unlock Your Account - The Friendly Facebook Fixerup</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-mystery-why-users-are-fading-away-on-fb/"><u>Unraveling the Mystery: Why Users Are Fading Away on FB</u></a></li>
 </ul></div>
 

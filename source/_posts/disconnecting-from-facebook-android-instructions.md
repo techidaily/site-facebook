@@ -1,7 +1,7 @@
 ---
 title: Disconnecting From Facebook (Android) Instructions
-date: 2024-07-29T07:34:42.990Z
-updated: 2024-07-30T07:34:42.990Z
+date: 2025-01-23T18:00:42.364Z
+updated: 2025-01-24T18:16:50.036Z
 tags:
   - facebook
 categories:
@@ -42,21 +42,27 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 3. Next, tap**Settings** and scroll down to the**Permissions** section.
 4. Here, tap**Apps and websites** to see all the services connected to your account.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Android menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Android-menu-options.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Settings and Privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Settings-Android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Permissions section in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Permissions-settings.jpg)
 
 Close
 
  Next, you should add an email and a password as a login option to each of these connected services to avoid losing access to your accounts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete Your Facebook Account on Mobile
 
@@ -67,15 +73,13 @@ Close
 3. Under the**Account** section, select**Personal and account information** .
 4. Next, tap **Account ownership and control > Deactivation and deletion** .
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![Facebook Settings and privacy page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-settings-and-privacy-page-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Personal account information page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Personal-account-information-facebook-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Account deactivation and deletion options on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/account-ownership-and-control-facebook.jpg)
 
@@ -88,16 +92,10 @@ Close
 3. The account deletion page will show you what you stand to lose if you delete your account. Read through to ensure you're okay with that, then tap**Delete Account** .
 4. Enter your Facebook password and select**Continue > Delete Account** to finish.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![Facebook account deletion and deactivation page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Delete-facebook-account-selected-android.jpg)
 
 ![Account deletion page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-account-deletion-page-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Facebook account deletion confirmation on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-android-account-deletion-confirmation.jpg)
 
 Close
@@ -108,9 +106,6 @@ Close
 
  Once you've deleted your Facebook account, the next step is to uninstall the app. Here's a step-by-step guide on[how to remove unwanted Android apps](https://www.makeuseof.com/tag/remove-unwanted-apps-android-device/) .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deactivate Your Facebook Account on Android
 
  If the risk that comes with deleting your Facebook account isn't worth it, here's how to deactivate it instead:
@@ -125,9 +120,9 @@ Close
 ![Deactivate account option on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Deactivate-facebook-account-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Key reasons for deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-reasons.jpg)
 
 ![Final step in deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-android.jpg)
@@ -136,20 +131,21 @@ Close
 
  You will instantly be logged out. You can reactivate your account by simply signing in once more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ditch Facebook Forever
 
  Facebook is one of the most popular social media platforms. However, you can ditch the platform forever by deleting your account instead of being embroiled in the company's endless privacy and security issues. Deleting your Facebook account on Android is straightforward if you follow the above-mentioned steps.
 
  But before doing so, you should download your history and add different login methods for apps and websites that use your Facebook credentials. You can also deactivate your account temporarily if you wish to return later.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +154,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-crystal-clear-imagery-best-online-tools-for-clarity-for-2024/"><u>[Updated] Crystal Clear Imagery Best Online Tools for Clarity for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-leading-youtube-themes-for-captivating-opens-for-2024/"><u>[Updated] Leading YouTube Themes for Captivating Opens for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-optimal-platforms-for-youtube-video-exposure/"><u>2024 Approved Optimal Platforms for YouTube Video Exposure</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-the-course-for-profitable-youtube-videos-for-2024/"><u>Charting the Course for Profitable Youtube Videos for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-customized-user-experience/"><u>Cookiebot-Driven Customized User Experience</u></a></li>
+<li><a href="https://games-able.techidaily.com/ddr5-kingmakers-best-boards-of-24/"><u>DDR5 Kingmakers: Best Boards of '24</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/end-headphone-static-fast-easy-remedies-awaiting-you/"><u>End Headphone Static Fast! Easy Remedies Awaiting You</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621344-9781601637321-historys-mysteries/"><u>History's Mysteries | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-comeback-curriculum-learning-from-the-past/"><u>Instagram's Comeback Curriculum: Learning From the Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-friends-close-and-strangers-outdoorsy/"><u>Keeping Friends Close and Strangers Outdoorsy</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-control-facebooks-latest-moderation-features/"><u>Mastering Group Control: Facebook's Latest Moderation Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-moderation-instruments-released-by-facebook/"><u>New Moderation Instruments Released by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-existence-completely-unplugging-from-fb/"><u>Offline Existence: Completely Unplugging From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-self-in-virtual-space-oculus-new-characters/"><u>Reimagining Self in Virtual Space: Oculus' New Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealed-whats-triggering-discussions-around-fb-papers/"><u>Revealed: What's Triggering Discussions Around FB Papers?</u></a></li>
+</ul></div>
 

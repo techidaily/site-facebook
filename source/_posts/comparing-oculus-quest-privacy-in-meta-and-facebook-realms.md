@@ -1,7 +1,7 @@
 ---
 title: Comparing Oculus Quest Privacy in Meta & Facebook Realms
-date: 2024-08-08T11:20:01.801Z
-updated: 2024-08-09T11:20:01.801Z
+date: 2025-01-17T19:36:16.889Z
+updated: 2025-01-24T17:35:26.511Z
 tags:
   - facebook
 categories:
@@ -20,15 +20,13 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
  Meta eventually announced that Quest users would no longer need a Facebook login. Instead, they could create a Meta account. This solved a lot of those usability problems but, is it more private for users?
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Understanding the Meta Account
 
 [“Meta” is the new name of “Facebook Company”](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) as of October 2021\. This is the conglomerate that owns the social media companies Facebook, Instagram, and WhatsApp. It’s also the conglomerate that purchased VR pioneer Oculus in 2014, and several game studios and other tech companies since then.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Meta Quest 2 controller still featuring the Oculus logo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/artifacts-of-oculus.jpg)
 
  Oculus still exists as an entity and does Meta’s VR software development. When they were their own company, there was such a thing as an “Oculus account” required to sign into the headsets. Some kind of account is necessary to do things like buy and manage apps, after all. However, Meta retired the Oculus account in lieu of a Facebook login requirement.
@@ -48,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
  Suppose that you know someone that you see at work as well as socially. There’s something you’re afraid to tell this person, so you tell them at work. This person might keep your secret around friends (or might not) but either way they still have the information. So, giving your information to Meta might just be giving your information to Facebook wearing a different hat.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Two Accounts for Double the Info
 
  Not only does Meta still get the information, but they also get information that you might not have given Facebook. For example, because most Quest 2 apps and games aren’t free, you’re more likely to enter payment information into your Quest account than your Facebook account (unless you use your credit card to buy bonuses in Candy Crush).
@@ -60,9 +59,6 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  It could be argued that these are moot points as far as the Meta account is concerned. After all, these things are required for a VR headset and ecosystem. So, they aren’t new concerns since Meta accounts appeared, as they’ve been true since Facebook bought Oculus. They’ve even been true since Meta replaced the Oculus login with a Facebook login.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## The Meta Requirement Is Better
 
  Despite all of the criticisms of the move, Facebook accounts and Meta accounts are different. Yes, that does make a difference.
@@ -71,14 +67,19 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  Think about the information that you enter into Facebook. Your name, your family and friends, probably where you work and went to school. Maybe what you think and believe. Maybe payment info, maybe not. This information has to be input accurately and honestly for the platform to work as intended.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Personal information fields for a Meta account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/How-much-do-you-share.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now, think about the information that you enter into a VR account – arguably about the same as you enter into a game console at this point. Maybe your real name, maybe not. Maybe your personal friends, maybe not. Payment info, probably. Probably not your family. Probably not where you work. Probably not what you think and believe.
 
  Friend suggestions were a good example of this in the days of the Facebook requirements. When a Facebook friend linked their accounts to a Quest, other Quest users in their Facebook network got notifications. This doesn’t happen when you sign in with a Meta account because your Meta account doesn’t know (or pretends not to know) who your Facebook friends are.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### You Don’t Need a Facebook Account
 
@@ -87,22 +88,20 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
  If you want to use a Quest but [deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Pick Your Poison
 
  For most people, this is an academic exercise. Most people don’t think twice about giving data in exchange for services because that’s just how the world works these days. If you’re more discerning, you have some thinking to do.
 
  It’s true that using a VR headset means giving some of your info to someone. And it’s true that, if you want to use Quest, that means giving some of your info to Meta. However, giving info to Meta no longer means giving your info to Facebook. That’s particularly true if you use Meta and Facebook in ways that are mindful of your data privacy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,6 +110,20 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-aurora-high-dynamic-range-review-pros-and-cons/"><u>[New] Aurora High-Dynamic Range Review – Pros & Cons</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-the-viral-potential-of-your-instagram-unboxing-content/"><u>[New] Unleash the Viral Potential of Your Instagram Unboxing Content</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-direct-transition-from-youtube-to-instagram-reels/"><u>[Updated] 2024 Approved Direct Transition From YouTube to Instagram Reels</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-key-steps-for-an-optimal-chromebook-zooming-experience/"><u>[Updated] 2024 Approved Key Steps for an Optimal Chromebook Zooming Experience</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-effortless-snaptweet-videos-from-twitter/"><u>2024 Approved Effortless SnapTweet Videos From Twitter</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-poco-x5-pro-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Poco X5 Pro without App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-messages-remain-unsecured-wait-until-2022/"><u>Facebook & Instagram Messages Remain Unsecured - Wait Until 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/free-tricks-to-enhance-your-facebook-schedules-efficiency/"><u>Free Tricks to Enhance Your Facebook Schedule's Efficiency</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-pova-5-pro-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Pova 5 Pro To Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-cloud-storage-pricing-comparison-and-best-price-recommendations/"><u>In 2024, Cloud Storage Pricing Comparison and Best Price Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-highlights-distrust-toward-major-internet-companies/"><u>Survey Highlights Distrust Toward Major Internet Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-leaders-to-address-scam-ad-proliferation-more-effectively/"><u>Tech Leaders to Address Scam Ad Proliferation More Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-from-social-media-heres-your-top-10-facebook-free-reasons/"><u>Unplugging From Social Media? Here's Your Top 10 Facebook-Free Reasons</u></a></li>
+</ul></div>
 

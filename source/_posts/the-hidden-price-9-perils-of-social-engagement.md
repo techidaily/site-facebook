@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2025-01-15T16:15:35.988Z
-updated: 2025-01-18T16:15:37.767Z
+date: 2025-01-18T16:13:20.477Z
+updated: 2025-01-24T19:38:27.596Z
 tags:
   - facebook
 categories:
@@ -24,15 +24,15 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Social Media Is Bad for You
 
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Depression and Anxiety
 
@@ -47,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
@@ -70,13 +66,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -90,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -101,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  It's really important to remember that everybody is human. No one wakes up every day looking like a supermodel, and while many people have gone to great lengths to train their bodies, that's not the case for everyone who looks fit. Many people, in search of social media fame, have definitely taken unhealthy routes to appear more attractive.
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Unhealthy Sleep Patterns
 
@@ -117,7 +121,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
@@ -127,10 +131,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -153,19 +153,21 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-strategic-brand-integrations-within-youtube-realms-for-2024/"><u>[New] Strategic Brand Integrations Within YouTube Realms for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-experts-guide-to-rapid-time-lapsing-for-2024/"><u>[Updated] Expert's Guide to Rapid Time-Lapsing for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-engagement-advanced-youtube-tag-strategies-revealed/"><u>[Updated] In 2024, Boost Engagement Advanced YouTube Tag Strategies Revealed</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/boost-efficiency-using-powertoys-copy-pasting-features/"><u>Boost Efficiency: Using PowerToys' Copy-Pasting Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-google-pixel-fold-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Google Pixel Fold</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streamlining-presentations-how-to-add-youtube-videos-to-ppt/"><u>In 2024, Streamlining Presentations How to Add YouTube Videos to PPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-recovery-techniques-for-locked-out-facebook-users/"><u>Key Recovery Techniques for Locked-Out Facebook Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/revealing-hidden-blacklist-entities-on-facebook-platform/"><u>Revealing Hidden Blacklist Entities on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-rated-windows-ultimate-laptop-picks-comprehensive-testing-and-reviews-experts/"><u>Top-Rated Windows Ultimate Laptop Picks - Comprehensive Testing & Reviews Experts</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unbeatable-july-2024-deals-save-big-on-iphone-apple-watches-and-ipads-smart-shopping/"><u>Unbeatable July 2024 Deals: Save Big on iPhone, Apple Watches, and iPads | Smart Shopping</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-take-your-fb-videos-from-small-to-grand-in-a-click/"><u>[New] In 2024, Take Your FB Videos From Small to Grand in a Click</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-premier-webcam-selections-for-dynamic-twitch-sessions/"><u>[Updated] In 2024, Premier Webcam Selections for Dynamic Twitch Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-impact-of-facebooks-touch-interface/"><u>Evaluating the Impact of Facebook's Touch Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-efficiently-clear-updates-from-your-profile/"><u>How to Efficiently Clear Updates From Your Profile</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-honor-magic-6-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Honor Magic 6 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/integrating-efficiency-into-daily-use-with-win11-icon-additions/"><u>Integrating Efficiency Into Daily Use with Win11 Icon Additions</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-images-a-download-guide/"><u>Mastering Facebook Images: A Download Guide</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-edit-videos-on-mac-avs-video-editor-for-macos/"><u>New 2024 Approved Edit Videos on Mac AVS Video Editor for macOS</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154592-9781577313434-practicing-the-power-of-now/"><u>Practicing the Power of Now | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-texting-facebook-rolls-out-groundbreought-features-for-apps-like-instagram-and-messenger/"><u>Revolutionize Texting: Facebook Rolls Out Groundbreought Features for Apps Like Instagram and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-landscapes-overhauited-discovering-4-major-online-shifts/"><u>Social Landscapes Overhauited: Discovering 4 Major Online Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-new-layout-of-your-favorite-platform/"><u>Understanding the New Layout of Your Favorite Platform</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/what-does-it-mean-to-tag-something-or-someone/"><u>What Does It Mean to 'Tag' Something or Someone?</u></a></li>
+<li><a href="https://win-hot.techidaily.com/wie-sie-mit-nur-7-einfachen-anweisungen-musik-effizient-von-ihrem-iphone-auf-ipad-proairmini-wechseln-konnen/"><u>Wie Sie Mit Nur 7 Einfachen Anweisungen Musik Effizient Von Ihrem iPhone Auf iPad Pro/Air/Mini Wechseln Können</u></a></li>
 </ul></div>
 

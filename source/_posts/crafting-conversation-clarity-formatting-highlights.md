@@ -1,7 +1,7 @@
 ---
 title: "Crafting Conversation Clarity: Formatting Highlights"
-date: 2024-08-08T11:21:03.125Z
-updated: 2024-08-09T11:21:03.125Z
+date: 2025-01-21T18:39:20.688Z
+updated: 2025-01-24T21:28:15.549Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/98a74ce7172ad2a57d4310a18c57051ce671b66b0
 
  Here's how to add a unique spin to your messages with text formatting in Messenger.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Text Formatting Works in Messenger
 
  While [Messenger has many features you can try](https://www.makeuseof.com/tag/facebook-messenger-features/) , you can easily format text in Facebook Messenger with the right characters or symbols. Each type of emphasis has a symbol that you need to type before and after the text that you want to emphasize.
@@ -30,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/98a74ce7172ad2a57d4310a18c57051ce671b66b0
  Here are the symbols to use for different types of formatting, along with examples of how it looks when you send a message.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Add Bold Text in Messenger
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
@@ -39,45 +44,25 @@ thumbnail: https://thmb.techidaily.com/98a74ce7172ad2a57d4310a18c57051ce671b66b0
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make Italic Text in Messenger
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
 ## How to Use Strikethrough Text in Messenger
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## How to Use Monospace Text in Messenger
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
@@ -89,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/98a74ce7172ad2a57d4310a18c57051ce671b66b0
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -102,20 +91,21 @@ To send text in a block of code:
 
  This will send your text with code formatting. This is just one of the many [things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Customize Your Facebook Messages With Text Formatting
 
  Text formatting can really change how people interpret your messages. While you won't be using a typographical emphasis in Messenger all the time, it's handy knowledge to have for when you do need it.
 
  Just remember that while you can send formatted text on the app, it only appears in the formatted style on the web version of Messenger.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +114,26 @@ To send text in a block of code:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-effortless-selfie-sending-learn-the-technique-now-for-2024/"><u>[New] Effortless Selfie Sending - Learn the Technique Now for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unlocking-old-tweets-with-twitter-archive-tools/"><u>[Updated] 2024 Approved Unlocking Old Tweets with Twitter Archive Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-setting-up-a-sports-channel-from-scratch-mac-style/"><u>[Updated] Setting up a Sports Channel From Scratch, Mac-Style</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-samsung-galaxy-a14-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Samsung Galaxy A14 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/a-compreayers-guide-to-capturing-console-games-on-a-computer/"><u>A Compreayer's Guide to Capturing Console Games on a Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-friends-and-uncover-insights-via-poll-games/"><u>Engaging Friends & Uncover Insights via Poll Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-info-on-metas-revised-privacy-regime/"><u>Essential Info on Meta's Revised Privacy Regime</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/expert-advice-how-to-retrieve-and-save-conversations-on-chatgpt/"><u>Expert Advice: How to Retrieve and Save Conversations on ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-interactive-feedback-via-page-polls/"><u>Facilitating Interactive Feedback via Page Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-social-to-virtual-sphere-6-revolutionary-facts-about-fbs-metaverse/"><u>From Social to Virtual Sphere: 6 Revolutionary Facts About FB’s Metaverse</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harness-the-power-of-color-grading-a-guide-to-luts-in-photoshop-cs6-for-2024/"><u>Harness the Power of Color Grading A Guide to LUTs in Photoshop CS6 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-secure-conversation-on-fb-real/"><u>Is Secure Conversation on FB Real?</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-facebook-newsfeed-customization/"><u>Limit Facebook Newsfeed Customization</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/psvr-on-pc-learn-the-essentials-of-connecting-sonys-virtual-reality-headset-with-a-computer/"><u>PSVR on PC? Learn the Essentials of Connecting Sony's Virtual Reality Headset with a Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-marketing-efforts-discover-8-crowdflower-features/"><u>Streamlining Marketing Efforts: Discover 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-trend-alert-unbundling-giphy-from-facebook-debated/"><u>Tech Trend Alert: Unbundling Giphy From Facebook Debated</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-full-scope-guide-to-digitally-preserving-friendships-and-posts/"><u>The Full Scope Guide to Digitally Preserving Friendships and Posts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-roundup-unleashing-the-best-5-online-title-makers/"><u>The Ultimate Roundup Unleashing the Best 5 Online Title Makers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-10-alternatives-to-chatgpt-you-should-consider/"><u>Top 10 Alternatives to ChatGPT You Should Consider</u></a></li>
+</ul></div>
 

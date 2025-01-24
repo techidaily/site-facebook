@@ -1,7 +1,7 @@
 ---
 title: Data Removal – Its Impact on Privacy and Safety for Facebook Users
-date: 2024-08-08T11:22:07.486Z
-updated: 2024-08-09T11:22:07.486Z
+date: 2025-01-18T19:54:05.306Z
+updated: 2025-01-24T18:04:32.884Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,26 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 
  So what does this mean for you? And how might it affect your security?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Did Facebook Facial Recognition Do?
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![A woman sitting at desk in front of a laptop while holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-front-of-laptop-holding-phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook used facial recognition for several purposes. For example, the technology helped generate image descriptions for people who are blind or visually impaired, helping them to know if a college classmate or co-worker was in a picture.
 
  There’s also a longtime Facebook feature that gave users automatic notifications when friends posted photos featuring them. Similarly, it suggested who people should tag when uploading photos. Facial recognition worked in the background in those cases.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What’s Changing With Facebook Facial Recognition?
 
  The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying [templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
@@ -40,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Facebook Still Use Facial Recognition?
 
  In short,[Facebook says](http://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/) it will no longer rely on facial recognition technology to detect when people appear in the site’s content. However, the company is not leaving facial recognition behind. Instead, it intends to keep using the technology in certain instances.
@@ -50,23 +57,6 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Will This Change Affect Facebook’s Public Perception?
 
  Numerous damaging allegations about Facebook’s algorithms and how they encourage engagement have put the company in the spotlight for all the wrong reasons.
@@ -82,13 +72,11 @@ Key features:
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## No Major Security Improvements Here
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
@@ -97,14 +85,11 @@ Key features:
 
  Since people will still opt in to future facial recognition features, it’s critical they read the details before activating anything new on their profiles.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,6 +98,26 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-ensuring-safety-while-acquiring-no-cost-vlc-player-for-mac-os-for-2024/"><u>[New] Ensuring Safety While Acquiring No-Cost VLC Player for Mac OS for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-heartstrings-harmony-best-music-to-accompany-your-engagement/"><u>[Updated] Heartstrings Harmony Best Music to Accompany Your Engagement</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-black-and-white-to-richness-embracing-hdrs-power/"><u>2024 Approved From Black and White to Richness Embracing HDR's Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-begins-six-transformative-aspects-of-fbs-metaverse/"><u>A New Era Begins: Six Transformative Aspects of FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-lift-rebuilding-old-social-ties/"><u>Ban Lift: Rebuilding Old Social Ties</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bose-soundsport-frames-review-sun-protection-and-impressive-audio/"><u>Bose Soundsport Frames Review: Sun Protection and Impressive Audio</u></a></li>
+<li><a href="https://facebook.techidaily.com/clandestine-continuity-delving-into-facebooks-stealthy-wrist-tech/"><u>Clandestine Continuity: Delving Into Facebook’s Stealthy Wrist Tech</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Motorola Moto G14? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-football-giants-disavow-online-platforms-for-mental-wellness/"><u>England's Football Giants Disavow Online Platforms for Mental Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/gpts-prediction-power-versus-astrological-guesses/"><u>GPT's Prediction Power Versus Astrological Guesses</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-gt-3-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme GT 3 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-iphone-xs-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your iPhone XS Properly | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
+<li><a href="https://facebook.techidaily.com/restricting-access-to-in-app-internet-via-facebook/"><u>Restricting Access to In-App Internet via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaking-up-tech-monopolies-why-governments-step-in/"><u>Shaking Up Tech Monopolies: Why Governments Step In</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/streamline-your-zoom-talks-with-camera-snaps/"><u>Streamline Your Zoom Talks with Camera Snaps</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-craft-share-worthy-content-the-facebook-way/"><u>Tips to Craft Share-Worthy Content: The Facebook Way</u></a></li>
+<li><a href="https://fox-that.techidaily.com/trouble-with-imessage-here-are-7-tips-for-restoring-text-functionality-on-iphone/"><u>Trouble with iMessage? Here Are 7 Tips for Restoring Text Functionality on iPhone</u></a></li>
+</ul></div>
 

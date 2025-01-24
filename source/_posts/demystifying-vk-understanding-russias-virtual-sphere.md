@@ -1,7 +1,7 @@
 ---
 title: "Demystifying VK: Understanding Russia's Virtual Sphere"
-date: 2024-07-29T07:34:47.624Z
-updated: 2024-07-30T07:34:47.624Z
+date: 2025-01-22T20:53:45.948Z
+updated: 2025-01-24T22:43:12.811Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/e3894a6ad1afb8650d841abb2ecac55565ace18e9
  Normally, when we think of social media, we think of Facebook—after all, it's linked to pretty much everything in our lives, from Uber rides to voice calls to money transfers. If you live in Russia, however, you're more likely to think first of vk.com, also known as VKontakte. It's one of the top Russian social networks; anybody whose anybody uses it.
 
  There is very little to read about VK in the western world, making the site something of a mystery to those outside of the loop. If you've never heard of VK before, you're about to get an earful.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. VK Is the Most Popular Social Media Website in Russia
 
@@ -43,9 +47,6 @@ Some potential explanations for this difference include:
 * The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -60,6 +61,10 @@ Some potential explanations for this difference include:
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -68,9 +73,6 @@ Some potential explanations for this difference include:
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -79,15 +81,16 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. The Most Common Password on VK is "123456"
 
  One insight gleaned from the breach described above is that[the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
@@ -97,14 +100,16 @@ Some potential explanations for this difference include:
  Other popular passwords included "qwerty," "1111111," and "123321".
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. VK's Website Design Rarely Changes
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
 
@@ -116,23 +121,17 @@ Some potential explanations for this difference include:
 
  It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## There's a World Outside of Facebook
 
  VK is a streamlined and serene experience, far from the ones that we're familiar with, all punctuated by the out-loud-and-proud stylings of TikTokers and Instagram influencers dying to make a name for themselves.
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +140,20 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-expert-dj-tools-for-windows-for-2024/"><u>[New] Expert DJ Tools for Windows for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-screen-recorder-pros-free-software-on-both-windows-and-macos/"><u>[New] Screen Recorder Pros Free Software on Both Windows & MacOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-charting-a-course-for-youtube-success-viewer-numbers-and-income/"><u>[Updated] 2024 Approved Charting a Course for YouTube Success Viewer Numbers and Income</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-duo-ing-melodies-for-virtual-fame/"><u>[Updated] 2024 Approved Duo-Ing Melodies for Virtual Fame</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/como-corregir-un-nombre-de-directorio-no-valido-en-windows-11-o-versiones-anteriores-con-tacticas-efectivas/"><u>Cómo Corregir Un Nombre De Directorio No Valido en Windows 11 O Versiones Anteriores Con Tácticas Efectivas</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/complete-guide-how-to-safely-extract-drm-protection-from-ebook-formats-like-epub-pdf-and-azw/"><u>Complete Guide: How to Safely Extract DRM Protection From eBook Formats Like EPUB, PDF & AZW</u></a></li>
+<li><a href="https://apple-account.techidaily.com/everything-to-know-about-apple-id-password-requirements-for-apple-iphone-15-plus-by-drfone-ios/"><u>Everything To Know About Apple ID Password Requirements For Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-messenger-embraces-next-gen-ar-communications/"><u>Facebook's Messenger Embraces Next-Gen AR Communications</u></a></li>
+<li><a href="https://network-issues.techidaily.com/graphics-malfunction-resolved-and-system-stable/"><u>Graphics Malfunction Resolved and System Stable</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-view-private-facebook-profiles/"><u>How to View Private Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-implicit-connotations-in-digital-communication/"><u>Identifying Implicit Connotations in Digital Communication</u></a></li>
+<li><a href="https://win-webster.techidaily.com/nikon-bildwiederherstellung-verlustierte-aufnahmen-mit-der-nikonsystemkamera-wiederherstellen/"><u>Nikon-Bildwiederherstellung: Verlustierte Aufnahmen Mit Der Nikonsystemkamera Wiederherstellen</u></a></li>
+<li><a href="https://facebook.techidaily.com/photo-fusion-techniques-for-facebook-groups-and-pages/"><u>Photo Fusion Techniques for Facebook Groups & Pages</u></a></li>
+</ul></div>
 

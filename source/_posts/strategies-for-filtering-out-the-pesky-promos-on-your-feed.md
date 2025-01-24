@@ -1,7 +1,7 @@
 ---
 title: Strategies for Filtering Out the Pesky Promos on Your Feed
-date: 2025-01-16T16:02:01.760Z
-updated: 2025-01-18T16:01:27.962Z
+date: 2025-01-18T21:33:08.051Z
+updated: 2025-01-24T20:23:06.198Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bcbbbb17c516407e41023c9df84564d9e208249f4
 Below are three easy ways to control the ads you see on Facebook:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Change Your Ads Preferences
@@ -59,7 +59,7 @@ Below are three easy ways to control the ads you see on Facebook:
 ![How to change your ad preferences on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_081905.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -72,15 +72,19 @@ To widen the list of the kind of ads you don't want to see:
 
 ![How to stop seeing certain ads on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_082049.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![How to stop seeing certain ads on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_084811.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  You can also type an ad topic on the search bar at the top of the Ad topics page to locate a topic you have trouble locating. For instance, if you wish to see fewer combat sports ads, you can simply search "combat sports" from the search bar and then tap through and select**See less** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Turn Off Ads Recommendations From Off-Facebook Activities
 
@@ -93,23 +97,19 @@ Close
 
 ![How to control the kind of ads you see on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_082205.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Control the Kind of Ads you see on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_082216.jpg)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Hide Ads on Sight
 
  Changing your ad preferences is technically not a fool-proof solution to controlling the kind of ads you see on Facebook. Sometimes, some ads that are related to topics you choose not to see may come up on your timeline.
 
  For this kind of ad, simply tap the three-dot icon in the top right corner of the ad item and then tap**Hide ads** . This should keep that particular ad away from your timeline.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Kind of Ads You See on Facebook Is a Choice
 
@@ -132,19 +132,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/updated-laughlens-quickly-create-social-memes-and-gifs/"><u>[Updated] LaughLens Quickly Create Social Memes & Gifs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-art-of-facial-movements-using-blur-effects-in-picsart/"><u>[Updated] The Art of Facial Movements Using Blur Effects in Picsart</u></a></li>
-<li><a href="https://windows11.techidaily.com/converting-oculus-quest-2-to-windows-vr-compatibility-level/"><u>Converting Oculus Quest 2 to Windows VR Compatibility Level</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-leader-in-faces-to-phasing-out-meta-on-fbs-id-tech/"><u>From Leader in Faces to Phasing Out? Meta on FB's ID Tech</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-5-easy-steps-to-a-picture-perfect-instagram-group/"><u>In 2024, 5 Easy Steps to a Picture-Perfect Instagram Group</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-sony-xperia-10-v-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Sony Xperia 10 V</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-pro-tips-to-enhance-your-use-of-instagrams-query-symbol/"><u>In 2024, Pro Tips to Enhance Your Use of Instagram's Query Symbol</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-ultimate-checklist-streamlining-and-maximizing-screencast-quality-with-mobizen/"><u>In 2024, Ultimate Checklist Streamlining and Maximizing Screencast Quality with Mobizen</u></a></li>
-<li><a href="https://facebook.techidaily.com/invite-with-a-click-broadening-your-facebook-chats/"><u>Invite with a Click: Broadening Your Facebook Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/national-survey-reveals-platforms-cause-greater-harm/"><u>National Survey Reveals: Platforms Cause Greater Harm</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ultimate-list-of-7-exceptional-vids-on-mac/"><u>Ultimate List of 7 Exceptional Vids on Mac</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unraveling-media-maker-tool-error-x90017-on-windows/"><u>Unraveling Media Maker Tool Error X.90017 On Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwelcome-websites-the-3-places-without-access-to-facebook/"><u>Unwelcome Websites: The 3 Places Without Access to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-you-need-to-know-about-your-data-post-social-unfollow/"><u>What You Need to Know About Your Data Post-Social Unfollow</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-elegant-aesthetics-mastering-youtubes-beauty-landscape/"><u>[New] In 2024, Elegant Aesthetics Mastering YouTube's Beauty Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cultivating-a-thriving-online-community-subscriber-growth-tactics/"><u>[Updated] 2024 Approved Cultivating a Thriving Online Community Subscriber Growth Tactics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-videos-visibility-with-perfect-thumbnail-sizing-for-2024/"><u>[Updated] Elevate Your Video's Visibility with Perfect Thumbnail Sizing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-cutting-edge-content-summit/"><u>[Updated] In 2024, Cutting-Edge Content Summit</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-twisting-the-tale-a-comprehensively-dual-angled-approach-for-insta-posts-for-2024/"><u>[Updated] Twisting the Tale A Comprehensively Dual-Angled Approach for Insta Posts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-reasons-you-should-take-a-break-from-social-media/"><u>7 Reasons You Should Take a Break From Social Media</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/amazonbasics-flat-tv-antenna-review/"><u>AmazonBasics Flat TV Antenna Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cutting-edge-gaming-on-windows-11-mastering-amd-graphics-driver-updates/"><u>Cutting-Edge Gaming on Windows 11: Mastering AMD Graphics Driver Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-dos-and-donts-for-online-safety/"><u>Digital Footprint Do's & Don'ts for Online Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-raises-the-bar-sonic-features-launched/"><u>Facebook Raises the Bar: Sonic Features Launched</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-more-influence-in-minutes-join-a-facebook-group/"><u>Gain More Influence in Minutes: Join a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-virtual-communities-for-older-users/"><u>Prime Virtual Communities For Older Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-room-efficiency-with-these-10-sms-tactics/"><u>Unlock Room Efficiency with These 10 SMS Tactics</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-vn-video-editor-app-analysis-features-pricing-and-more/"><u>Updated VN Video Editor App Analysis Features, Pricing, and More</u></a></li>
 </ul></div>
 

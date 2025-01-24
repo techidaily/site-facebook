@@ -1,7 +1,7 @@
 ---
 title: "Cracking Down on Digital Goliaths: The Path of Government Regulation"
-date: 2024-08-08T11:21:56.794Z
-updated: 2024-08-09T11:21:56.794Z
+date: 2025-01-22T21:43:02.636Z
+updated: 2025-01-24T17:44:23.485Z
 tags:
   - facebook
 categories:
@@ -24,8 +24,9 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -37,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
  Amazon got its start solely as an online book retailer in 1994\. A year later, Jeff Bezos needed desks for his small staff. He realized that doors cost less than desks and had workers use those instead.
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Big Tech Companies Use Data for Profit
 
@@ -50,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
@@ -63,15 +65,13 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## Big Tech Limits the Market Access of Smaller Companies
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
@@ -89,11 +89,12 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  Furthermore, there are ways that you can [help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Can Impact Government Decisions and Operations
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -106,10 +107,11 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
 ## Big Tech Companies Have Incredible Influence
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -127,18 +129,6 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -147,14 +137,11 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,6 +150,22 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-learn-to-redefine-your-instagram-sound-with-ease/"><u>[New] Learn to Redefine Your Instagram Sound with Ease</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-hashtag-usage-a-primer-for-gamers-yt/"><u>[Updated] Mastering the Art of Hashtag Usage A Primer for Gamers YT</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-seamless-audio-transfer-youtube-videos-)-mp3-macos-2023/"><u>[Updated] Seamless Audio Transfer YouTube Videos > MP3, MacOS 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-regain-sanity-by-unfollowing-not-undergoing/"><u>5 Ways to Regain Sanity by Unfollowing, Not Undergoing</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-random-friends-notifications-on-social-media/"><u>Ban Random Friends Notifications on Social Media</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/darkest-hours-meet-brightest-blessings/"><u>Darkest Hours Meet Brightest Blessings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-perfect-phrases-enhancing-your-cryptocurrency-dialogue-with-ai/"><u>Discover the Perfect Phrases: Enhancing Your Cryptocurrency Dialogue with AI</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/exclusive-list-best-fb-video-mp4-extractors/"><u>Exclusive List Best FB Video MP4 Extractors</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/real-customer-feedback-in-depth-malwarefox-software-assessment/"><u>Real Customer Feedback: In-Depth MalwareFox Software Assessment</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-excluding-users-from-your-fb-business-page/"><u>Steps for Excluding Users From Your FB Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-with-ai-assisted-photo-posting-to-facebook/"><u>Unleash Creativity with AI-Assisted Photo Posting to Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/windows-10-video-format-converter-open-source-change-your-videos-from-avimpegmp4wmvflv-into-any-desired-type-for-free/"><u>Windows 10 Video Format Converter (Open Source): Change Your Videos From AVI/MPEG/MP4/WMV/FLV Into Any Desired Type for Free</u></a></li>
+</ul></div>
 

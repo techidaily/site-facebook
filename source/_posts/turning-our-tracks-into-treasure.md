@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2025-01-11T16:09:58.021Z
-updated: 2025-01-18T16:03:03.516Z
+date: 2025-01-19T18:53:49.716Z
+updated: 2025-01-24T19:36:24.926Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Surveillance Capitalism?
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
@@ -56,19 +56,23 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
@@ -81,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -100,13 +100,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -115,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
@@ -145,21 +145,17 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-in-depth-training-adopting-the-best-screen-recording-practices-with-adobe-captivate/"><u>[New] 2024 Approved In-Depth Training Adopting the Best Screen Recording Practices with Adobe Captivate</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-safety-first-where-to-buy-followers-on-tiktok-responsibly/"><u>[Updated] 2024 Approved Safety First Where to Buy Followers on TikTok Responsibly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-building-an-online-empire-ramp-up-video-views-for-2024/"><u>[Updated] Building an Online Empire Ramp Up Video Views for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-embrace-the-vivid-world-editing-and-viewing-hd-with-windows-hdr-for-2024/"><u>[Updated] Embrace the Vivid World Editing & Viewing HD with Windows HDR for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-potential-your-guide-to-making-blockbuster-youtube-videos/"><u>[Updated] Unleashing Potential Your Guide to Making Blockbuster Youtube Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-amd-radeon-rx-580-graphics-card-drivers-fast-and-simple-updates/"><u>Download AMD Radeon RX 580 Graphics Card Drivers - Fast and Simple Updates!</u></a></li>
-<li><a href="https://facebook.techidaily.com/halt-global-tag-functionality-on-fb/"><u>Halt Global Tag Functionality on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/hold-your-breath-facebooks-regulators-stall-judgment/"><u>Hold Your Breath: Facebook's Regulators Stall Judgment</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-psycho-social-signal-customization-ps-console-edition/"><u>In 2024, Psycho-Social Signal Customization PS Console Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalizing-your-profile-picture-for-facebook/"><u>Personalizing Your Profile Picture for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-intersection-of-online-networks-and-real-world-shopping/"><u>The Intersection of Online Networks and Real-World Shopping</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfollowing-the-upholdran-the-smart-way-to-prepare-before-deleting-fb/"><u>Unfollowing the Upholdran: The Smart Way to Prepare Before Deleting FB</u></a></li>
-<li><a href="https://fox-where.techidaily.com/unique-product-identification-code-deciphering-the-iproductcode/"><u>Unique Product Identification Code - Deciphering the IProductCode</u></a></li>
-<li><a href="https://games-able.techidaily.com/unveiling-the-power-of-playstation-5-controller-reboot/"><u>Unveiling the Power of PlayStation 5 Controller Reboot</u></a></li>
-<li><a href="https://facebook.techidaily.com/vulnerabilities-in-cyber-social-networks/"><u>Vulnerabilities in Cyber Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-and-facebook-clash-as-germany-imposes-new-data-protection-order/"><u>WhatsApp and Facebook Clash as Germany Imposes New Data Protection Order</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-perfect-timeline-control-with-top-20-tweet-management-apps/"><u>[Updated] In 2024, Perfect Timeline Control with Top 20 Tweet Management Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-syncing-visual-elements-across-platforms-for-2024/"><u>[Updated] Syncing Visual Elements Across Platforms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-success-lessons-from-sheryl-sandbergs-facebook-experience/"><u>Crafting Success: Lessons From Sheryl Sandberg’s Facebook Experience</u></a></li>
+<li><a href="https://common-error.techidaily.com/eliminating-valorant-crashes-restart-method/"><u>Eliminating Valorant Crashes: Restart Method</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/indias-tech-rules-scrutinized-by-whatsapp-in-courtroom-battle/"><u>India's Tech Rules Scrutinized by WhatsApp in Courtroom Battle</u></a></li>
+<li><a href="https://extra-information.techidaily.com/maximizing-your-camera-masterful-android-time-lapse-videography/"><u>Maximizing Your Camera Masterful Android Time-Lapse Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-delays-full-encryption-adoption-until-2023-insights-revealed/"><u>Meta Delays Full Encryption Adoption Until 2023: Insights Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-profits-creators-guide-to-earnings-with-reels-and-marketplace-metrics/"><u>Reeling In Profits: Creators' Guide to Earnings with Reels and Marketplace Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-profiles-a-shift-to-secular-discourse-only/"><u>Transforming Profiles: A Shift to Secular Discourse Only</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/win10-screen-grabbing-top-quality-captures-for-2024/"><u>Win10 Screen Grabbing - Top Quality Captures for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/windows/"><u>Windows対応動画制作ツールと編集プログラム - ダイナミックな映像の創出</u></a></li>
 </ul></div>
 

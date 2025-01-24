@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Hype: Reevaluating Facebook's Growth Claims"
-date: 2024-08-08T11:20:45.245Z
-updated: 2024-08-09T11:20:45.245Z
+date: 2025-01-20T22:37:24.559Z
+updated: 2025-01-24T21:39:38.701Z
 tags:
   - facebook
 categories:
@@ -20,24 +20,13 @@ thumbnail: https://thmb.techidaily.com/66ccde26d86877f06eba74ce71d6ed3e3e1b37f9f
  Since the report, the internet has been going crazy, and headlines have been looking at why Facebook is doomed, or failing, or not popular anymore, as if the platform's about to shut down. That's not the case at all, and people need to calm down!
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Where Have These Facebook Stats Come From?
 
  Meta released its [annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Numbers Screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Numbers-Screenshot.png)
 
 Image Credit: Meta
@@ -51,8 +40,9 @@ Image Credit: Meta
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Facebook Has Barely Lost Any Users
 
  As Meta's report included rounded figures, we have to take an average decrease of 500,000 users. It could be slightly more, it could be slightly less. That equates to a decrease in users of 0.025%.
@@ -64,8 +54,9 @@ Image Credit: Meta
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. It's Natural for Facebook to Lose Some Users
 
  When you're a social media platform as large as Facebook, it's only natural to eventually see a slight decline in users. This is especially the case when you're talking about an existing userbase of almost two billion individuals. Let's put our business hats on for a second.
@@ -76,9 +67,6 @@ Image Credit: Meta
 
  Even with an incredibly broad target market, like Facebook's undoubtedly is, there comes a point when you [run out of people who want to sign up](https://www.makeuseof.com/facebook-popularity-peak/) . In this case, it's because a lot of them are already signed up, but there's a portion of the market who just aren't interested.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
@@ -88,8 +76,9 @@ Image Credit: Meta
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Meta Is Focusing on the Metaverse
 
  In 2021, Facebook (the company) changed its name to Meta. This is now the holding company that owns all of Facebook's products, including WhatsApp and Instagram. With this new name came a shift in focus–to the metaverse.
@@ -102,20 +91,21 @@ Image Credit: Meta
 
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Chill Out! Facebook Is Fine
 
  While we've been looking at why the drop in users isn't a big deal, it's important to acknowledge that Facebook did lose some users. Why? Because people's heads have been turned to other social platforms focusing on short-form content, especially the younger generation.
 
  We acknowledge Facebook's slight drop in users, we're OK to talk about it, but we're pretty sure it isn't the end of the world. In other words, chill out, because Facebook is doing just fine, thank you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +114,16 @@ Image Credit: Meta
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-how-to-use-movie-maker-on-windows-8/"><u>[New] In 2024, How to Use Movie Maker on Windows 8</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-leading-uav-models-suited-for-gopro-cameras/"><u>[Updated] Leading UAV Models Suited for GoPro Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-concealed-regulations-for-acquaintanceship/"><u>Facebook's Concealed Regulations for Acquaintanceship</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/huawei-nova-y71-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Huawei Nova Y71 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-iphone-14-pro-drfone-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-seas-of-social-medias-past-highlights/"><u>Navigating the Seas of Social Media’s Past Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-instant-fix-purge-your-facebook-broadcast-history/"><u>The Instant Fix: Purge Your Facebook Broadcast History</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-journey-mapping-facebook-explores-news-feed-dynamics/"><u>User Journey Mapping: Facebook Explores News Feed Dynamics</u></a></li>
+</ul></div>
 

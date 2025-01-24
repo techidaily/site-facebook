@@ -1,7 +1,7 @@
 ---
 title: Boost Productivity and Peace Using Facebook’s Reminder Feature
-date: 2024-08-08T11:19:24.011Z
-updated: 2024-08-09T11:19:24.011Z
+date: 2025-01-19T22:53:43.194Z
+updated: 2025-01-24T22:28:11.867Z
 tags:
   - facebook
 categories:
@@ -31,22 +31,19 @@ To set a daily time reminder alert on Facebook, follow these steps:
 4. Navigate to**Your time on Facebook** under**Preferences** .
 5. Go to**Manage your time** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Settings Menu in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Settings-Menu-in-Facebook-App.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Your Time on Facebook Option in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Your-Time-on-Facebook-Option-in-Facebook-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Your Time Option in Facebook's Your Time on Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Manage-Your-Time-Option-in-Facebooks-Your-Time-on-Facebook-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -56,16 +53,17 @@ Then:
 2. Set a time limit for your Facebook usage.
 3. To set a reminder, tap the**Set Reminder** button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Turning On Daily Time Reminder Option in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Turning-On-Daily-Time-Reminder-Option-in-Facebook-App.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Choosing the Timeframe for Daily Time Reminder in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Choosing-the-Timeframe-for-Daily-Time-Reminder-in-Facebook-App.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -76,20 +74,18 @@ Close
  With the Facebook app, you can [switch between multiple Facebook accounts](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) and easily set a time limit for each.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Use Daily Time Reminder Alert to Limit Your Facebook Usage
 
  Use Facebook's daily time reminder feature to limit your time on Facebook for the day, and the app will notify you when you cross that limit. Having a reminder alert will help you stop scrolling through your feed and boost your productivity.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -98,6 +94,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-effortless-gameplay-capture-a-compreayers-approach-to-xbox-recording/"><u>[Updated] In 2024, Effortless Gameplay Capture A Compreayer's Approach to Xbox Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-mastering-fades-in-adobe-audition-basics/"><u>2024 Approved Mastering Fades in Adobe Audition Basics</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximizing-zoom-top-strategies-for-chromebooks/"><u>2024 Approved Maximizing Zoom Top Strategies for Chromebooks</u></a></li>
+<li><a href="https://common-error.techidaily.com/app-cant-open-using-built-in-administrator-account-solved/"><u>App Can’t Open Using Built-In Administrator Account [Solved]</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-steps-for-activating-facebook-marketplace-feature/"><u>Essential Steps for Activating Facebook Marketplace Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-reels-as-the-answer-to-tiktok-on-facebook/"><u>Exploring Reels as the Answer to TikTok on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-idea-to-income-metrics-and-money-making-magic-with-creator-reels/"><u>From Idea to Income: Metrics and Money-Making Magic with Creator Reels</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/how-to-configure-time-triggered-file-syncs-in-aomei-backupper/"><u>How to Configure Time-Triggered File Syncs in AOMEI Backupper</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-an-informed-decision-on-facebook-devices/"><u>How to Make an Informed Decision on Facebook Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-change-your-voice-on-instagram/"><u>In 2024, How to Change Your Voice on Instagram?</u></a></li>
+<li><a href="https://windows11.techidaily.com/lock-it-down-steps-to-activate-windows-controlled-access/"><u>Lock It Down: Steps to Activate Window’s Controlled Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-in-social-media-triggers-for-fb-ban/"><u>Lost in Social Media: Triggers for FB Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-blowback-activist-campaign-against-fb-app-ratings/"><u>One-Star Blowback: Activist Campaign Against FB App Ratings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/pioneering-digital-storytelling-youtubes-filmmaking-pathway-for-2024/"><u>Pioneering Digital Storytelling YouTube's Filmmaking Pathway for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-monster-hunter-worlds-black-screen-problem-on-your-pc/"><u>Resolving Monster Hunter World’s Black Screen Problem on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-status-symbol-purchased-verified-badge/"><u>Secure Status Symbol: Purchased Verified Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-all-comments-mastering-the-art-of-silence-in-facebook-feeds/"><u>Stop All Comments: Mastering the Art of Silence in Facebook Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-flawless-fb-images/"><u>Strategies for Flawless FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-potential-best-budget-apps-to-manage-social-sites/"><u>Unleash Potential - Best Budget Apps to Manage Social Sites</u></a></li>
+</ul></div>
 

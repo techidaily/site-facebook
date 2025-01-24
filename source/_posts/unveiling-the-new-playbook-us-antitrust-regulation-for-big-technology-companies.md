@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2025-01-12T16:17:29.503Z
-updated: 2025-01-18T16:24:02.433Z
+date: 2025-01-22T20:48:11.741Z
+updated: 2025-01-24T22:54:50.849Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is an Antitrust Law?
@@ -35,23 +35,19 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
@@ -69,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -93,7 +93,7 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 In essence: leave the selling to the sellers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
@@ -143,22 +143,22 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-step-into-3d-designing-layered-textured-texts-psx/"><u>[New] Step Into 3D Designing Layered, Textured Texts PSX</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-blueprint-for-setting-up-google-meet/"><u>[New] The Ultimate Blueprint for Setting Up Google Meet</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-art-of-retracing-instagram-pictures-roots/"><u>[Updated] 2024 Approved The Art of Retracing Instagram Pictures' Roots</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-video-engagement-by-inserting-captions-for-2024/"><u>[Updated] Elevate Video Engagement by Inserting Captions for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-srt-expertise-essential-insights/"><u>2024 Approved Unlocking SRT Expertise Essential Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazonbasics-micro-cut-the-ultimate-in-document-safety-a-comprehensive-review-of-the-12-sheet-shredder/"><u>AmazonBasics Micro-Cut, The Ultimate in Document Safety: A Comprehensive Review of the 12 Sheet Shredder</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/comprehensive-tutorial-on-upgrading-the-intel-centrino-wireless-1008566235-nic-drivers/"><u>Comprehensive Tutorial on Upgrading the Intel Centrino Wireless 100/856(6235) NIC Drivers</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-customization-secrets-must-try-app-options/"><u>Facebook Customization Secrets: Must-Try App Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-bbs-to-snapchat-the-transformation-tale/"><u>From BBS To Snapchat: The Transformation Tale</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-facebook-messenger-enable-invisibility/"><u>How Does Facebook Messenger Enable Invisibility?</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-intrusive-pics-out-of-meta-webspace/"><u>Keeping Intrusive Pics Out of Meta Webspace</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-membership-management-with-facebooks-groups-update-features/"><u>Mastering Membership Management with Facebook's Groups Update Features</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/offline-printer-issue-resolved-in-win7/"><u>Offline Printer Issue Resolved in Win7</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/pro-video-production-mastering-the-coordination-between-windows-photos-and-storyremix/"><u>Pro Video Production Mastering the Coordination Between Windows, Photos, and StoryRemix</u></a></li>
-<li><a href="https://facebook.techidaily.com/professional-networking-meets-friend-circles-fb-or-linkedin-groups/"><u>Professional Networking Meets Friend Circles: FB or LinkedIn Groups?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-list-8-essential-crowdflower-tools/"><u>The Complete List: 8 Essential CrowdFlower Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-chatbots-enter-metaais-arena/"><u>The Future of Chatbots: Enter MetaAI's Arena</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-logitech-4k-pro-webcam-complete-review/"><u>[New] 2024 Approved Logitech 4K Pro Webcam Complete Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dual-screen-optimization-using-safaris-picture-in-picture/"><u>[New] In 2024, Dual Screen Optimization Using Safari’s Picture In Picture</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-sneak-peeks-into-instagrams-latest-hacks-for-2024/"><u>[New] Sneak Peeks Into Instagram's Latest Hacks for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-leading-edge-top-10-advanced-vimeo-video-extraction-sites/"><u>[Updated] Leading Edge Top 10 Advanced Vimeo Video Extraction Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-business-and-ethics-in-social-media-interactions/"><u>Balancing Business and Ethics in Social Media Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/blended-browsing-experience-the-rise-of-fbinsta-ties/"><u>Blended Browsing Experience: The Rise of FB/Insta Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/demolishing-dying-off-talk-with-concrete-evidence-supporting-fbs-life/"><u>Demolishing Dying-Off Talk with Concrete Evidence Supporting FB’s Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deterrents-enhanced-sanctions-to-halt-misinformation/"><u>Digital Deterrents: Enhanced Sanctions to Halt Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-comments-for-your-fb-post-a-step-by-step-guide/"><u>Disabling Comments for Your FB Post: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-friends-utilizing-facebook-portal-tv-for-video-calls/"><u>Engage Friends: Utilizing Facebook Portal TV for Video Calls</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-v-purse-by-fonelab-android-recover-data/"><u>How to recover lost data from V Purse?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-reno-8t-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Oppo Reno 8T 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/master-your-pcs-sounds-with-easy-recording-tool-x-recorder-for-2024/"><u>Master Your PC's Sounds with Easy Recording Tool – X-Recorder for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-the-leading-live-church-broadcast-services-for-2024/"><u>Navigating the Leading Live Church Broadcast Services for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-chat-when-will-end-to-end-encryption-hit-fb/"><u>Protecting Privacy in Chat: When Will End-to-End Encryption Hit FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/wave-goodbye-to-work-erase-your-business-profile-online/"><u>Wave Goodbye to Work: Erase Your Business Profile Online</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2025-01-14T16:28:57.626Z
-updated: 2025-01-18T16:18:45.241Z
+date: 2025-01-19T20:48:53.228Z
+updated: 2025-01-24T22:41:40.881Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Spotify Team up on Project Boombox
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -67,16 +67,24 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-infuse-ingenuity-and-fun-make-memes-with-kapwing/"><u>[New] Infuse Ingenuity & Fun – Make Memes with Kapwing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transformative-talk-20-words-to-bolster-marketing-success/"><u>[New] Transformative Talk 20 Words to Bolster Marketing Success</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-craft-a-compelling-metaverse-presence-with-these-tools/"><u>2024 Approved Craft a Compelling Metaverse Presence with These Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-harmonizing-chapters-the-secrets-to-seamless-inshot-edits/"><u>2024 Approved Harmonizing Chapters The Secrets to Seamless Inshot Edits</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-metaverse-marketing-techniques/"><u>2024 Approved Mastering Metaverse Marketing Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-and-reliable-philips-hf3520-timer-comprehensive-product-analysis/"><u>Affordable & Reliable Philips HF3520 Timer - Comprehensive Product Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/gaining-access-tips-for-private-fb-profile-insight/"><u>Gaining Access: Tips for Private FB Profile Insight</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/move-beyond-ms-phone-link-with-our-exceptional-mobile-connectivity-app/"><u>Move Beyond MS Phone Link with Our Exceptional Mobile Connectivity App</u></a></li>
-<li><a href="https://facebook.techidaily.com/preparing-for-facebooks-upcoming-challenges/"><u>Preparing For Facebook's Upcoming Challenges</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pervasive-negativity-a-look-at-online-platform-animosity/"><u>The Pervasive Negativity: A Look at Online Platform Animosity</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-cost-free-apps-mastering-social-media-management/"><u>Top 10 Cost-Free Apps: Mastering Social Media Management</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-a-comprehensive-list-of-mac-methods-to-record-minecraft-play/"><u>[New] 2024 Approved A Comprehensive List of Mac Methods to Record Minecraft Play</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-lilliputscreenmugger-review-analysis/"><u>[New] In 2024, LilliputScreenMugger Review Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unveiling-the-power-of-tags-in-your-youtube-content/"><u>[New] In 2024, Unveiling the Power of Tags in Your YouTube Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-digital-paintbrushes-at-your-fingertips-explore-11-color-correction-essentials/"><u>[Updated] 2024 Approved Digital Paintbrushes at Your Fingertips Explore 11 Color Correction Essentials</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-essential-skills-for-youtube-success-8-free-online-courses-for-2024/"><u>[Updated] Essential Skills for YouTube Success 8 Free Online Courses for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-cutting-edge-photography-techniques-harnessing-lut-capabilities/"><u>[Updated] In 2024, Cutting-Edge Photography Techniques Harnessing LUT Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-part-of-the-future-facebooks-10000-metaverse-builders-wanted/"><u>Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-realme-note-50-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Realme Note 50 Phone? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-correcting-problems-with-tozo-t6-application-on-windows-11/"><u>Expert Advice: Correcting Problems with Tozo T6 Application on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-music-monetization-scheme-explained/"><u>Facebook's New Music Monetization Scheme Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-personalized-marketing-algorithms/"><u>Insight Into Personalized Marketing Algorithms</u></a></li>
+<li><a href="https://facebook.techidaily.com/joining-the-dots-your-guide-to-linking-accounts-across-platforms-and-xbox/"><u>Joining the Dots: Your Guide to Linking Accounts Across Platforms and Xbox</u></a></li>
+<li><a href="https://win-top.techidaily.com/strategies-efficaces-pour-transitionner-vers-windows-11/"><u>Stratégies Efficaces Pour Transitionner Vers Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-financial-strategy-of-online-communities/"><u>The Financial Strategy of Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-online-communities-tailored-for-seniors/"><u>Top 5 Online Communities Tailored for Seniors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-youtubes-hidden-view-tracking-method/"><u>Unlocking YouTube’s Hidden View Tracking Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplug-from-political-spam-transform-your-feed/"><u>Unplug From Political Spam: Transform Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-distinctions-between-fb-pages-and-unames/"><u>Unveiling the Distinctions Between FB Pages & UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-just-delete-a-comprehensive-list-to-consider-before-leaving-fb/"><u>Why Not Just Delete? A Comprehensive List to Consider Before Leaving FB</u></a></li>
 </ul></div>
 

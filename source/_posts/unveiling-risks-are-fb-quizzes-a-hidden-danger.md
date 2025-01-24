@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Risks: Are FB Quizzes a Hidden Danger?"
-date: 2025-01-16T16:18:34.146Z
-updated: 2025-01-18T16:18:34.994Z
+date: 2025-01-23T16:52:56.590Z
+updated: 2025-01-24T20:39:07.471Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are Facebook Quizzes?
 
  We’ve all been there: you’re scrolling through Facebook and run into a quiz promising to match you with a fictional character. It might ask you to fill out a long list of favorites to share with friends or advertise “accurate results” for your Hogwarts house, for instance.
@@ -35,12 +31,16 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -49,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -66,17 +62,21 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -88,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Change Your Security Question Answers
 
  It might be a hassle, but it’s a good idea to go through all of your important accounts and change your security question answers. Use the list or screenshot of your answers from the quiz to guide your changes. Don’t reuse any answers you gave away on the quiz.
@@ -95,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  In most cases, you can choose another question. But if you’re struggling to find security question options that weren’t compromised by the quiz answers, you can even use fake answers. Just keep track of what you said.
 
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Staying Safe on Facebook
 
@@ -119,22 +119,18 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-locate-your-youtube-fanbase/"><u>[New] In 2024, How to Locate Your YouTube Fanbase</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-masterful-art-in-a-flash-quick-draw-on-windows-10-images/"><u>2024 Approved Masterful Art in a Flash Quick Draw on Windows 10 Images</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-polishing-your-presentations-expert-video-editing-for-instagram/"><u>2024 Approved Polishing Your Presentations Expert Video Editing for Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/elite-english-footballers-refuse-online-engagement-in-anti-harassment-stance/"><u>Elite English Footballers Refuse Online Engagement in Anti-Harassment Stance</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-steps-to-clean-up-your-facebook-profile/"><u>Essential Steps to Clean Up Your Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
-<li><a href="https://driver-install.techidaily.com/exploring-advanced-gadgets-with-toms-hardware-insights/"><u>Exploring Advanced Gadgets with Tom's Hardware Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-clarifies-laugh-worthy-limits/"><u>Facebook Clarifies Laugh-Worthy Limits</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/garmin-venu-smartwatch-insights-continuous-fitness-and-health-surveillance-at-your-wrist/"><u>Garmin Venu Smartwatch Insights: Continuous Fitness and Health Surveillance at Your Wrist</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-12-mini-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 12 mini to other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ice-and-elegance-the-2022-winter-olympics-in-china-for-2024/"><u>Ice & Elegance The 2022 Winter Olympics in China for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-sony-xperia-1-v-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Sony Xperia 1 V Phone FRP Lock</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/master-the-art-of-data-destruction-7-algorithms-for-irreversible-file-removal/"><u>Master the Art of Data Destruction: 7 Algorithms for Irreversible File Removal</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-giants-face-public-doubt-focus-on-facebook/"><u>Tech Giants Face Public Doubt: Focus on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-essential-technologies-in-crowdflower-platform/"><u>Uncovering Essential Technologies in CrowdFlower Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-does-fbcta-mean-for-you-online/"><u>What Does FBCTA Mean for You Online?</u></a></li>
-<li><a href="https://facebook.techidaily.com/zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency.</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-vectors-alternatives-to-the-classic-acid-pro/"><u>[New] Top Vectors Alternatives to the Classic ACID Pro</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/come-configurare-la-copia-automatica-dei-dati-su-windows-10-8-o-7-guida-completa-e-facile-da-usare/"><u>Come Configurare La Copia Automatica Dei Dati Su Windows 10, 8 O 7: Guida Completa E Facile Da Usare</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/how-to-disable-onedrive-sync-on-windows-11-a-step-by-step-guide/"><u>How to Disable OneDrive Sync on Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-a1-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo A1 5G online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-dossiers-of-facebook-disclosures/"><u>Navigating Through the Dossiers of Facebook Disclosures</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/photovisionharmony-synchronize-ios-plus-sierra-photos-for-2024/"><u>PhotovisionHarmony Synchronize iOS + Sierra Photos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/prime-software-solutions-for-video-games/"><u>Prime Software Solutions for Video Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-login-sessions-across-diverse-facebook-pages/"><u>Quick Login Sessions Across Diverse Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-lost-fb-data-swift-measures-you-must-take/"><u>Recovering Lost FB Data: Swift Measures You Must Take</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionize-note-taking-with-mematic-app-for-2024/"><u>Revolutionize Note-Taking with Mematic App for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-speech-within-online-communities/"><u>Subtle Speech Within Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-control-prevent-facebooks-oversee-usage/"><u>Take Control: Prevent Facebook’s Oversee Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-within-the-world-of-facebook-dating/"><u>What Lies Within the World of Facebook Dating?</u></a></li>
 </ul></div>
 

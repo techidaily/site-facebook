@@ -1,7 +1,7 @@
 ---
 title: Eternal Rest From All FB Alerts and Notifications
-date: 2025-01-15T16:17:17.248Z
-updated: 2025-01-18T16:20:35.846Z
+date: 2025-01-18T21:42:51.372Z
+updated: 2025-01-24T22:59:32.587Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Benefits of Turning Off Facebook Notifications
 
  Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Less Stress
 
@@ -39,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
  Let’s face it—we run to grab our mobile phone the second its screen brightens for a notification. This can be really distracting if you’re trying to work or study.
 
  By stopping Facebook notifications on your mobile and desktop, it is possible to concentrate on the task at hand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Healthy Lifestyle
 
@@ -53,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 Users can block notifications from their desktops and mobile devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Blocking Mobile Notifications From Facebook
@@ -64,11 +76,19 @@ Users can block notifications from their desktops and mobile devices.
 
 ![Go to Facebook settings and privacy mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-settings-and-privacy-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
 
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -87,20 +107,12 @@ Close
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -120,17 +132,9 @@ Close
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
 4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 7. Click on the activity you wish to change the settings of. It opens different notification options that you can change.
 8. Toggle the tab to turn off that particular setting. The changes are automatically applied to the device. Depending on your needs, you can block just one type of notification or all of them.  
@@ -138,10 +142,6 @@ Close
 9. Close the app, and the notifications won't appear on your taskbar.
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Focus on Your Tasks By Blocking Facebook Notifications
 
@@ -168,19 +168,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-digital-dreamer-turning-images-into-animated-wonders-on-pc-mac-for-2024/"><u>[New] Digital Dreamer Turning Images Into Animated Wonders on PC, Mac for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-whats-outside-of-tiktok-a-curated-list-of-popular-channels-for-2024/"><u>[New] What's Outside of TikTok? A Curated List of Popular Channels for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-compare-metaverse-vs-omniverse-a-complete-guide/"><u>[Updated] Compare Metaverse Vs. Omniverse A Complete Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-understanding-pixel-performance-from-a-start/"><u>2024 Approved Understanding Pixel Performance From a Start</u></a></li>
-<li><a href="https://techtrends.techidaily.com/brother-hl-l2easy-detailed-review-the-perfect-mfp-solution-for-growing-companies/"><u>Brother HL-L2easy Detailed Review - The Perfect MFP Solution for Growing Companies</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-uptime-understanding-and-tracking-status/"><u>Facebook Uptime: Understanding and Tracking Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-technology-firms-with-new-american-regulations/"><u>Future of Technology Firms with New American Regulations</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-proven-pathway-to-pure-sound/"><u>In 2024, Proven Pathway to Pure Sound</u></a></li>
-<li><a href="https://facebook.techidaily.com/make-friends-start-conversations-crafting-an-avatar-themed-cover-for-facebook/"><u>Make Friends, Start Conversations: Crafting an Avatar-Themed Cover for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-image-privacy-fb-photo-settings-guide/"><u>Mastering Image Privacy: FB Photo Settings Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-your-inbox-the-ultimate-tutorial-on-creating-gmail-pseudonyms/"><u>Mastering Your Inbox: The Ultimate Tutorial on Creating Gmail Pseudonyms</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solutions-for-addressing-challenges-in-human-development-and-launch/"><u>Solutions for Addressing Challenges in Human Development and Launch</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-past-connections-downloading-full-facebook-activity/"><u>Unlocking Past Connections: Downloading Full Facebook Activity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-how-to-broadcast-videos-on-twitter-without-the-retweet-step/"><u>[Updated] How To Broadcast Videos on Twitter without the 'Retweet' Step</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-balancing-act-proper-techniques-for-stable-photos/"><u>2024 Approved Balancing Act Proper Techniques for Stable Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-exchanges-a-comprehensive-guide-to-facebooks-latest-moderation-advancements/"><u>Elevating Exchanges: A Comprehensive Guide to Facebook's Latest Moderation Advancements</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-samsung-galaxy-s24plus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Samsung Galaxy S24+ Phones with/without a PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-xiaomi-13t-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Xiaomi 13T? Fixed | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/resolving-imovie-cuts-understanding-crop-rationale-for-2024/"><u>Resolving iMovie Cuts Understanding Crop Rationale for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-against-online-frauds-in-social-networks/"><u>Safeguarding Against Online Frauds in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-just-feed-mean-for-your-social-media-experience/"><u>What Does 'Just Feed' Mean for Your Social Media Experience?</u></a></li>
 </ul></div>
 

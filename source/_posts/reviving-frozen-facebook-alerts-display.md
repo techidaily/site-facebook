@@ -1,7 +1,7 @@
 ---
 title: Reviving Frozen Facebook Alerts Display
-date: 2025-01-13T16:17:08.087Z
-updated: 2025-01-18T16:01:52.966Z
+date: 2025-01-21T21:34:55.256Z
+updated: 2025-01-24T23:17:47.068Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Check Your Internet Connection
 
  The first reason why you might not receive Facebook notifications is a poor internet connection. Maybe you are out of range of your Wi-Fi signal or the internet is down.
@@ -38,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f
 
 ![Android WiFi Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-wifi-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Internet is connected](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/internet-is-connected.jpg)
 
 Close
@@ -49,10 +49,6 @@ Close
  You can[check the Wi-Fi speed using a free website](https://www.makeuseof.com/best-free-websites-test-internet-speed/) to confirm its functionality. Try restarting your router to fix any internet problems. If that doesn’t work, contact your internet service provider to find a solution.
 
  You can also switch from Wi-Fi to mobile data and establish an internet connection. Make sure to have an active data plan. Once your internet connection is stable, you will be able to receive Facebook notifications.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Disable Do Not Disturb and Airplane Mode
 
@@ -74,6 +70,10 @@ Close
 
 Close
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Check Notification Permissions for Facebook
 
  Another reason you may not be receiving alerts is that you might not have granted the required permissions after logging into Facebook the first time. To allow Facebook to send notifications on your iOS device:
@@ -88,6 +88,10 @@ Close
 
 ![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  You can also turn on[Time Sensitive Notifications on your iPhone](https://www.makeuseof.com/ios-15-time-sensitive-notifications-explained/) for urgent content.
@@ -99,6 +103,10 @@ For an Android device, follow these steps:
 3. Toggle the**Show notifications** button to turn on Facebook notifications.
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
@@ -125,6 +133,10 @@ On your iOS device, follow these steps:
 
 ![Mute push notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Mute-push-notifications-option.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 On Android, follow these steps to enable Facebook notifications:
@@ -137,25 +149,25 @@ On Android, follow these steps to enable Facebook notifications:
 
 ![Facebook menu on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/01-facebook-menu-page-with-settings-android.jpg)
 
-![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
-
-![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
-
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
+
+![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
+
 ![Push notifications enabled on Facebook's Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/04-push-notifications-facebook-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  If you're not receiving Facebook notifications because you've disabled the app from sending them in your phone's Settings app, you'll see a**Turn On Push Notifications** option instead when you tap**Push** . Tap**Turn On Push Notifications,** and on the next page, allow Facebook to send notifications.
 
  The Facebook app will load all the pending alerts as soon as you refresh.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Restart Your Phone
 
@@ -179,10 +191,6 @@ To clear your Facebook cache on your iOS device:
 
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![iPhone storage check](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-storage-check.JPG)
 
 ![Offload Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Offload-Facebook-app.JPG)
@@ -196,6 +204,10 @@ If you have an Android device, follow these steps:
 3. Tap**Clear cache** .
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
@@ -211,15 +223,7 @@ Close
 
 ![Open Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -231,6 +235,10 @@ Close
 
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Update your iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Update-your-iPhone.JPG)
 
 Close
@@ -241,22 +249,14 @@ Close
 
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
  The fixes in your phone's system can help fix Facebook notifications that aren’t loading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Reinstall Facebook on Your Smartphone
@@ -286,15 +286,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-leaders-in-likeability-the-best-app-list-on-androidiphone/"><u>[New] Leaders in Likeability The Best App List on Android/iPhone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-foresees-fresh-approach-towards-teen-instagram-habits/"><u>Facebook Foresees Fresh Approach Towards Teen Instagram Habits</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-honor-x50iplus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Honor X50i+ to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-apple-iphone-6s-plus-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From Apple iPhone 6s Plus? Complete Guide | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/key-elements-for-exceptional-gaming-machines/"><u>Key Elements for Exceptional Gaming Machines</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-quest-for-new-digital-connections-on-facebook/"><u>Mastering the Quest for New Digital Connections on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-9-indicators-when-your-social-networks-are-compromised/"><u>Top 9 Indicators: When Your Social Networks Are Compromised</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-gadgets-and-literature-laptops-phones-and-reading-materials-galore/"><u>Top Gadgets & Literature: Laptops, Phones & Reading Materials Galore!</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-oppo-a56s-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Oppo A56s 5G Screen | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-use-meta-ai-on-instagram-and-facebook-but-should-you/"><u>You Can Now Use Meta AI on Instagram and Facebook, but Should You?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-create-news-style-outro/"><u>[Updated] How To Create News Style Outro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ingenious-ai-photo-masterclass/"><u>[Updated] In 2024, Ingenious AI Photo Masterclass</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-screen-better-or-worse-life/"><u>Beyond the Screen: Better or Worse Life?</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-job-openings-impact-with-fb-strategies/"><u>Boosting Your Job Opening's Impact with FB Strategies</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-12-mini-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From iPhone 12 mini You Should Try Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-strategies-for-developing-engaging-facebook-video-stories/"><u>Innovative Strategies for Developing Engaging Facebook Video Stories</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/mavericks-video-editing-essentials-a-step-by-step-guide/"><u>Mavericks Video Editing Essentials A Step-by-Step Guide</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-top-200-free-video-soundtrack-collections/"><u>New In 2024, Top 200 Free Video Soundtrack Collections</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-postponements-whats-behind-oculus-quest-iii-delay/"><u>Unveiling Postponements: What's Behind Oculus Quest III Delay?</u></a></li>
 </ul></div>
 

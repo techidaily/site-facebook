@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2025-01-16T16:19:07.083Z
-updated: 2025-01-18T16:17:06.280Z
+date: 2025-01-17T20:46:55.123Z
+updated: 2025-01-24T18:22:02.094Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,19 +81,21 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ultimate-rankings-of-top-free-cross-platform-video-calls-iphoneandroid/"><u>[New] 2024 Approved Ultimate Rankings of Top Free Cross-Platform Video Calls (iPhone/Android)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ultivating-a-unique-vibe-in-your-own-mukbang-content-for-2024/"><u>[New] Cultivating a Unique Vibe in Your Own Mukbang Content for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/best-desktop-computers/"><u>Best Desktop Computers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/te-your-recordings-doing-without-a-microphone/"><u>Elevate Your Recordings Doing Without a Microphone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-proposed-features-additions-of-reels-and-rooms-to-stories/"><u>Facebook's Proposed Features: Additions of Reels & Rooms to Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/ideal-locations-for-aspiring-freelancers/"><u>Ideal Locations for Aspiring Freelancers</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebook-messenger-adding-new-contacts-step-by-step/"><u>Mastering Facebook Messenger: Adding New Contacts Step-by-Step</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-windows-11-a-step-by-step-guide-to-overcoming-hosted-network-issues/"><u>Mastering Windows 11: A Step-by-Step Guide to Overcoming Hosted Network Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/reactivating-without-a-mobile-deactivating-fb-2fa/"><u>Reactivating Without a Mobile: Deactivating FB 2FA</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-streaming-on-youtube-with-an-introductory-obs-course/"><u>Start Streaming on Youtube with an Introductory OBS Course</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/time-saving-tech-10-innovative-ai-pdf-extensions/"><u>Time-Saving Tech: 10 Innovative AI PDF Extensions</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-vivo-s17-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Vivo S17 Pro without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-does-meta-forsake-facial-recognition-on-facebook-platform/"><u>Why Does Meta Forsake Facial Recognition on Facebook Platform?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-androids-elite-10-gb-games-simulators/"><u>[New] Android's Elite 10 GB Games Simulators</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscover-the-power-of-5-editors-beyond-youtubes-boundaries/"><u>[New] Discover the Power of 5 Editors Beyond Youtube's Boundaries</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-high-engagement-stories-filters-list/"><u>[New] In 2024, High-Engagement Stories Filters List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-music-merger-for-engaging-fb-video-content/"><u>[New] In 2024, The Music Merger for Engaging FB Video Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twittickle-your-personalized-toolkit-for-cutest-tweets/"><u>[Updated] TwitTickle Your Personalized Toolkit for Cutest Tweets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-elevate-your-broadcast-impact-with-these-5-tips-for-twitch-streamers/"><u>2024 Approved Elevate Your Broadcast Impact with These 5 Tips for Twitch Streamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/breach-alert-your-online-identitys-safety-on-fb/"><u>Breach Alert: Your Online Identity's Safety on FB</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reputation-on-the-line-amid-tech-doubts/"><u>Facebook's Reputation on the Line Amid Tech Doubts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-guide-to-convert-youtube-twitter-videos-to-mp3-songs/"><u>In 2024, Guide to Convert YouTube Twitter Videos to MP3 Songs</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-tightening-its-grip-a-threat-to-facebook-and-instagram/"><u>Meta Tightening Its Grip – A Threat to Facebook & Instagram?</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-effective-social-sites-for-senior-users/"><u>Most Effective Social Sites For Senior Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-blocker-feature/"><u>Navigating Facebook's Blocker Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-based-resetting-facebooks-response-to-user-data-breaches/"><u>Tech-Based Resetting - Facebook's Response to User Data Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-of-shadowing-online-profiles/"><u>The Hidden Risks of Shadowing Online Profiles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlock-3d-text-magic-with-adobes-creative-suite/"><u>Unlock 3D Text Magic with Adobe's Creative Suite</u></a></li>
 </ul></div>
 

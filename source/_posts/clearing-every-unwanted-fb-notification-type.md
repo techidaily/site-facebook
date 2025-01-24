@@ -1,7 +1,7 @@
 ---
 title: Clearing Every Unwanted FB Notification Type
-date: 2024-08-08T11:22:17.898Z
-updated: 2024-08-09T11:22:17.898Z
+date: 2025-01-22T23:11:15.492Z
+updated: 2025-01-24T18:00:28.757Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Delete Facebook Notifications
 
 ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
@@ -38,9 +35,6 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## How to Clear All Facebook Notifications
 
  When you log into Facebook and see a pile of unread notifications, you'll want to clear them as soon as possible. If you click on the bell icon, the unread notifications red dot disappears.
@@ -58,19 +52,12 @@ thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414a
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### How to Turn Off Facebook Notifications as They Arrive
 
  The process to turn off Facebook notifications as they arrive is similar to the process for deleting Facebook notifications.
@@ -88,20 +75,16 @@ Follow the steps below to learn about the process on the web app:
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications by Category
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -124,11 +107,19 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -151,8 +142,9 @@ Close
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## More Ways to Make Facebook Work for You
 
  Wrestling back control of your Facebook notifications is just one way to make Facebook work for you. Yes, there's a little bit of micromanagement involved, but it's worth the effort to ensure Facebook is more useful than annoying.
@@ -161,14 +153,11 @@ Close
 
  Image Credit: jhansen2/[Depositphotos](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU37313/https://depositphotos.com/7590222/stock-illustration-seamless-social-networking-background.html)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,6 +166,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-capture-and-structure-knowledge-via-mematic/"><u>[New] Capture and Structure Knowledge via Mematic</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-meme-magic-for-laughter/"><u>2024 Approved Mastering Meme Magic for Laughter</u></a></li>
+<li><a href="https://facebook.techidaily.com/archive-every-echo-comprehensive-history-collection-on-social-media/"><u>Archive Every Echo: Comprehensive History Collection on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-memories-a-guide-to-online-photo-collage-crafting/"><u>Blending Memories: A Guide to Online Photo Collage Crafting</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comprehensive-screen-capture-and-synchronization-techniques-for-2024/"><u>Comprehensive Screen Capture and Synchronization Techniques for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-teamwork-with-facebook-connectivity/"><u>Enhancing Teamwork with Facebook Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-missing-dbghelpdll-files-on-your-computer-easy-tips-and-techniques/"><u>Fixing Missing dBghelp.dll Files on Your Computer - Easy Tips and Techniques</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/how-to-send-a-snap-from-memoriescamera-roll-on-snapchat/"><u>How to Send a Snap From Memories/Camera Roll on Snapchat</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-frontier-for-listeners-facebooks-audio-initiative/"><u>New Frontier for Listeners: Facebook's Audio Initiative</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-transform-your-videos-the-9-best-free-online-video-enhancement-software/"><u>New Transform Your Videos The 9 Best Free Online Video Enhancement Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-privacy-preferences-for-on-the-go-check-ins/"><u>Setting Privacy Preferences for On-the-Go Check-Ins</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/slide-into-style-instagrams-secrets-to-upside-down-visual-content/"><u>Slide Into Style Instagram's Secrets to Upside-Down Visual Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-tascam-cd-200bt-a-studio-player-for-professionals/"><u>The Ultimate Review of the Tascam CD-200BT: A Studio Player for Professionals</u></a></li>
+</ul></div>
 

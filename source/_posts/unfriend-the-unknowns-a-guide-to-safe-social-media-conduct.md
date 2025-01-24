@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2025-01-14T16:05:48.215Z
-updated: 2025-01-18T16:10:18.886Z
+date: 2025-01-22T19:34:08.792Z
+updated: 2025-01-24T16:16:29.821Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
 
@@ -58,10 +58,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Unless the links you receive are from people you know, there is no point in clicking them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Personal Safety at Risk
 
  Facebook has[launched many new features](https://www.makeuseof.com/best-facebook-features-other-apps-launched-first/) to keep users engaged. Most people get addicted to these features and update almost every activity.
@@ -75,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
@@ -92,16 +88,12 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
@@ -109,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  When online ties have a heavy influence on you, it becomes tough to share things with people in real life. Lack of communication with families and loved ones might leave you feeling emotionally drained and damaged.
 
  Sometimes it is possible to find genuine people on Facebook who care for you, but you never know who that is.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Possibility of Communication Gap
 
@@ -127,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  When you add unknown people, they might try to scam you for money and other personal belongings. This is also an emerging[Facebook marketplace scam](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) .
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
@@ -149,21 +149,20 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-the-secrets-of-youtube-shorts-success/"><u>[New] Unveiling the Secrets of YouTube Shorts Success</u></a></li>
-<li><a href="https://win11.techidaily.com/efficient-file-handling-a-guide-to-python-servers-in-windows/"><u>Efficient File Handling: A Guide to Python Servers in Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-assistance-hub-your-guide-to-usage/"><u>Facebook Assistance Hub: Your Guide to Usage</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-13-pro-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 13 Pro</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-double-the-joy-master-looping-of-youtube-media-on-televisions/"><u>In 2024, Double the Joy Master Looping of YouTube Media on Televisions</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-vivo-v27-pro-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Vivo V27 Pro Location Settings | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-light-and-dark-shades-in-tech-world/"><u>Leading Light and Dark Shades in Tech World</u></a></li>
-<li><a href="https://common-error.techidaily.com/pinpointing-and-resolving-windows-10-copypaste-errors/"><u>Pinpointing & Resolving Windows 10 Copy/Paste Errors</u></a></li>
-<li><a href="https://facebook.techidaily.com/shield-your-identity-silent-posting-tactics/"><u>Shield Your Identity: Silent Posting Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-savings-and-serenity-the-9-reasons-to-be-online-for-life/"><u>Social Savings & Serenity: The 9 Reasons to Be Online for Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-commercial-value-of-watchfulness/"><u>The Commercial Value of Watchfulness</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-quest-for-memory-lanes-first-facebook-step/"><u>The Quest for Memory Lane's First Facebook Step</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-6-retailers-where-youll-find-the-perfect-laptop/"><u>Top 6 Retailers Where You'll Find the Perfect Laptop</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-potential-6-strong-reasons-to-stay-linked-to-facebook/"><u>Unlocking Potential: 6 Strong Reasons to Stay Linked to Facebook</u></a></li>
-<li><a href="https://common-error.techidaily.com/why-isnt-my-corsair-keyboard-lights-up-common-issues-and-repairs/"><u>Why Isn’t My Corsair Keyboard Lights Up? Common Issues and Repairs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-countering-harshness-maintaining-poise-online/"><u>[New] Countering Harshness Maintaining Poise Online</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-optimize-logitech-footage-background-free-method-for-2024/"><u>[New] Optimize Logitech Footage - Background-Free Method for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-master-the-art-of-movie-capture-on-any-device/"><u>[Updated] 2024 Approved Master the Art of Movie Capture on Any Device</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-trusted-recommendations-the-ultimate-10-for-real-time-tennis-and-rugby-viewing/"><u>[Updated] Trusted Recommendations The Ultimate 10 for Real-Time Tennis and Rugby Viewing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/escape-locked-out-effective-methods-to-reset-your-ipads-forgotten-passcode-or-pin/"><u>Escape Locked Out: Effective Methods to Reset Your iPad's Forgotten Passcode or PIN</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-repercussions-of-facial-recognition-erasure-on-safety/"><u>Examining the Repercussions of Facial Recognition Erasure on Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-for-effective-facebook-refund-applications/"><u>Expert Advice for Effective Facebook Refund Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145974820-goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-v30-lite-5g-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo V30 Lite 5G</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-system-failures-the-definitive-guide-to-stable-dark-souls-3-play-sessions/"><u>Overcoming System Failures: The Definitive Guide to Stable Dark Souls 3 Play Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144159770-oversight-body-poised-to-issue-ruling-against-trumps-fb-prohibition/"><u>Oversight Body Poised to Issue Ruling Against Trump's FB Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponed-enforcement-period-for-whatsapps-new-privacy-terms/"><u>Postponed Enforcement Period for WhatsApp's New Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/power-play-enhance-page-oversight-by-appointing-an-admin/"><u>Power Play: Enhance Page Oversight by Appointing an Admin</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-arlo-video-doorbell-merging-an-alarm-system-and-camera-in-one-unit/"><u>The Ultimate Guide to the Arlo Video Doorbell: Merging an Alarm System and Camera in One Unit</u></a></li>
 </ul></div>
 

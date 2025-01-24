@@ -1,7 +1,7 @@
 ---
 title: "Breaking Up with Spotify on Facebook: Procedure Here"
-date: 2024-08-08T11:19:48.958Z
-updated: 2024-08-09T11:19:48.958Z
+date: 2025-01-20T17:41:27.312Z
+updated: 2025-01-24T19:43:23.246Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
 
  However, perhaps you want to unlink your Facebook account from Spotify. In this case, you'll want to set aside ten minutes or so, as unlinking your Facebook account from Spotify is not as simple as it sounds.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What You Should Do Before Unlinking Your Spotify Account From Facebook
 
  You could decide to unlink Facebook from your Spotify account for any number of reasons. Perhaps you're not interested in Spotify's social features and don't wish to be found by others this way. Perhaps you no longer use Facebook and want to make sure you can still access your Spotify account without it. Perhaps you just prefer not to chain platforms together this way.
@@ -32,10 +29,11 @@ Here's what you should do to unlink Facebook from Spotify.
 
  Log in to Spotify via your Facebook account, and then reset your password via [the Spotify page](https://www.spotify.com/is-en/account/change-password/) . Make sure to [create a strong password that you definitely remember](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , as you'll need it to log into Spotify later. Feel free to ignore this step if you definitely know your password.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Disconnect Your Spotify Account From Facebook
 
@@ -43,9 +41,6 @@ Here's what you should do to unlink Facebook from Spotify.
 
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
 ###
@@ -55,14 +50,12 @@ Here's what you should do to unlink Facebook from Spotify.
 3. On the**Settings** page, click the**Apps & websites** tab from the sidebar.
 4. Next to Spotify, click**Remove** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
 
  You can also manage the apps and websites connected to your Facebook. Here's how:
@@ -72,18 +65,27 @@ Here's what you should do to unlink Facebook from Spotify.
 3. Scroll down to the**Permissions** section and tap**Apps and websites** .
 4. On the**Apps and websites** page, tap**Spotify** \>**Remove** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -91,14 +93,11 @@ Close
 
  For now, focus on finding the best playlists around and enjoying your favorite tracks on Spotify.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,6 +106,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-slick-facebook-downloaders-top-8-free-and-easy-online-accessories/"><u>[New] 2024 Approved Slick Facebook Downloaders Top 8 Free & Easy Online Accessories</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-vivo-y78-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Vivo Y78 5G PC | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/advanced-techniques-for-pip-integration-in-edge-browser/"><u>Advanced Techniques for PIP Integration in Edge Browser</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/enhance-your-digital-gallery-mastering-online-crop-functions-for-2024/"><u>Enhance Your Digital Gallery Mastering Online Crop Functions for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-multilingual-communication-with-our-picked-offline-translator-software-collection/"><u>Master Multilingual Communication with Our Picked Offline Translator Software Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-fb-posts-maximizing-hd-video-and-image-impact/"><u>Optimizing Fb Posts: Maximizing HD Video and Image Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/principles-of-producing-potent-online-partnerships-fb/"><u>Principles of Producing Potent Online Partnerships (FB)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reigniting-wireless-network-detection-on-windows-11/"><u>Reigniting Wireless Network Detection on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-social-media-identity-with-a-new-birthday-fb/"><u>Revamp Your Social Media Identity with a New Birthday (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shenanigans-detection-of-fraudulent-entities/"><u>Social Media Shenanigans: Detection of Fraudulent Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/stall-on-trump-suspension-by-facebook-oversight-entity/"><u>Stall on Trump Suspension by Facebook Oversight Entity</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-targets-social-media-giants-in-free-speech-lawsuit/"><u>Trump Targets Social Media Giants in Free Speech Lawsuit</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-online-livestream-technology-for-2024/"><u>Ultimate Online Livestream Technology for 2024</u></a></li>
+</ul></div>
 

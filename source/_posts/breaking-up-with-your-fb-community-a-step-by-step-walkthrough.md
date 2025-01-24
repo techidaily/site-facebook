@@ -1,7 +1,7 @@
 ---
 title: "Breaking Up with Your Fb Community: A Step-by-Step Walkthrough"
-date: 2024-08-08T11:20:30.631Z
-updated: 2024-08-09T11:20:30.631Z
+date: 2025-01-17T20:48:42.839Z
+updated: 2025-01-24T18:22:21.752Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ If you are ready to say goodbye to it, this article will help you.
  Here's what you need to know about how to delete a Facebook group on your mobile and desktop.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What You Need to Know Before Deleting Your Facebook Group
 
  A group can have multiple admins, however, only the original creator can delete it. The only way you can delete a group you didn’t create is when the original creator chooses to leave it.
@@ -44,19 +45,10 @@ If you are ready to say goodbye to it, this article will help you.
 
 ### How to Pause Your Facebook Group on Mobile
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing facebook pause group feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-pause-group-feature.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing facebook asking the reason why an admin wants to pause a group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-asking-the-reason-why-an-admin-wants-to-pause-a-group.jpg)
 
 Close
@@ -89,13 +81,9 @@ Here's how to pause your group on the web:
  If you’re just plain tired of the group or its members are just too inactive to be worth it anymore, you can go ahead and delete it. That's assuming you don't want to just [leave the Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Delete Your Facebook Group
 
  It's possible to delete your Facebook group, but it isn't an easy process. This is because it requires you to first empty the group of members.
@@ -107,14 +95,20 @@ This makes it a tedious process for larger groups.
 ![screenshot facebook group home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-facebook-group-home-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing facebook group members](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group-members.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing remove member option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-remove-member-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -130,13 +124,11 @@ Follow these steps to delete your group on mobile:
  Facebook will automatically delete the group once there are no members in it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Delete Your Facebook Group on the Web
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![screen showing admin removing a member from a facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screen-showing-admin-removing-a-member-from-a-facebook-group.JPG)
 
  If you're accessing Facebook through your web browser, here's how to delete your group:
@@ -163,14 +155,11 @@ Again, once the group is empty, Facebook will delete it.
 
  Be sure you want to delete the group before going this far because at this point there’s no going back.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,6 +168,18 @@ Again, once the group is empty, Facebook will delete it.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-the-ultimate-shutter-showdown-best-for-slow-motion-videos/"><u>[Updated] The Ultimate Shutter Showdown Best for Slow Motion Videos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-10-criteria-for-choosing-a-premier-streamer-network/"><u>[Updated] Top 10 Criteria for Choosing a Premier Streamer Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-rest-from-all-fb-alerts-and-notifications/"><u>Eternal Rest From All FB Alerts and Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-personal-bubble-skip-these-3-invasive-apps/"><u>Protect Your Personal Bubble: Skip These 3 Invasive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflect-before-you-leave-a-trail-with-facebook-history/"><u>Reflect Before You Leave a Trail with Facebook History</u></a></li>
+<li><a href="https://win11.techidaily.com/revamping-password-policy-setting-new-limit-post-failed-logins/"><u>Revamping Password Policy: Setting New Limit Post Failed Logins</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1245861-9781451698589-the-sacred-history/"><u>The Sacred History | Free Book</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-potential-navigating-anthropics-advanced-claude-3-ai-services/"><u>Unlocking the Potential: Navigating Anthropic’s Advanced Claude 3 AI Services</u></a></li>
+<li><a href="https://win11.techidaily.com/unveiling-high-usage-hurdles-overcoming-with-windows-monitor-insights/"><u>Unveiling High Usage Hurdles: Overcoming with Windows Monitor Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-disappearing-snapshots-on-facebook-messenger/"><u>Watch Out: Disappearing Snapshots on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-crypto-stablecoins-a-simplified-explanation/"><u>What Are Crypto Stablecoins? A Simplified Explanation</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Messenger Kids' Sleep Mode: A Step-by-Step Guide"
-date: 2025-01-16T16:28:33.941Z
-updated: 2025-01-18T16:26:05.068Z
+date: 2025-01-17T21:59:27.511Z
+updated: 2025-01-24T22:41:23.606Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Sleep Mode in Messenger Kids?
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  You can help them avoid distractions during homework time, dinner time, and bedtime. After[setting up a Messenger Kids account](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , you can enable the Sleep Mode in a few steps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up Sleep Mode in Messenger Kids
 
  Messenger Kids lets you set up Sleep Mode limits on both the mobile app and its website. You can choose whichever method is more convenient for you.
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
  While some apps might warn you when you've exceeded your set usage time, Messenger Kids works with a schedule format instead. This means you set the timeframe during the week and weekends that kids won't be able to access the app.
 
  For example, you can set the app's sleep time to start at 8pm on weekdays and 9pm on weekends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Setting Up Sleep Mode on the Web App
 
@@ -54,7 +62,7 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
  Click Messenger Kids. It will navigate you to the child’s account connected with your Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. Tap on**Controls** to open a new menu with various settings.  
@@ -74,19 +82,19 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu.jpg)
 
-![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Sleep Mode on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Sleep-Mode-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -106,16 +114,12 @@ Close
 
 There are several perks of using Messenger Kids Sleep Mode.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Better Focus on Other Activities
 
 ![Children performing various activities](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Children-performing-various-activities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Kids are energetic and should participate in physical activities and sports. With technology becoming common, it is hard to motivate them.
@@ -140,10 +144,6 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  A timetable focused on eating, sleeping, homework, school, and gadget-time can be a useful tool for kids who need more structure during their day. By enabling the Sleep Mode, you can make sure your children complete other tasks as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Create Healthy Limits With the Messenger Kids Sleep Mode
 
  Technology addiction and mental strain go hand in hand. This is why Messenger Kids allows parents to control the time their children spend using the app. Parents have complete authority to enable a schedule that matches their routine preferences.
@@ -163,24 +163,22 @@ There are several perks of using Messenger Kids Sleep Mode.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-acquisition-101-maximizing-youtubers-earnings/"><u>[Updated] 2024 Approved Channel Acquisition 101 Maximizing Youtubers' Earnings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-immersive-worlds-with-youtubes-top-10-vr-videos/"><u>[Updated] In 2024, Unlock Immersive Worlds with YouTube's Top 10 VR Videos</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-apple-iphone-14-pro-max-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock Apple iPhone 14 Pro Max After Forgetting the Passcode? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/evolutionary-leap-why-now-meet-a-social-innovator-at-facebook/"><u>Evolutionary Leap: Why Now, Meet a 'Social Innovator' At Facebook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-excel-by-digital-signature-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to sign Excel by digital signature</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovating-restraint-how-will-upcoming-us-antitrust-laws-impact-big-tech/"><u>Innovating Restraint: How Will Upcoming US Antitrust Laws Impact Big Tech?</u></a></li>
-<li><a href="https://games-able.techidaily.com/investing-wisely-in-playstation-entertainment/"><u>Investing Wisely in PlayStation Entertainment</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-it-time-for-faces-to-face-off-in-the-real-estate-arena-with-shops/"><u>Is It Time for Faces to Face-Off in the Real Estate Arena with Shops?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209540070-9781632950536-living-inside-out/"><u>Living Inside Out | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-launches-customizable-digital-alter-egos/"><u>Oculus Launches Customizable Digital Alter Egos</u></a></li>
-<li><a href="https://facebook.techidaily.com/renewables-redefined-facebooks-complete-energy-overhaul/"><u>Renewables Redefined: Facebook's Complete Energy Overhaul</u></a></li>
-<li><a href="https://facebook.techidaily.com/scaling-up-social-reach-by-targeting-various-fb-clusters/"><u>Scaling Up Social Reach by Targeting Various FB Clusters</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-integration-at-what-cost-dissecting-the-pros-and-cons-of-facebook-for-app-sign-ins/"><u>Social Integration at What Cost? Dissecting the Pros & Cons of Facebook for App Sign-Ins</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/social-media-integration-for-amplified-youtube-shorts-reach-for-2024/"><u>Social Media Integration for Amplified YouTube Shorts Reach for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/stealth-socializers-disguising-fb-connections/"><u>Stealth Socializers: Disguising FB Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-hand-guiding-facebook-group-conversations/"><u>The Hidden Hand Guiding Facebook Group Conversations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-pantheon-of-praise-celebrating-ten-superstar-posts/"><u>The Pantheon of Praise Celebrating Ten Superstar Posts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-techniques-succeeding-in-spotify-advertising/"><u>Top Techniques Succeeding in Spotify Advertising</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-seal-of-credibility-writing-journalisms-finale/"><u>[New] In 2024, Seal of Credibility Writing Journalism's Finale</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/everaging-the-power-of-creative-commons-rights/"><u>[New] Leveraging the Power of Creative Commons Rights</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-ultimate-selection-best-8-websites-with-striking-3d-and-glamourous-text/"><u>2024 Approved Ultimate Selection Best 8 Websites with Striking 3D & Glamourous Text</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/comet-conveyance-corner-cosmic-data-rescue-hub/"><u>Comet Conveyance Corner - Cosmic Data Rescue Hub</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-oneplus-ace-2-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On OnePlus Ace 2 Pro Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oppo-reno-11-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-being-a-meta-verified-user-worth-the-expense/"><u>Is Being a Meta Verified User Worth the Expense?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/professional-capture-tools-for-pcmac-devices/"><u>Professional Capture Tools for PC/Mac Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-mistrust-rises-big-tech-companies-under-fire-especially-facebook/"><u>Public Mistrust Rises: Big Tech Companies Under Fire Especially Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-strategies-and-successes-at-facebook/"><u>Sheryl’s Strategies and Successes at Facebook</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simplify-your-payments-and-access-control-learn-how-to-generate-nfc-passes-using-google-wallet-a-step-by-step-guide-gadgetflow/"><u>Simplify Your Payments and Access Control: Learn How to Generate NFC Passes Using Google Wallet - A Step-by-Step Guide | GadgetFlow</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-group-discussions-with-channels-integration/"><u>Simplifying Group Discussions with Channels Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-whistleblowers-guide-to-understanding-facebook-data/"><u>The Whistleblower's Guide to Understanding Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-skyrocket-likes-and-share-ratio-in-fb-groups/"><u>Tips to Skyrocket Likes and Share Ratio in FB Groups</u></a></li>
 </ul></div>
 

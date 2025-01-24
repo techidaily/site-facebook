@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2025-01-15T16:19:53.693Z
-updated: 2025-01-18T16:28:01.258Z
+date: 2025-01-18T20:32:05.632Z
+updated: 2025-01-24T16:55:54.977Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,19 +83,15 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-oppo-find-n3-flip-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-motorola-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Motorola</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-will-social-media-giants-influence-local-retail-spaces/"><u>How Will Social Media Giants Influence Local Retail Spaces?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-vivo-y100-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Vivo Y100</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/metaverse-and-multiverse-demystified-an-in-depth-guide-for-2024/"><u>Metaverse and Multiverse Demystified An In-Depth Guide for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-motorola-moto-g34-5g-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Motorola Moto G34 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/rescheduling-of-whatsapps-may-15-policy-deadline/"><u>Rescheduling of WhatsApp's May 15 Policy Deadline</u></a></li>
-<li><a href="https://facebook.techidaily.com/restoring-social-media-passes-regaining-fb-account-access/"><u>Restoring Social Media Passes: Regaining FB Account Access</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/stay-connected-using-your-apple-watch-to-keep-up-with-loved-ones-tips-from-zdnet/"><u>Stay Connected: Using Your Apple Watch to Keep Up with Loved Ones - Tips From ZDNET</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-to-creating-an-in-house-chatbot-similar-to-chatgpt-on-a-desktop-pc/"><u>Step-by-Step Guide to Creating an In-House Chatbot Similar to ChatGPT on a Desktop PC</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/streamline-mundane-hr-tasks-using-5-effective-ai-powered-tools/"><u>Streamline Mundane HR Tasks Using 5 Effective AI-Powered Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-savvy-how-to-reset-facebook-conversations/"><u>The Social Media Savvy: How to Reset Facebook Conversations</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultimate-list-of-freelancing-opportunity-areas/"><u>Ultimate List of Freelancing Opportunity Areas</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-best-zero-cost-game-video-editing-tools-this-year-for-2024/"><u>Updated Best Zero-Cost Game Video Editing Tools This Year for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-speed-dial-for-vimeo-video-loading-for-2024/"><u>[New] Speed Dial for Vimeo Video Loading for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-understanding-and-executing-photo-gender-modification-online-for-2024/"><u>[New] Understanding and Executing Photo Gender Modification Online for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-maximize-your-tiktok-pro-editors-playbook/"><u>[Updated] In 2024, Maximize Your TikTok Pro Editor's Playbook</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-streamlining-audio-interpretation-a-comprehensive-guide-for-google-for-2024/"><u>[Updated] Streamlining Audio Interpretation A Comprehensive Guide for Google for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-yourself-from-facebook-shared-pics/"><u>Eliminate Yourself From Facebook Shared Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-new-front-in-the-war-against-misinformation/"><u>FB's New Front in the War Against Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-facebook-today-memories/"><u>Harnessing the Power of Facebook Today Memories</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-explore-creativity-top-8-innovative-editing-tools-for-iphone-android/"><u>In 2024, Explore Creativity Top 8 Innovative Editing Tools for iPhone, Android</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-srt-a-thorough-exploration-of-its-essence/"><u>In 2024, Mastering SRT A Thorough Exploration of Its Essence</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-media-renewing-your-facebook-password/"><u>Secure Your Social Media - Renewing Your Facebook Password</u></a></li>
 </ul></div>
 

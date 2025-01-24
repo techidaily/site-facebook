@@ -1,7 +1,7 @@
 ---
 title: "Cutting the Social Cord: Unlinking Insta & FB"
-date: 2024-08-08T11:19:27.321Z
-updated: 2024-08-09T11:19:27.321Z
+date: 2025-01-21T16:23:40.305Z
+updated: 2025-01-24T20:25:31.874Z
 tags:
   - facebook
 categories:
@@ -19,24 +19,19 @@ thumbnail: https://thmb.techidaily.com/8984f3e954dc5418ee2dd74f85120f2ef763c0382
 
  If you'd rather keep the two social networks separate though, you'll need to go through a series of simple steps using your Meta Accounts Center.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Disconnect Your Instagram Account From Facebook
 
  First, you're going to want to open up Instagram on your phone. Then, you'll need to follow the steps below:
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram settings page new](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-settings-page-new.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Instagram accounts center screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-accounts-center-screenshot.jpg)
 
 ![Meta connected experience accounts page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/meta-connected-experience-accounts-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![confirm account removal page on Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/confirm-account-removal-page-on-instagram.jpg)
 
@@ -54,6 +49,10 @@ Close
 
  Removing your Facebook or Instagram account from the Accounts Center is not the same as [deleting or deactivating your Instagram account](https://www.makeuseof.com/tag/deactivate-delete-instagram-account/) . You will need to follow different steps to do this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Instagram Posts From Facebook
 
  If you want to remove your existing Instagram posts from your Facebook profile, there are two ways you could go about it.
@@ -64,22 +63,25 @@ Close
 
  Here's how to delete your Instagram posts shared on Facebook through your**Activity Log** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![facebook profile page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-profile-page-screenshot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Facebook profile menu page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-profile-menu-page-screenshot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook activity log page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-activity-log-page-screenshot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook manage post page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-manage-post-page-screenshot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -107,14 +109,11 @@ Close
 
  If you want to keep your Facebook and Instagram separate, follow the steps above to unlink your accounts. If you later decide that you want to link them again, you can always use the Accounts Center to link them again.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +122,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-zoomelitevue-7-enhance-and-resize-like-a-pro-for-2024/"><u>[New] ZoomEliteVue 7 Enhance & Resize Like a Pro for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-beginners-guide-to-embedding-youtube-playlists-in-code-for-2024/"><u>[Updated] A Beginner's Guide to Embedding YouTube Playlists in Code for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-beyond-the-basics-embedding-platforms-reviewed/"><u>[Updated] In 2024, Beyond the Basics Embedding Platforms Reviewed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-secret-spotters-where-to-find-your-snappiest-ringtone-for-2024/"><u>[Updated] Secret Spotters Where to Find Your Snappiest Ringtone for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/best-online-destinations-for-sparkling-and-metallic-letters/"><u>Best Online Destinations for Sparkling and Metallic Letters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Infinix Hot 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-rolls-out-reel-ads-fb-trials-story-stickers/"><u>Instagram Rolls Out Reel Ads, FB Trials Story Stickers</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-gpt-a-new-frontier-for-cyberattacks-on-banks-and-pcs/"><u>Is GPT a New Frontier for Cyberattacks on Banks & PCs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-groups-establishing-and-updating-rule-sets/"><u>Mastering Facebook Groups: Establishing & Updating Rule Sets</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-total-digital-detox-delete-facebook/"><u>Navigating Through Total Digital Detox: Delete Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/positive-posts-avoiding-unintentional-insults-on-fb/"><u>Positive Posts: Avoiding Unintentional Insults on FB</u></a></li>
+<li><a href="https://fox-that.techidaily.com/quick-fixes-restoring-access-by-resetting-your-iphone-ipad-or-mac-screen-time-passcode/"><u>Quick Fixes: Restoring Access by Resetting Your iPhone, iPad or Mac Screen Time Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-engagement-social-gains/"><u>Social Engagement, Social Gains</u></a></li>
+<li><a href="https://extra-information.techidaily.com/strategies-for-itunes-podcast-enrollment-success/"><u>Strategies for iTunes Podcast Enrollment Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-mystery-of-sudden-facebook-profile-hibernation/"><u>Tackling the Mystery of Sudden Facebook Profile Hibernation</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-second-life-in-the-dawn-of-the-metaverse-era/"><u>The Case For Second Life in the Dawn of The Metaverse Era?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-blueprint-securing-pages-and-groups-on-fb/"><u>The Social Blueprint: Securing Pages and Groups on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/underestimating-metas-social-tyranny/"><u>Underestimating Meta’s Social Tyranny</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/video-storing-capabilities-and-limitations-insights-into-64128gb-drives/"><u>Video Storing Capabilities & Limitations - Insights Into 64/128GB Drives</u></a></li>
+</ul></div>
 

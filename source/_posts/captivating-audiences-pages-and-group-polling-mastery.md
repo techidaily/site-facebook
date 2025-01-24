@@ -1,7 +1,7 @@
 ---
 title: "Captivating Audiences: Pages & Group Polling Mastery"
-date: 2024-08-08T11:21:01.233Z
-updated: 2024-08-09T11:21:01.233Z
+date: 2025-01-20T18:57:05.020Z
+updated: 2025-01-24T19:51:33.141Z
 tags:
   - facebook
 categories:
@@ -20,15 +20,13 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
  In this guide, we’ll show you how to create a poll on Facebook—specifically for posts on Pages, in Groups, and on your Stories.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Create a Poll on a Facebook Page
 
  Facebook supports adding a poll to your Facebook Page, and this way you can collect responses from the people who follow it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Create a poll on a Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-page.png)
 
 To create a poll on your page from Facebook’s desktop site:
@@ -45,17 +43,15 @@ To create a poll on your page from Facebook’s desktop site:
 
  Related: [Here's What Facebook's New Page Labels Mean](https://www.makeuseof.com/what-facebook-new-page-labels-mean/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Start a Poll in a Facebook Group
 
  You can add a poll as a post to your Facebook Groups as well. The procedure to do this is similar to how you add a poll to a Facebook Page.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Start a poll in a Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-group.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A Group poll helps collect responses from its members. Here's how you set one up::
 
@@ -67,16 +63,21 @@ To create a poll on your page from Facebook’s desktop site:
 6. Click the**Poll options** button to choose how the group members can interact with your poll. Here, you can decide if members can select multiple options in your poll. You can also decide if group members can add their own options.
 7. Finally, click**Post** at the bottom to publish your poll.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Post a Poll to a Facebook Story
 
  You must use Facebook’s iOS or Android app to add a poll to a Facebook Story. This is because Facebook’s desktop version doesn’t offer the option to make a poll in your Stories.
 
 ![Post a poll in a Facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-story.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![Poll options in a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/poll-options-facebook-story.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -92,20 +93,18 @@ To create a poll in a Story:
 8. Select**Share** at the bottom to share your poll in your Facebook Story.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Collect Opinions With Ease Using Facebook Polls
 
  With Facebook allowing you to create polls in your Pages, Groups, and Stories, it’s easy to collect opinions about various topics from your social media following. Try it out and see how it works for yourself.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,6 +113,23 @@ To create a poll in a Story:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-superior-nintendo-switch-hd-recording-for-2024/"><u>[New] Superior Nintendo Switch HD Recording for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-amplify-your-message-facebook-engagement-secrets-for-2024/"><u>[Updated] Amplify Your Message Facebook Engagement Secrets for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-download-and-relive-a-compreran-review-of-top-youtube-playlist-extractors/"><u>[Updated] Download and Relive A Compreran Review of Top YouTube Playlist Extractors</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-xs-maxipad-drfone-by-drfone-virtual-ios/"><u>5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone XS Max/iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/210966189-9781088228791-episodio-en-la-vida-de-tiberius/"><u>Episodio en la Vida de Tiberius | Free Book</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-the-persistent-stuttering-problem-in-deathloop-was-finally-solved-for-pc-users/"><u>How the Persistent Stuttering Problem in Deathloop Was Finally Solved for PC Users</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-and-restore-proper-functionality-of-the-stereo-mix-setting/"><u>How To Repair and Restore Proper Functionality of the 'Stereo Mix' Setting</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-a05s-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy A05s without App | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-comprehensive-list-of-free-video-intros/"><u>In 2024, Comprehensive List of Free Video Intros</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-voice-alteration-techniques-for-enhanced-competitive-play-in-the-world-of-free-fire-gaming/"><u>Mastering Voice Alteration Techniques for Enhanced Competitive Play in the World of Free Fire Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-anonymous-interactions-on-fb-groups/"><u>Navigating the Maze of Anonymous Interactions on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/nexus-of-networks-a-new-chapter-for-fb-and-insta/"><u>Nexus of Networks: A New Chapter for FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-expense-for-facebook-users-to-regain-access-post-hack/"><u>Oculus Expense for Facebook Users to Regain Access Post-Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/96317414-9781401932893-the-alchemists-handbook/"><u>The Alchemist's Handbook | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/1124165-9780892545933-the-art-of-chart-interpretation/"><u>The Art of Chart Interpretation | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-warnings-about-the-social-media-universe/"><u>Three Warnings About the Social Media Universe</u></a></li>
+</ul></div>
 

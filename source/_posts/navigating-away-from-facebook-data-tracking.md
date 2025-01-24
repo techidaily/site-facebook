@@ -1,7 +1,7 @@
 ---
 title: Navigating Away From Facebook Data Tracking
-date: 2025-01-12T16:20:50.236Z
-updated: 2025-01-18T16:04:38.054Z
+date: 2025-01-20T21:57:14.019Z
+updated: 2025-01-24T18:27:14.948Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Facebook Track You?
 
  We've become a society intent on sharing...**everything.** How many times do you scroll through your Facebook feed and sigh at the information people are spewing forth? It goes further than that.
@@ -41,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
  Related:[What Are Facebook Shadow Profiles?](http://www.makeuseof.com/tag/facebook-shadow-profiles/)
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Facebook Pixel
 
@@ -71,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
@@ -80,19 +80,23 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Facebook Tracks Users, Even Without an Account
 
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -108,15 +112,15 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Change Facebook Ad Preferences
 
@@ -126,10 +130,6 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
@@ -138,15 +138,15 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has[blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
 **Download:** uBlock Origin for[Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### NoScript
 
@@ -166,15 +166,15 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Epic Privacy Browser
 
 [Epic Privacy Browser](http://www.epicbrowser.com/) protects you from "600+ tracking attempts in an average browsing session" and can see lower-quoted prices for flights and other services. It also has an integrated VPN with servers in eight countries.
 
 **Download:** Epic Privacy Browser for[Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Tor Browser
 
@@ -187,10 +187,6 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 [Brave](https://brave.com/) is a Chromium-based browser with a complete focus on privacy and security. It features an interesting approach to whitelisting: adding tiny micro-payments for your favorite publications.
 
 **Download** : Brave for Windows (64-bit) | Windows (32-bit) | macOS | Linux
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Advertising Opt-Outs and Disabling Third-Party Cookies
 
@@ -205,6 +201,10 @@ Users can opt out of behavioral advertising using a regional tool.
  Users should also disable third-party cookies in their browsers. You can disable third-party cookies via the Settings menu in your browser of choice. Stopping third-party cookies puts a halt on some advertising and behavioral tracking cookies making their way onto your system.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Cookie AutoDelete
 
@@ -241,21 +241,15 @@ Image Credit: Sabphoto/Shutterstock
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-add-visual-appeal-with-these-methods-for-yt-video-inclusion-in-ppt-for-2024/"><u>[New] Add Visual Appeal with These Methods for YT Video Inclusion in PPT for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-your-first-video-journey-using-pixiz-effectively/"><u>[Updated] In 2024, Your First Video Journey Using Pixiz Effectively</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-backward-movie-playback-on-iphones/"><u>2024 Approved Navigating Backward Movie Playback on iPhones</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Oppo Find X6 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/essential-fixes-for-frequent-icloud-glitches-on-your-apple-device/"><u>Essential Fixes for Frequent iCloud Glitches on Your Apple Device</u></a></li>
-<li><a href="https://win-top.techidaily.com/establish-your-e-commerce-presence-building-a-digital-shop-using-massmail-solutions/"><u>Establish Your E-Commerce Presence: Building a Digital Shop Using MassMail Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-whats-stirring-up-debate-in-facebook-documents/"><u>Examining What's Stirring Up Debate in Facebook Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/flawless-music-playback-directly-from-facebook-to-spotify/"><u>Flawless Music Playback Directly From Facebook to Spotify</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-effectively-communicate-a-refund-request-on-facebook/"><u>How to Effectively Communicate a Refund Request on Facebook</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-xr-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone XR without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-impact-crafting-stellar-fb-gatherings-and-meetings/"><u>Maximizing Impact: Crafting Stellar FB Gatherings and Meetings</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-ocean-discovering-fresh-fb-clusters/"><u>Navigating the Digital Ocean: Discovering Fresh FB Clusters</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-dual-screen-video-editor-top-free-online-and-offline-choices/"><u>New 2024 Approved Dual-Screen Video Editor Top Free Online and Offline Choices</u></a></li>
-<li><a href="https://article-files.techidaily.com/snapchat-spotlight-how-and-why-it-matters/"><u>Snapchat Spotlight How & Why It Matters</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-facebook-photo-compilation/"><u>Step-by-Step Guide to Facebook Photo Compilation</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-photodna-its-functionality-unveiled/"><u>Understanding PhotoDNA: Its Functionality Unveiled</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-your-guide-to-cost-free-android-screenshots/"><u>[Updated] 2024 Approved Your Guide to Cost-Free Android Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-compelling-stories-for-smm-through-ripl/"><u>Crafting Compelling Stories for SMM Through Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-the-powerful-outcomes-of-social-disconnection/"><u>Digital Detox: The Powerful Outcomes of Social Disconnection</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-drought-facebook-and-its-kin-shutdown/"><u>Digital Drought: Facebook & Its Kin Shutdown</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Oppo Reno 11 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-changing-up-the-sound-how-to-customize-your-iphone-tunes/"><u>In 2024, Changing Up the Sound How to Customize Your iPhone Tunes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/master-video-format-transformation-resize-your-footage-to-popular-aspects-like-53-or-32-with-simple-techniques/"><u>Master Video Format Transformation: Resize Your Footage to Popular Aspects Like 5:3 or 3:2 with Simple Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnect-on-fb-post-block-friendship-guide/"><u>Reconnect on FB: Post-Block Friendship Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/remedy-restoring-working-right-click-on-windows-11-touchpad/"><u>Remedy: Restoring Working Right-Click on Windows 11 Touchpad</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/windows-11-robocopy/"><u>Windows 11 Robocopy: 強力なセキュリティと効率性によるファイル同期の最適解決方法</u></a></li>
 </ul></div>
 

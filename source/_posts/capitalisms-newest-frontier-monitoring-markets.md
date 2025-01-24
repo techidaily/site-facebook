@@ -1,7 +1,7 @@
 ---
 title: "Capitalism's Newest Frontier: Monitoring Markets"
-date: 2024-08-08T11:19:57.093Z
-updated: 2024-08-09T11:19:57.093Z
+date: 2025-01-17T19:22:45.537Z
+updated: 2025-01-24T21:04:19.775Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
  In theory, surveillance capitalism helps businesses create better products, hold efficient inventory, and serve customers exactly what they need as soon as possible. By accurately pinpointing or swaying supply and demand, surveillance capitalism opens up a world of endless convenience.
@@ -36,14 +40,16 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Granular Data Gathering
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -55,19 +61,12 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 ### Emotional Volatility
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
  According to [Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many [teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
@@ -82,16 +81,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
  Ads, pop-ups, and direct email marketing has conditioned an entire generation to have poor impulse control. We have become accustomed to self-soothing with our purchases, giving into every emotional trigger and craving for a never-ending stream of dopamine hits from things that we may not always need.
 
  The ease of transactions also make it easy to dissociate from the price we pay for consumption, such as the environmental toll and the human hands that make it possible. In exchange for cheap electronics and trendy clothing, we have learned to close our eyes to how it was made, which often has roots in human rights abuses and pollution.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a [49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
@@ -99,14 +103,8 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  In addition, Amazon's Prime membership which offers free and fast shipping also [hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### The Commodification of Personal Experiences
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
@@ -127,14 +125,11 @@ In fact, we are already running out of ways to opt out.
 
  Thankfully, there are still some things you can do to make it harder for them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,6 +138,20 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-premier-tools-to-record-your-pc-screenshots/"><u>[Updated] In 2024, Premier Tools to Record Your PC Screenshots</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-capturing-slideshows-on-screen-webcam-tips-and-tricks/"><u>2024 Approved Capturing Slideshows on Screen Webcam Tips and Tricks</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-tips-for-dealing-with-the-mingwm10dll-missing-error/"><u>Comprehensive Tips for Dealing with the mingwm10.dll Missing Error</u></a></li>
+<li><a href="https://facebook.techidaily.com/expand-your-horizon-effective-strategies-for-group-posting/"><u>Expand Your Horizon: Effective Strategies for Group Posting</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-motorola-edge-40-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Motorola Edge 40 Phone Screen?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-note-12t-pro-lock-screen-password-by-drfone-android/"><u>How To Change Xiaomi Redmi Note 12T Pro Lock Screen Password?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Vivo Y77t? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/into-new-realities-the-emergence-and-explanation-of-metaverse-by-fb/"><u>Into New Realities: The Emergence and Explanation of Metaverse by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-gridlock-all-major-social-networks-down/"><u>Online Gridlock: All Major Social Networks Down</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-adding-extra-storage-by-attaching-an-external-drive-to-xbox-one/"><u>Step-by-Step Tutorial: Adding Extra Storage by Attaching an External Drive to Xbox One</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-actual-user-drop-rates/"><u>Unveiling Facebook: Actual User Drop Rates?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/warriors-way-selecting-superior-hand-to-hand-titles-for-2024/"><u>Warrior's Way Selecting Superior Hand-to-Hand Titles for 2024</u></a></li>
+</ul></div>
 

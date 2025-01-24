@@ -1,7 +1,7 @@
 ---
 title: "Facebook Calls for Caution: Younger Generations Stepping Back From Instagram"
-date: 2025-01-14T16:06:48.675Z
-updated: 2025-01-18T16:04:56.431Z
+date: 2025-01-23T20:03:06.573Z
+updated: 2025-01-24T22:13:14.755Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ Here's what to know about the planned Instagram features.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is the Planned "Take a Break" Feature?
@@ -45,7 +45,7 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Nudging Teens Away From Potentially Harmful Content
@@ -59,7 +59,7 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
@@ -73,7 +73,7 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -101,24 +101,20 @@ Here's how Clegg explained it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-altering-meeting-screens-in-microsoft-teams-for-2024/"><u>[New] Altering Meeting Screens in Microsoft Teams for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-harmonizing-volume-dial-down-with-fl-studio-features/"><u>[Updated] 2024 Approved Harmonizing Volume Dial-Down with FL Studio Features</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-hashtags-for-youtube-to-get-your-views-to-6-figures-for-2024/"><u>[Updated] Best Hashtags for YouTube To Get Your Views to 6 Figures for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-finding-the-balance-adding-videos-to-text-on-a-budget-for-2024/"><u>[Updated] Finding the Balance Adding Videos to Text on a Budget for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-creativity-your-steps-toward-a-thriving-design-career/"><u>2024 Approved Unlocking Creativity Your Steps Toward a Thriving Design Career</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for ZTE Axon 40 Lite | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-effortless-conversions-selecting-the-10-prime-flv-to-youtubes-options/"><u>In 2024, Effortless Conversions Selecting the 10 Prime Flv to YouTubes Options</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastery-over-silent-pcs-fixing-audio-device-not-installed-on-windows-11/"><u>Mastery Over Silent PCs: Fixing 'Audio Device Not Installed' On Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/revealed-the-business-of-streaming-tunes-and-selling-them/"><u>Revealed: The Business of Streaming Tunes and Selling Them</u></a></li>
-<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/step-by-step-instructions-for-exporting-and-backing-up-whatsapp-chats-from-mobile-devices-to-pcs-latest-techniques-2-cuisine/"><u>Step-by-Step Instructions for Exporting and Backing Up WhatsApp Chats From Mobile Devices to PCs - Latest Techniques 2 Cuisine.</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-av2000-wifi-extender-assessment-high-performance-yet-lacks-aesthetic-appeal/"><u>TP-Link AV2000 WiFi Extender Assessment: High Performance Yet Lacks Aesthetic Appeal</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-advantages-and-reasons-behind-multiple-profiles-on-a-single-facebook-id/"><u>Understanding the Advantages and Reasons Behind Multiple Profiles on a Single Facebook ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-evolution-of-metas-user-confidentiality/"><u>Understanding the Evolution of Meta's User Confidentiality</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
-<li><a href="https://facebook.techidaily.com/validation-needed-is-securityfacebookmailcom-a-safe-fb-email/"><u>Validation Needed: Is @security@facebookmail.com a Safe FB Email?</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-network-prioritizes-user-anonymity-meta-or-facebook/"><u>Which Network Prioritizes User Anonymity, Meta or Facebook?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-how-to-record-gameplay-with-obs/"><u>[New] In 2024, How to Record Gameplay with OBS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-echoes-of-amusement-comical-tune-transformations/"><u>[Updated] 2024 Approved Echoes of Amusement Comical Tune Transformations</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discover-the-hottest-tiktok-products-at-amazon-for-2024/"><u>[Updated] Discover the Hottest TikTok Products at Amazon for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/eco-friendly-total-renewable-energy-for-fb/"><u>Eco-Friendly: Total Renewable Energy for FB</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/estrategias-efectivas-para-instalar-y-usar-el-programa-de-embalaje-winxdvd-una-guia-completa/"><u>Estrategias Efectivas Para Instalar Y Usar El Programa De Embalaje WinXDVD: Una Guía Completa</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-and-using-messengers-without-facebook-connection/"><u>Exploring and Using Messengers without Facebook Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-blacklist-why-it-occurs/"><u>Facebook Blacklist: Why It Occurs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-lava-yuva-3-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Lava Yuva 3 Face Lock?</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/guide-complet-pour-la-recovery-de-donnees-dun-bios-en-francais/"><u>Guide Complet Pour La Recovery De Données D’un BIOS en Français.</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-fix-qualcomm-atheros-bluetooth-issues-on-windows-10/"><u>How to Fix Qualcomm Atheros Bluetooth Issues on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-users-youve-blocked-on-fb/"><u>Identifying Users You've Blocked on FB</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-step-by-step-guide-to-full-periscope-capabilities/"><u>In 2024, Step-by-Step Guide to Full Periscope Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/llifes-comeback-story-will-it-play-out-in-metaverse-times/"><u>LLife's Comeback Story: Will It Play Out In Metaverse Times?</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-designate-safe-status-on-fb/"><u>Techniques to Designate Safe Status on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-purge-facebooks-view-logs-today/"><u>Why You Should Purge Facebook's View Logs Today</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Cutting Off Mobile Browsing Feature: Facebook"
-date: 2024-08-08T11:21:37.932Z
-updated: 2024-08-09T11:21:37.932Z
+date: 2025-01-17T19:03:27.479Z
+updated: 2025-01-24T20:42:28.566Z
 tags:
   - facebook
 categories:
@@ -16,16 +16,18 @@ thumbnail: https://thmb.techidaily.com/7258b8f35a232c1cea7c283f6887f95e75da539c9
 ## Cutting Off Mobile Browsing Feature: Facebook
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Quick Links
 
 * [Can You Disable Facebook's In-App Browser?](#can-you-disable-facebook-39-s-in-app-browser)
 * [How to Turn Off Facebook's Mobile Browser](#how-to-turn-off-facebook-39-s-mobile-browser)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Only message links in Facebook can be opened in external browser by using privacy settings.
@@ -35,8 +37,9 @@ thumbnail: https://thmb.techidaily.com/7258b8f35a232c1cea7c283f6887f95e75da539c9
  The Facebook app opens links in its built-in browser by default. But what if you want to use your own preferred browser app instead? Here's what you need to know about disabling Facebook's in-app browser.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Disable Facebook's In-App Browser?
 
  Facebook used to give app users more control over the links they opened, allowing you to open most links in an external browser. However, when we tested the feature in 2024, we saw that this is no longer the case on both the Android and iOS apps.
@@ -46,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/7258b8f35a232c1cea7c283f6887f95e75da539c9
  So, while you can turn off Facebook's in-app browser for message links, other links will continue to open in the app's browser.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off Facebook's Mobile Browser
 
  Disabling Facebook's in-app browser is simple. However, the privacy setting to open up links externally only works for links sent in messages.
@@ -79,14 +83,11 @@ Close
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,6 +96,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-boosting-productivity-utilizing-zoom-on-win11-devices/"><u>[New] Boosting Productivity Utilizing Zoom on Win11 Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-revealing-the-rich-detail-of-your-roblox-journey/"><u>[Updated] 2024 Approved Revealing the Rich Detail of Your Roblox Journey</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-simple-android-recording-without-rooting-steps/"><u>2024 Approved Simple Android Recording Without Rooting Steps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/decode-the-past-comprehensive-tutorial-for-inverting-image-searches-on-instagram/"><u>Decode the Past Comprehensive Tutorial for Inverting Image Searches on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discipline-validity-in-banning-trump-short-term-measure/"><u>Digital Discipline: Validity in Banning Trump, Short-Term Measure</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebook-written-policies-via-transparency-hub-launch/"><u>Exploring Facebook’ Written Policies via Transparency Hub Launch</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unravel-the-mystery-of-scouring-exceptional-photos-on-pexels/"><u>In 2024, Unravel the Mystery of Scouring Exceptional Photos on Pexels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/is-it-possible-to-get-free-mp3-downloads-using-keepvid-for-youtube-content/"><u>Is It Possible to Get Free MP3 Downloads Using KeepVid for YouTube Content?</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-social-media-links-reviving-logged-out-faces/"><u>Resetting Social Media Links: Reviving Logged-Out Faces</u></a></li>
+<li><a href="https://facebook.techidaily.com/scheduling-success-uncover-the-best-5-free-facebook-timing-methods/"><u>Scheduling Success: Uncover the Best 5 Free Facebook Timing Methods</u></a></li>
+<li><a href="https://win-guides.techidaily.com/the-art-of-keyword-mastery-detailed-insights-and-expert-tips-to-boost-your-websites-search-engine-visibility/"><u>The Art of Keyword Mastery: Detailed Insights & Expert Tips to Boost Your Website's Search Engine Visibility</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-zte-axon-40-lite-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from ZTE Axon 40 Lite to Other Android Devices | Dr.fone</u></a></li>
+</ul></div>
 

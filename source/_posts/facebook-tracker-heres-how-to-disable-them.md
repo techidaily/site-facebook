@@ -1,7 +1,7 @@
 ---
 title: Facebook Tracker? Here's How to Disable Them
-date: 2025-01-15T16:14:05.498Z
-updated: 2025-01-18T16:09:45.273Z
+date: 2025-01-23T17:28:17.631Z
+updated: 2025-01-24T17:08:49.256Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  We've become a society intent on sharing...**everything.** How many times do you scroll through your Facebook feed and sigh at the information people are spewing forth? It goes further than that.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Facebook Like and Share Plug-In Tracking
 
  The Facebook "Like" and "Share" buttons found on almost every website funnel data back into the Facebook advertising algorithm. The presence of the Facebook social share buttons means Facebook is hoovering up your data, regardless of whether you have an account or not.
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  As with Facebook tracking via the Like and Share social plug-ins, the crux of the issue is whether Facebook provides enough information to users to make informed decisions regarding data tracking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Facebook Cookies
 
  Facebook places a cookie on your computer if you have a Facebook account. It also places a cookie on your computer if you use "Facebook Products, including our website or apps, or visit other websites and apps that use Facebook Products (including the Like button or other Facebook Technologies)."
@@ -51,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Facebook Tracking via Instagram and WhatsApp
@@ -70,29 +78,29 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
  The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated[Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Tracks Users, Even Without an Account
 
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -114,10 +122,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Change Facebook Ad Preferences
 
  One of the first things you can do is change your[Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
@@ -126,21 +130,17 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### uBlock Origin
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
@@ -153,6 +153,10 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
 
 **Download** : NoScript for[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Privacy Badger
 
@@ -172,15 +176,15 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
 **Download:** Epic Privacy Browser for[Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tor Browser
 
 [Tor](http://www.torproject.org/) is free anonymity software that usually runs as part of a modified Mozilla Firefox browser. It is well known as the home of darknet markets, dissidents, and other nefarious services. However, you can use it to stop trackers and keep your network traffic anonymous.
 
 **Download:** Tor Browser for Windows | macOS | Linux (All Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Brave
 
@@ -207,10 +211,6 @@ Users can opt out of behavioral advertising using a regional tool.
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
 
 **Download:** Cookie AutoDelete for[Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Should You Block Facebook Tracking?
 
@@ -241,21 +241,14 @@ Image Credit: Sabphoto/Shutterstock
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ree-youtube-intros-a-comprehensive-instructional-guide-for-2024/"><u>[New] Free YouTube Intros A Comprehensive Instructional Guide for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-self-created-soundtracks-for-your-instagram-alerts/"><u>[Updated] 2024 Approved Self-Created Soundtracks for Your Instagram Alerts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-color-grading-utilizing-luts-from-cg-central/"><u>2024 Approved Mastering Color Grading Utilizing LUTs From CG Central</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-xs-max-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone XS Max without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/1728504382539-usb/"><u>如何找回被删除且无法访问的USB闪存数据:四种方法</u></a></li>
-<li><a href="https://win-blog.techidaily.com/convert-raw-images-to-jpg-for-free-using-movavis-web-service/"><u>Convert RAW Images to JPG for Free Using Movavi's Web Service</u></a></li>
-<li><a href="https://facebook.techidaily.com/fan-experience-elevated-with-fb-and-twt-coverage/"><u>Fan Experience Elevated with FB & Twt Coverage</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-find-the-exact-date-you-created-your-facebook-account/"><u>How to Find the Exact Date You Created Your Facebook Account</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-honor-magic-6-pro-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Honor Magic 6 Pro?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-to-mp4-perfection-uncover-2-most-effective-techniques/"><u>Instagram to MP4 Perfection Uncover 2 Most Effective Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/peeling-back-the-layers-what-are-shadowbans-avoidance-guide/"><u>Peeling Back the Layers: What Are Shadowbans? Avoidance Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-reimagined-for-the-modern-mobile-world/"><u>Portal Reimagined for the Modern, Mobile World</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-peace-and-productivity-why-drop-facebook/"><u>Privacy, Peace & Productivity: Why Drop Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-scaffolding-platforms-that-build-community-bonds/"><u>Social Scaffolding: Platforms That Build Community Bonds</u></a></li>
-<li><a href="https://common-error.techidaily.com/successful-strategies-for-addressing-complications-with-windows-feature-update-1903/"><u>Successful Strategies for Addressing Complications with Windows Feature Update 1903</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-gaining-clients-on-social-media-focusing-on-fb/"><u>The Art of Gaining Clients on Social Media: Focusing on FB</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-beginners-guide-to-av1-codec/"><u>[New] 2024 Approved Beginner's Guide to AV1 Codec</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-initiating-seamless-zoom-gatherings/"><u>[New] In 2024, Initiating Seamless Zoom Gatherings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-explore-the-best-phone-options-for-enhanced-gear-vr-immersion/"><u>2024 Approved Explore the Best Phone Options for Enhanced Gear VR Immersion</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-potential-reasons-behind-facebooks-new-name/"><u>Exploring Potential Reasons Behind Facebook's New Name</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-junior-road-rules-and-racer-revelry/"><u>In 2024, Junior Road Rules & Racer Revelry</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-managing-fb-photo-settings/"><u>Maximizing Privacy: Managing FB Photo Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-ban-facebooks-unrestricted-zone-for-vaccine-critics/"><u>Post-Ban, Facebook's Unrestricted Zone for Vaccine Critics</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/unveiling-stalkerware-comprehensive-guide-for-detection-and-elimination-safenetadvisor/"><u>Unveiling Stalkerware: Comprehensive Guide for Detection & Elimination - SafeNetAdvisor</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-purpose-of-renaming-news-feed-on-facebook/"><u>What Is the Purpose of Renaming 'News Feed' On Facebook?</u></a></li>
 </ul></div>
 

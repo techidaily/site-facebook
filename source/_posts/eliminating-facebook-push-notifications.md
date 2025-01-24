@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2025-01-11T16:13:41.419Z
-updated: 2025-01-18T16:10:29.024Z
+date: 2025-01-17T22:25:09.705Z
+updated: 2025-01-24T18:19:44.778Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 
 ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Let's start with the most important question: How do you delete notifications on Facebook?
 
  If you want to remove a Facebook notification on the web app, follow the step-by-step instructions below:
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Clear All Facebook Notifications
 
  When you log into Facebook and see a pile of unread notifications, you'll want to clear them as soon as possible. If you click on the bell icon, the unread notifications red dot disappears.
@@ -49,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  Weirdly, there is no way to clear your unread notifications from the smartphone app without clicking on each one. Instead, you need to perform the process from the web app.
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To mark all of your Facebook notifications as read, follow the guide below:
 
@@ -66,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
 
@@ -87,6 +95,10 @@ Follow the steps below to learn about the process on the web app:
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
  You can also use the menu to re-enable a notification that you'd previously disabled using the first method we discussed.
@@ -102,10 +114,6 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -113,7 +121,7 @@ Follow the steps below to learn about the process on the web app:
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on Android
@@ -121,10 +129,6 @@ Follow the steps below to learn about the process on the web app:
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -136,10 +140,6 @@ Close
 4. Scroll down to**Facebook** and tap on it.
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on iOS
 
@@ -173,18 +173,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-fast-friending-mastering-the-art-of-profile-searches-for-2024/"><u>[New] Fast Friending Mastering the Art of Profile Searches for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-design-guide-youtube-banners-and-thumbnail-creation/"><u>[Updated] Design Guide YouTube Banners & Thumbnail Creation</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-maximizing-video-reach-sharing-youtube-content-via-facebook-network-for-2024/"><u>[Updated] Maximizing Video Reach Sharing YouTube Content via Facebook Network for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/arfs-cutting-edge-feeding-gadget-seamless-timely-nutrition-for-your-beloved-pets/"><u>Arf's Cutting-Edge Feeding Gadget – Seamless, Timely Nutrition for Your Beloved Pets</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722030428601-assessing-the-truthfulness-of-medical-insights-from-chatgpt-a-look-at-its-trustworthiness/"><u>Assessing the Truthfulness of Medical Insights From ChatGPT: A Look at Its Trustworthiness</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/how-can-i-stop-windows-defender-from-deleting-a-file/"><u>How Can I Stop Windows Defender From Deleting a File?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-choices-at-the-click-of-a-button-for-fb-feeds/"><u>Making Choices at the Click of a Button for FB Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-deletion-reality-check-on-fb/"><u>Post-Deletion Reality Check on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-advent-of-advanced-moderation-systems-by-facebook/"><u>The Advent of Advanced Moderation Systems by Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-of-vanishing-presence-in-messaging-apps/"><u>The Impact of Vanishing Presence in Messaging Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-location-services-on-facebook-messenger/"><u>Unlock Location Services on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up/"><u>What Is Big Tech and Why Is the Government Trying to Break It Up?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-future-in-your-pocket-review-of-lgs-portable-4k-display/"><u>2024 Approved The Future in Your Pocket Review of LG's Portable 4K Display</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-honor-magic-5-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Honor Magic 5 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-poco-c51-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Poco C51 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-emails-ever-obsolete/"><u>Are Emails Ever Obsolete?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-communication-on-the-horizon-exciting-changes-coming-to-fbs-messaging-platforms/"><u>Enhanced Communication on the Horizon: Exciting Changes Coming to FB's Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unleashed-3-reasons-to-worry/"><u>Meta Unleashed: 3 Reasons to Worry</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revamped-google-news-feeds-understanding-the-new-layout-and-functionality/"><u>Revamped Google News Feeds: Understanding the New Layout & Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-privacy-by-severing-all-ties-to-facebook/"><u>Securing Privacy by Severing All Ties to Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/simplify-your-design-process-how-to-remove-background-in-figma-for-2024/"><u>Simplify Your Design Process How To Remove Background in Figma for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-signature-wars-claiming-victory-as-meta-gold-or-blue-ticked/"><u>Social Signature Wars: Claiming Victory as Meta-Gold or Blue-Ticked</u></a></li>
+<li><a href="https://article-posts.techidaily.com/softening-audio-levels-alives-approach/"><u>Softening Audio Levels Alive’s Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-handbook-of-handing-over-your-enterprises-social-presence/"><u>The Hidden Handbook of Handing Over Your Enterprise's Social Presence</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unauthorized-recording-of-google-meet-a-comprehensive-guide/"><u>Unauthorized Recording of Google Meet: A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-the-ultimate-guide-to-free-flv-video-editing/"><u>Updated In 2024, The Ultimate Guide to Free FLV Video Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-buzz-elevating-your-fb-communitys-spotlight/"><u>Virtual Buzz: Elevating Your FB Community's Spotlight</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comfort in Conciseness: A Guide for Comment-Free Facebook Updates"
-date: 2024-08-08T11:21:07.754Z
-updated: 2024-08-09T11:21:07.754Z
+date: 2025-01-17T17:41:06.201Z
+updated: 2025-01-24T18:26:37.522Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/60c0536f1fc5d6831a20d36d45e0ac93bc7d119ca
 
  Let's find out how you can disable and manage the comment section of your Facebook post when it becomes necessary.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Things to Know About Turning Off Comments on Facebook
 
  Facebook limits what control you have over your personal posts. Because of this, you cannot fully disable comments on your Facebook posts. But you can limit who can comment on your posts.
@@ -32,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/60c0536f1fc5d6831a20d36d45e0ac93bc7d119ca
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Manage Comments on the Facebook App
 
  Here's how to manage comments on your posts using the Facebook mobile app:
@@ -50,9 +44,6 @@ Close
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Manage Comments Using Facebook Web
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
@@ -61,6 +52,10 @@ Close
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
@@ -74,21 +69,24 @@ Close
  And that's all you need to manage comments on your Facebook post.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Disable Post Comments in a Facebook Group
 
  Unlike personal posts, Facebook allows group administrators to completely disable the comment section of a post in a Facebook group. To do this, follow these steps:
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -100,20 +98,21 @@ Close
 
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Take Control of the Comment Section on Your Facebook Posts
 
  Getting multiple opinions on an issue can be a good thing. However, if you're only sharing personal content, you may want to limit the ability to use the comment section to just those you're close to.
 
  A similar rule applies to groups, if you're not sharing something that requires input from other members, you can simply turn off commenting on the post with the steps shared above.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,6 +121,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-maximizing-mac-audio-quality-in-mixer-streaming/"><u>[New] 2024 Approved Maximizing Mac Audio Quality in Mixer Streaming</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/8-best-free-video-game-sound-effects-you-need-to-know-for-2024/"><u>8 Best Free Video Game Sound Effects You Need to Know for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-gap-between-media-and-authors-with-facebooks-5-million-financing/"><u>Bridging the Gap Between Media and Authors with Facebook's $5 Million Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-measures-to-undo-fb-account-breach-consequences/"><u>Critical Measures to Undo FB Account Breach Consequences</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-7-ways-to-tidy-up-your-profile/"><u>Digital Detox: 7 Ways to Tidy Up Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153264015-fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-oppo-k11-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Oppo K11 5G</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-strategies-for-streaming-fb-live-on-zoom-platform/"><u>In 2024, Strategies for Streaming FB Live on Zoom Platform</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-the-world-of-youtube-live-visual-representations/"><u>Navigating the World of YouTube Live Visual Representations</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/optimize-your-browser-overcoming-high-cpu-use-on-google-chrome/"><u>Optimize Your Browser: Overcoming High CPU Use on Google Chrome</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-with-meta-4-powerful-business-insights/"><u>Revolutionize with META: 4 Powerful Business Insights</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/seamlessly-shift-to-a-local-user-profile-without-microsoft-expert-advice/"><u>Seamlessly Shift to a Local User Profile Without Microsoft - Expert Advice</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/smooth-and-simple-guide-to-iphone-screensaving-process/"><u>Smooth & Simple Guide to Iphone Screensaving Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-break-next-in-line-youths-choice-to-unfollow-instagram/"><u>Social Media Break: Next in Line? Youths' Choice to Unfollow Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-export-instagram-reels-for-facebook-sharing/"><u>Tutorial: Export Instagram Reels for Facebook Sharing</u></a></li>
+</ul></div>
 

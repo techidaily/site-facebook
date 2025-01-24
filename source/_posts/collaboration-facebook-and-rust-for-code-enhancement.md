@@ -1,7 +1,7 @@
 ---
 title: "Collaboration: Facebook & Rust for Code Enhancement"
-date: 2024-08-08T11:19:46.134Z
-updated: 2024-08-09T11:19:46.134Z
+date: 2025-01-17T18:12:23.683Z
+updated: 2025-01-24T21:20:43.020Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
  Joining at the Rust Foundation's highest "platinum" member level, Facebook will commit to "sustaining and growing the Rust open source ecosystem and community." As part of its membership, Joel Marcey, open-source ecosystem lead at Facebook, will become a board director at the foundation.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Beloved Programming Language
 
  In a [statement](https://developers.facebook.com/blog/post/2021/04/29/facebook-joins-rust-foundation/) , Ashley Williams, Interim Executive Director of the Rust Foundation, said that:
@@ -33,21 +34,18 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Embracing Rust
 
  "Facebook has embraced Rust since 2016 and utilizes it in all aspects of development, from source control to compilers," said Joel Marcey, Open Source ecosystem lead at Facebook, and the new Rust Foundation board director. "We are joining the Rust Foundation to help contribute to, improve, and grow this language that has become so valuable to us and developers around the world. We look forward to participating with the other foundation members and the Rust community to make Rust a mainstream language of choice for systems programming and beyond."
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -56,6 +54,22 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-superior-platforms-10-android-gba-simulator-picks-for-2024/"><u>[Updated] Superior Platforms 10 Android GBA Simulator Picks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-obs-potential-strategies-involving-lut-filters/"><u>[Updated] Unlocking OBS Potential Strategies Involving LUT Filters</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerating-your-download-experience-with-epic-launcher/"><u>Accelerating Your Download Experience with Epic Launcher</u></a></li>
+<li><a href="https://program-issues.techidaily.com/decode-the-darkness-troubleshooting-total-black-screens-on-pc-while-playing-rainbow-six-siege/"><u>Decode the Darkness: Troubleshooting Total Black Screens on PC While Playing Rainbow Six Siege</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-privacy-vulnerability-fixing-it-now/"><u>Facebook Privacy Vulnerability: Fixing It Now</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-motorola-edge-40-neo-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Motorola Edge 40 Neo</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-your-local-marketplace-adapt-if-fb-stores-pop-up-here/"><u>How Will Your Local Marketplace Adapt if FB Stores Pop Up Here?</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockdown-3-essential-steps-to-retrieve-hacked-facebook-profile/"><u>Lockdown! 3 Essential Steps to Retrieve Hacked Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/regulatory-rebalance-exploring-the-effects-of-new-antitrust-laws-in-america/"><u>Regulatory Rebalance: Exploring the Effects of New Antitrust Laws in America</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-presence-essential-steps-before-unlinking-from-facebook/"><u>Taking Control of Your Online Presence - Essential Steps Before Unlinking From Facebook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/typing-triumph-surface-cured/"><u>Typing Triumph: Surface Cured</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-sport-groups-pledge-no-online-presence/"><u>UK Sport Groups Pledge No Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-rules-for-facebooks-permitted-posts/"><u>Understanding the Rules for Facebook's Permitted Posts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/usb-headphones-not-working-solve-sound-issues-on-windows-7-easily/"><u>USB Headphones Not Working? Solve Sound Issues on Windows 7 Easily</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtube-playlists-reconfigured-step-by-step-instructions-for-2024/"><u>YouTube Playlists Reconfigured Step-by-Step Instructions for 2024</u></a></li>
+</ul></div>
 

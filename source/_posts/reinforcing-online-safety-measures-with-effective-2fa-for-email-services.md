@@ -1,7 +1,7 @@
 ---
 title: Reinforcing Online Safety Measures with Effective 2FA for Email Services
-date: 2025-01-11T16:06:43.395Z
-updated: 2025-01-18T16:29:17.261Z
+date: 2025-01-19T19:56:32.880Z
+updated: 2025-01-24T22:30:45.995Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does 2FA Work?
 
  Two-factor authentication works by locking your account with two separate "factors." In this case, a factor is "something you know" (e.g., password), "something you have" (e.g., phone), or "something you are" (e.g., fingerprint). You have the best protection by combing two of these factors.
@@ -40,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your[Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Authenticator App
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
@@ -90,10 +90,6 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 **Note:** There are[other excellent 2FA authentication apps](https://www.makeuseof.com/tag/5-best-alternatives-google-authenticator/) out there.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Apple and iCloud
 
  Apple's 2FA is very Apple-centric. In that, you won't be using the Google Authenticator app or any other app for that matter. That said, the Apple 2FA process works very well and only takes a moment or two to set up.
@@ -104,29 +100,29 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your[Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Twitter
 
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
  Head to your[Twitter account settings](https://twitter.com/settings/account) , then under the**Security** header, select**Login Verification** . You can turn on SMS 2FA by entering your phone number and then entering the code. If your Twitter account isn't already using SMS verification, you must turn this on before enabling a third-party authentication app.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Instagram
 
@@ -143,6 +139,10 @@ Locking your Facebook account is as important as your email address.
  Your Amazon account is another that requires serious security. If someone accesses your Amazon account, they can spend as if they were you. (Amazon does have additional security checks for new delivery addresses, but you shouldn't rely on that.)
 
  Head to your **Amazon Account Settings > Login & Security > Two-Step Verification (2SV) Settings.** Under Two-Step Verification (2SV) Settings, select**Edit > Get Started** . You can use SMS or an authenticator app. If you choose the latter, scan the QR code using the Authenticator app and follow the Amazon instructions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Switching On Two-Factor Authentication Is Worth It
 
@@ -163,21 +163,21 @@ Locking your Facebook account is as important as your email address.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-lost-footage-immediate-removal-impacts/"><u>[New] 2024 Approved Lost Footage Immediate Removal Impacts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-resolving-obs-darkness-during-playbacks/"><u>[New] 2024 Approved Resolving OBS Darkness During Playbacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/enabling-discreet-exchange-of-ideas-on-facebook/"><u>Enabling Discreet Exchange of Ideas on Facebook</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fall-guys-connectivity-fix-guide-for-windows-users/"><u>Fall Guys Connectivity Fix Guide for Windows Users</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Realme 12 Pro+ 5G?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/insider-reveals-privacy-concerns-exposed-on-fb/"><u>Insider Reveals, Privacy Concerns Exposed on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagrams-innovative-move-shift-to-whatsapp-for-2fa-codes/"><u>Instagram's Innovative Move: Shift to WhatsApp for 2FA Codes</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/samsung-galaxys-ai-breakthrough-amidst-googles-legal-battles-soars-up-the-innovation-index-insights-from-zdnet/"><u>Samsung Galaxy's AI Breakthrough Amidst Google's Legal Battles Soars up the Innovation Index – Insights From ZDNET</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-detox-stopping-automated-content/"><u>Social Media Detox: Stopping Automated Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-synergy-sending-instagram-reels-via-facebook/"><u>Social Media Synergy: Sending Instagram Reels via Facebook</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/twin-streaming-wnbas-social-media-revolution/"><u>Twin Streaming: WNBA's Social Media Revolution</u></a></li>
-<li><a href="https://games-able.techidaily.com/unrivaled-5-reasons-the-timeless-appeal-of-vintage-games/"><u>Unrivaled 5 Reasons: The Timeless Appeal of Vintage Games</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/visualizing-2023-social-medias-next-big-thing-for-2024/"><u>Visualizing 2023 Social Media's Next Big Thing for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-amazon-is-suing-the-admins-of-10000-facebook-groups/"><u>Why Amazon Is Suing the Admins of 10,000 Facebook Groups</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-lullaby-vids-a-critical-look-at-bedtime-narrative-videos/"><u>[New] 2024 Approved Lullaby Vids A Critical Look at Bedtime Narrative Videos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-a-detailed-walkthrough-embedding-online-video-into-ms-presentations/"><u>[New] In 2024, A Detailed Walkthrough Embedding Online Video Into MS Presentations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-elevate-visuals-with-these-top-pixlr-tips/"><u>[New] In 2024, Elevate Visuals with These Top Pixlr Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-getting-started-with-your-youtube-channel-essentials/"><u>[Updated] 2024 Approved Getting Started with Your YouTube Channel – Essentials</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721267608849-stellar-repair/"><u>今こそ、Stellar Repair フォトアプリを手に入れて!</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-secure-social-media-options/"><u>Exploring Secure Social Media Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/friends-across-platforms-embodying-your-social-media-self-on-whatsapp/"><u>Friends Across Platforms: Embodying Your Social Media Self on WhatsApp</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-sketch-serious-snickers/"><u>In 2024, Sketch Serious Snickers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insights-into-the-reliability-and-functionality-of-viber-out-apps/"><u>Insights Into the Reliability and Functionality of Viber Out Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/navigating-through-the-excellent-5-virtual-title-experts/"><u>Navigating Through the Excellent 5 Virtual Title Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-a-tool-against-piracy/"><u>Understanding PhotoDNA: A Tool Against Piracy</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150126533-unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-digital-hangout-vote-here/"><u>Your Ultimate Digital Hangout - Vote Here</u></a></li>
 </ul></div>
 

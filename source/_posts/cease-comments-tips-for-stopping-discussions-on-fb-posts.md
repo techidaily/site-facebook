@@ -1,7 +1,7 @@
 ---
 title: "Cease Comments: Tips for Stopping Discussions on FB Posts"
-date: 2024-08-08T11:22:16.977Z
-updated: 2024-08-09T11:22:16.977Z
+date: 2025-01-21T22:24:18.298Z
+updated: 2025-01-24T17:22:47.940Z
 tags:
   - facebook
 categories:
@@ -19,22 +19,24 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
 
  Let's find out how you can disable and manage the comment section of your Facebook post when it becomes necessary.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## Things to Know About Turning Off Comments on Facebook
 
  Facebook limits what control you have over your personal posts. Because of this, you cannot fully disable comments on your Facebook posts. But you can limit who can comment on your posts.
 
  However, in a Facebook group where you are an admin, Facebook allows you to completely turn off comments on a post.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Manage Comments on Your Personal Facebook Posts
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Manage Comments on the Facebook App
 
  Here's how to manage comments on your posts using the Facebook mobile app:
@@ -42,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -57,38 +63,33 @@ Close
 * Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  And that's all you need to manage comments on your Facebook post.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## How to Disable Post Comments in a Facebook Group
 
  Unlike personal posts, Facebook allows group administrators to completely disable the comment section of a post in a Facebook group. To do this, follow these steps:
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
 Close
@@ -107,14 +108,11 @@ Close
 
  A similar rule applies to groups, if you're not sharing something that requires input from other members, you can simply turn off commenting on the post with the steps shared above.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +121,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hacking-the-process-instant-deletion-on-youtube/"><u>[Updated] 2024 Approved Hacking the Process Instant Deletion on Youtube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-elite-editing-experience-ranked-top-6-tools-for-macos-big-surs-videos/"><u>[Updated] In 2024, Elite Editing Experience Ranked Top 6 Tools for macOS Big Sur's Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-back-the-old-why-some-prefer-instagram-20/"><u>Bringing Back The Old: Why Some Prefer Instagram 2.0</u></a></li>
+<li><a href="https://facebook.techidaily.com/cleanup-tools-for-digital-scars-and-stains-on-profiles/"><u>Cleanup Tools for Digital Scars and Stains on Profiles</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-magic-6-lite-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Magic 6 Lite on Mac?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-v29e-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from V29e</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-bridging-visuals-and-audio-instagram-content-to-mp3-magic/"><u>In 2024, Bridging Visuals & Audio Instagram Content to Mp3 Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-event-creation-a-step-by-step-guide/"><u>Mastering FB Event Creation: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-market-presence-with-best-biz-centric-networks/"><u>Maximizing Market Presence with Best Biz-Centric Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-fb-experience-steering-clear-of-irksome-sponsorships/"><u>Personalizing Your FB Experience: Steering Clear of Irksome Sponsorships</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-group-discussions-via-channels-feature/"><u>Revolutionizing Group Discussions via Channels Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-integration-the-emergent-ties-of-fb-and-insta/"><u>Seamless Integration: The Emergent Ties of FB and Insta</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-gamers-quickfix-mastering-solutions-to-steam-black-screen-problems/"><u>The Gamer's Quickfix: Mastering Solutions to Steam Black Screen Problems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-steps-for-libxml2dll-not-found-errors-in-windows-and-macos/"><u>Troubleshooting Steps for libxml2.dll Not Found Errors in Windows and MacOS</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unlocking-history-a-comprehensive-tutorial-for-restoring-previous-whatsapp-chats-across-smartphones/"><u>Unlocking History: A Comprehensive Tutorial for Restoring Previous WhatsApp Chats Across Smartphones</u></a></li>
+</ul></div>
 

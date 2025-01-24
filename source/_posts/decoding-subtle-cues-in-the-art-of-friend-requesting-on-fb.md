@@ -1,7 +1,7 @@
 ---
 title: Decoding Subtle Cues in the Art of Friend Requesting on FB
-date: 2024-07-29T07:34:46.816Z
-updated: 2024-07-30T07:34:46.816Z
+date: 2025-01-20T18:35:56.697Z
+updated: 2025-01-24T19:11:23.755Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
 [](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/infographic-on-average-number-of-facebook-friends.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![Infographic on Average Number of Facebook Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/infographic-on-average-number-of-facebook-friends.png)
 
 ## How to Find Your Friend Requests on Facebook
@@ -38,11 +35,16 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
 ![Overview of received friend requests and people you may know on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Requests-Received.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When you remove or deny a friend request, Facebook won't notify them about it. However, they won't be able to send you another request for an entire year.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Send and Cancel a Friend Request on Facebook
 
  You can also search for people you know, open their profiles, and, if they accept friend requests from the public or friends of friends, add them by clicking the**Add Friend** button located right next to the Message button.
@@ -53,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
 ## How to Find Out Whether Someone Denied Your Facebook Friend Request
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
@@ -72,17 +71,15 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
  Alternatively, head to your friend's profile, expand the menu right next to your friendship status, and select**Unfollow** from the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Unwritten Facebook Friend Request Rules
 
  Now that you understand the basics of how to add friends on Facebook, let's review some finer details of managing Facebook friend requests.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Only Add People You Know
 
@@ -98,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
  In other words: don't look like a fake account, don't add random strangers, and don't be a stranger yourself.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Add Friends Conservatively
 
  You will often want to add a new friend immediately, even though you don't have mutual friends on Facebook. And it might be more awkward to send a message first than to add them directly.
@@ -109,23 +103,29 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
 ![Faceboook Follow Option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Faceboook-Follow-Option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you just want to follow someone's Facebook posts, and if there is an option to follow them, rather choose that option. From their profile, click the three-dot menu, and select**Follow** . This allows you to see what they are up to, but your timeline is not shared with them.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Report Spammy Friend Requests
 
  When you delete a friend request, Facebook promises that the sender won't be notified. But they might send you a new request. If you can't get rid of them, you can use either the**Find support or report offline** or**Block** options, available from the three-dot menu, to prevent further friend requests from that person.
 
 ![Block person after unsolicited friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Block-Friend-Request.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Use the first option to report fake accounts, strangers, or people who harass you.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![Report an unwelcome friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Report-Friend-Request.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Keep in mind that if you do this, the person may be penalized.
 
@@ -135,9 +135,6 @@ Keep in mind that if you do this, the person may be penalized.
 
  Go to**Friends > Friend Requests > View Sent Requests** . From here, you can cancel pending requests.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![Cancel Facebook friend requests you've sent.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Cancel-Friend-Requests.jpg)
 
  You may want to do this if you're one of the people who experienced a Facebook friend request bug in 2023\. The bug meant that if you searched for a profile on Facebook, the website would automatically send a friend request.
@@ -145,9 +142,9 @@ Keep in mind that if you do this, the person may be penalized.
  Check through your sent requests to make sure you haven't unwittingly sent someone an invite on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Block Friend Requests From Strangers
 
  Facebook allows you to restrict who can send you a friend request. Not setting that limit is an open invitation for anyone to request your friendship.
@@ -168,16 +165,14 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
 ![Choose who can see your Facebook friends list.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-List-Visibility.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can also access all friends-related settings from your (existing) Facebook friends page. From your profile page, click**See all friends** , then click the**three-dot menu** next to Find Friends and choose**Edit Privacy** .
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Edit your Facebook friends privacy.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-Edit-Privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Why Can't I Friend Someone on Facebook?
 
  If you can't seem to friend someone on Facebook, here are the most likely reasons...
@@ -190,30 +185,27 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  If your request is still pending, you could send your friend-to-be a message and ask them to approve your request.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. You Blocked the Other Person
 
  You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. They Don't Permit Friend Requests From Strangers
 
  As outlined above, Facebook allows you to restrict who can send you a friend request. If that's the reason you can't friend someone, ask them to send you a friend request instead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Someone Has Too Many Friends Already
 
  Neither you, nor your friend-to-be, can have more than 5,000 friends on Facebook. If one of you has crossed that limit, you can't send each other friend requests.
 
  If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
@@ -223,23 +215,17 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
 Follow our guidelines above to avoid this from happening again.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Master Your Facebook Friendships
 
  Friend requests on Facebook remain awkward. Whether you add your best friend, someone you know from school, your mom, or your boss; as far as Facebook is concerned, everyone is a "friend".
 
  However, Facebook does acknowledge various levels of friendship. After all, you can sort your friends into close friends, family, acquaintances, or any other custom list you create.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -248,4 +234,24 @@ Follow our guidelines above to avoid this from happening again.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/terra-trotter-a-tech-savvy-goats-new-identity/"><u>'Terra Trotter': A Tech-Savvy Goat's New Identity</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-elevating-your-visual-narrative-smart-editing-on-snapchat/"><u>[New] 2024 Approved Elevating Your Visual Narrative Smart Editing on Snapchat</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-android-developers-choice-premier-tools-for-extracting-fb-videos/"><u>[New] Android Developer's Choice Premier Tools for Extracting FB Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-peerless-dialogue-creator-zone/"><u>[Updated] 2024 Approved Peerless Dialogue Creator Zone</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-internet-curbs-the-three-with-no-facebook/"><u>Global Internet Curbs: The Three With No Facebook</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-division-2-not-launching-2024-tips/"><u>How to Fix Division 2 Not Launching – 2024 Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/lements-in-asmr-video-content-for-2024/"><u>Key Elements in ASMR Video Content for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-windows-low-power-mode-options/"><u>Navigating Through Windows' Low-Power Mode Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-id-shifting-for-distinct-social-media-profiles-fb/"><u>Rapid ID Shifting for Distinct Social Media Profiles, FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-understanding-and-utilizing-fb-unfollowfollow/"><u>Social Media Savvy: Understanding and Utilizing FB Unfollow/Follow</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/streaming-showdown-obs-and-shadowtoolkit-for-2024/"><u>Streaming Showdown OBS & ShadowToolkit for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-flight-on-social-media-through-imagery/"><u>Taking Flight on Social Media Through Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-journey-social-medias-rising-stars/"><u>The Journey: Social Media's Rising Stars</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-to-successful-business-growth-with-facebook-clients/"><u>The Key to Successful Business Growth with Facebook Clients</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-overlooked-issue-of-facebooks-trackable-web-history/"><u>The Overlooked Issue of Facebook's Trackable Web History</u></a></li>
+<li><a href="https://win11.techidaily.com/transform-your-device-usage-mastering-samsungs-dex-application/"><u>Transform Your Device Usage: Mastering Samsung's DeX Application</u></a></li>
+<li><a href="https://techidaily.com/windows-11-creators-edition-revisited-discover-the-innovations-in-insider-preview-build-1503/"><u>Windows 11 Creators Edition Revisited - Discover the Innovations in Insider Preview Build 1503</u></a></li>
+</ul></div>
 

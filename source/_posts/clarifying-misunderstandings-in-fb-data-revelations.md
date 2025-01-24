@@ -1,7 +1,7 @@
 ---
 title: Clarifying Misunderstandings in FB Data Revelations
-date: 2024-08-08T11:19:56.158Z
-updated: 2024-08-09T11:19:56.158Z
+date: 2025-01-23T20:21:24.278Z
+updated: 2025-01-24T16:26:08.495Z
 tags:
   - facebook
 categories:
@@ -24,8 +24,9 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 **Note:** The Facebook Papers were released before [Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
  Most of the reports from The Facebook Papers focus on misinformation as the big “revelation” about Facebook. Now, misinformation certainly is a problem on the internet; it can actually be quite dangerous. But it isn't particularly scandalous for Facebook.
@@ -38,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
  The Facebook Papers are being described and perceived as the worst information that could have come out about the company. But that's not so. Imagine if the reports contained information that showed Facebook was being used by other countries in cyberattacks. That would have been a real revelation.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Facebook Misinformation Warning](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Misinformation-Warning.jpg)
 
  Image Credits: Facebook
@@ -48,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
  When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as [Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
@@ -65,9 +64,9 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -82,15 +81,11 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
  The particular example used is the CEO claiming Facebook removes 94 percent of the hate speech it finds before a human reports it, but a leaked report reveals less than five percent of all hate speech is removed from the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credits: Anthony Quintano via Flickr
 
@@ -101,8 +96,9 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -111,14 +107,11 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,6 +120,19 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-simplifying-laptop-edits-with-inshot-software/"><u>[New] Simplifying Laptop Edits with Inshot Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-youtube-creator-summit-a-getaway-for-youtubes-top-talent/"><u>[New] The YouTube Creator Summit - A Getaway for YouTube's Top Talent</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-charting-your-course-through-youtube-compliance/"><u>[Updated] Charting Your Course Through YouTube Compliance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-oneplus-ace-3-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your OnePlus Ace 3 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-hidden-feedback-mechanisms-in-fb-communities/"><u>Mastering Hidden Feedback Mechanisms in FB Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/myth-busters-facebooks-updated-approach-to-false-posts/"><u>Myth Busters: Facebook's Updated Approach to False Posts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016513087-troubleshooting-why-isnt-my-mic-working-solutions-inside/"><u>Troubleshooting: Why Isn't My Mic Working? Solutions Inside</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/unlock-successful-mobile-marketing-tactics-debunking-key-myths-and-embracing-proven-techniques-for-email-excellence-using-massmail-tools/"><u>Unlock Successful Mobile Marketing Tactics: Debunking Key Myths and Embracing Proven Techniques for Email Excellence Using Massmail Tools</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-get-the-scoop-on-vn-video-editor-for-pc/"><u>Updated In 2024, Get the Scoop on VN Video Editor for PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/vpn-progression-in-internet-security/"><u>VPN Progression in Internet Security</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-introduces-a-goat-called-ripple/"><u>Zuckerberg Introduces: A Goat Called 'Ripple.'</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Unsung Rules of Social Networking: Keep Your Info to Yourself"
-date: 2025-01-12T16:19:25.851Z
-updated: 2025-01-18T16:06:23.988Z
+date: 2025-01-18T18:51:58.256Z
+updated: 2025-01-24T20:03:31.386Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -46,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
@@ -72,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -82,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -89,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  The most important reason is practical: telling the world that you have a shiny new toy could result in some people wanting to steal it or take advantage of you in some way. An extreme case would be announcing that you won the lottery. If people think you're well-off because of what you can afford, they might look to use that to their advantage.
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Personal Advice
 
@@ -100,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
@@ -114,19 +122,11 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -157,19 +157,20 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-winning-the-game-of-social-media-handc-marketing-strategies-for-2024/"><u>[Updated] Winning the Game of Social Media H&C Marketing Strategies for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-identify-the-best-8-services-to-enhance-youtube-engagement/"><u>2024 Approved Identify the Best 8 Services to Enhance YouTube Engagement</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-meme-craft-kinemasters-role/"><u>2024 Approved Mastering the Meme Craft KineMaster's Role</u></a></li>
-<li><a href="https://some-tips.techidaily.com/discover-the-power-of-freeform-the-ultimate-guide-for-enhancing-your-creativity-and-idea-generation/"><u>Discover the Power of Freeform: The Ultimate Guide for Enhancing Your Creativity & Idea Generation</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-daily-archive-how-to-explore-and-enjoy-memories/"><u>Facebook’s Daily Archive – How to Explore & Enjoy Memories</u></a></li>
-<li><a href="https://facebook.techidaily.com/five-regretful-moments-that-reflect-facebooks-user-relationship-history/"><u>Five Regretful Moments That Reflect Facebook’s User Relationship History</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/quick-win-updating-drivers-in-windows-11-easily/"><u>Quick Win: Updating Drivers in Windows 11 Easily</u></a></li>
-<li><a href="https://facebook.techidaily.com/soundtrack-to-social-interaction-exploring-the-impact-of-facebook-and-spotifys-boombox/"><u>Soundtrack to Social Interaction: Exploring the Impact of Facebook & Spotify's Boombox</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-strategic-advantage-facebooks-allowance-for-dual-or-more-profiles/"><u>The Strategic Advantage: Facebook’s Allowance for Dual or More Profiles</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-identity-shifts-a-guide-to-facebooks-naming-convention/"><u>Unmasking Identity Shifts: A Guide to Facebook's Naming Convention</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-contrasts-between-ipad-and-ipad-air-models/"><u>Unveiling the Contrasts Between iPad and iPad Air Models</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-entering-the-virtual-realm-google-meet-for-2024/"><u>[Updated] Entering the Virtual Realm Google Meet for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fundamental-blueprints-to-enhance-facebook-ad-engagement/"><u>[Updated] In 2024, Fundamental Blueprints to Enhance Facebook Ad Engagement</u></a></li>
+<li><a href="https://article-tips.techidaily.com/download-free-compelling-video-intros-for-2024/"><u>Download Free Compelling Video Intros for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-infinix-hot-40i-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Infinix Hot 40i to New Android? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/merging-separate-fortnite-accounts-effortlessly/"><u>Merging Separate Fortnite Accounts Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-growth-strategy-risks-facebook-and-instagram-eu-markets/"><u>Meta's Growth Strategy Risks Facebook & Instagram EU Markets</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigate-new-walls-insiders-guide-to-wallpapers-in-win11/"><u>Navigate New Walls Insider's Guide to Wallpapers in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-growth-on-social-networking-sites-a-guide/"><u>Professional Growth on Social Networking Sites: A Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-microphone-and-headset-non-detection-problems-on-windows-10-8-and-7/"><u>Resolving Microphone & Headset Non-Detection Problems on Windows 10, 8 & 7</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-7-thrilling-new-capabilities-of-bard-ai-unveiled-at-googles-2023-event/"><u>Top 7 Thrilling New Capabilities of BARD AI Unveiled at Google's 2023 Event</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-world-of-minecraft-a-family-friendly-gaming-adventure/"><u>Unlocking the World of Minecraft: A Family-Friendly Gaming Adventure</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-delays-introduction-of-updated-user-terms-and-conditions/"><u>WhatsApp Delays Introduction of Updated User Terms & Conditions</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-social-networks-temporarily-freeze-up/"><u>Why Did Social Networks Temporarily Freeze Up?</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-daily-playlist-anywhere-you-go-spotify-miniplayer-and-facebook/"><u>Your Daily Playlist, Anywhere You Go – Spotify Miniplayer & Facebook</u></a></li>
 </ul></div>
 

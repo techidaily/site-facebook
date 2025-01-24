@@ -1,7 +1,7 @@
 ---
 title: Frequency of Social Media Breaches
-date: 2025-01-16T16:07:30.655Z
-updated: 2025-01-18T16:24:20.061Z
+date: 2025-01-18T20:22:55.307Z
+updated: 2025-01-24T20:34:43.014Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Common Are Social Media Hacks?
 
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
 
@@ -47,12 +47,16 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Certain things can make you more or less likely to experience a social media account hack.
 
@@ -69,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
@@ -83,16 +87,12 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Handle a Social Media Hack
 
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 
@@ -121,14 +121,19 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-answers.techidaily.com/enhanced-stability-how-total-war-warhammer-iii-crash-issues-are-fixed-for-a-smoother-pc-gameplay/"><u>[ENHANCED STABILITY] How Total War: Warhammer III Crash Issues Are Fixed for a Smoother PC Gameplay</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-craft-the-perfect-blurred-photo-with-these-essentials/"><u>[New] Craft the Perfect Blurred Photo with These Essentials</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-be-a-ghost-in-the-social-media-crowd-live/"><u>[New] How to Be a Ghost in the Social Media Crowd - Live</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-personal-security-in-fb-settings/"><u>Ensuring Personal Security in FB Settings</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-tecno-camon-20-pro-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Tecno Camon 20 Pro 5G? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-media-wisely-implementing-facebooks-breaks/"><u>Navigating Social Media Wisely: Implementing Facebook's Breaks</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisit-and-revive-past-online-encounters-on-facebook/"><u>Revisit and Revive Past Online Encounters on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-into-tomorrow-renaming-yourself-with-confidence-on-fb/"><u>Step Into Tomorrow: Renaming Yourself with Confidence on FB</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-fabrication-suite/"><u>Video Fabrication Suite</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/usion-of-youtube-beats-and-imovie-editing-magic-for-2024/"><u>[New] Fusion of YouTube Beats and iMovie Editing Magic for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-iphone-7-plus-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase iPhone 7 Plus When Its Locked Within Seconds</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision.</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-a-facebook-error-expose-our-conversational-numbers-unintentionally/"><u>Did a Facebook Error Expose Our Conversational Numbers Unintentionally?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-logitech-t630-mouse-drivers-for-windows-7-8-and-10/"><u>Download the Logitech T630 Mouse Drivers for Windows 7, 8 & 10</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/hp-print-driver-missing-in-windows-1110/"><u>HP Print Driver Missing in Windows 11/10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-transparency-insights-from-fb-files/"><u>New Era of Transparency: Insights From FB Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-yourself-from-these-14-notorious-facebook-swindles/"><u>Protect Yourself From These 14 Notorious Facebook Swindles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-it-like-you-mean-it-how-to-say-i-love-you-in-32-different-languages/"><u>Say It Like You Mean It: How to Say “I Love You” In 32 Different Languages</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-when-payday-2-wont-open-on-your-windows-machine/"><u>Troubleshooting Steps When Payday 2 Won't Open on Your Windows Machine</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-neighborhoods-and-available-memberships/"><u>Understanding Facebook Neighborhoods and Available Memberships</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
 </ul></div>
 

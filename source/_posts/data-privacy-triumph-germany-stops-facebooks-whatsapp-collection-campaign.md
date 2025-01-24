@@ -1,7 +1,7 @@
 ---
 title: "Data Privacy Triumph: Germany Stops Facebook's WhatsApp Collection Campaign"
-date: 2024-08-08T11:20:04.573Z
-updated: 2024-08-09T11:20:04.573Z
+date: 2025-01-23T20:52:01.029Z
+updated: 2025-01-24T19:18:34.423Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/e35b5be1f091e9309ed35244938c575401125e5d7
  A regulator in Germany has ordered Facebook to stop collecting data from WhatsApp users in the country for three months. This decision was made following the rollout of WhatsApp's new privacy policy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Germany Bans Facebook From Collecting WhatsApp Data
 
  Johannes Caspar, the head of the Hamburg privacy authority, led the new action against Facebook. The body has ruled that forcing users to accept additional data collection in WhatsApp's new privacy policy is unlawful.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/e35b5be1f091e9309ed35244938c575401125e5d7
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Where Does Facebook Go From Here?
 
  Facebook already delayed the rollout of WhatsApp's new privacy policy after an online backlash against it. With the policy once again being called into question, perhaps it would be wise for Facebook to reconsider WhatsApp's new privacy policy.
@@ -50,22 +52,20 @@ thumbnail: https://thmb.techidaily.com/e35b5be1f091e9309ed35244938c575401125e5d7
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Everyone Is Gunning for Facebook Right Now
 
  Facebook's moves are getting blocked left, right, and center. The company has been asked to [cancel its plans for an Instagram for kids](https://www.makeuseof.com/attorneys-general-facebook-instagram-for-children/) ,[India is investigating the new WhatsApp policy](https://www.makeuseof.com/india-investigating-whatsapp-privacy-policy/) , and [Apple has been coming for Facebook's ad tracking](https://www.makeuseof.com/zuckerberg-apple-privacy-push/) .
 
  So, with everyone seemingly gunning for Facebook right now, the social network needs to tread carefully in order to avoid yet another PR disaster.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,6 +74,22 @@ thumbnail: https://thmb.techidaily.com/e35b5be1f091e9309ed35244938c575401125e5d7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-ignite-interest-a-list-of-30-video-themes/"><u>[New] In 2024, Ignite Interest A List of 30 Video Themes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-cost-free-webinar-software-for-recording-sessions/"><u>[Updated] 2024 Approved Cost-Free Webinar Software for Recording Sessions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-snicker-sphere-top-grade-no-charge-memes/"><u>2024 Approved Snicker Sphere Top-Grade, No-Charge Memes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-top-10-online-subtitle-extractors-for-budget-friendly-viewers/"><u>2024 Approved Top 10 Online Subtitle Extractors for Budget-Friendly Viewers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mical-audio-devices-for-vloggers-on-a-budget-for-2024/"><u>Economical Audio Devices for Vloggers on a Budget for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/embracing-effort-over-easy-chatgpt-assistance/"><u>Embracing Effort Over Easy ChatGPT Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-practices-to-prevent-unauthorized-fb-access/"><u>Essential Practices to Prevent Unauthorized FB Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-principles-for-neutral-social-media-pages/"><u>Guiding Principles for Neutral Social Media Pages</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-meizu-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Meizu using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-x50-gtwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor X50 GTwith/without a PC</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/losung-fur-den-fehlermeldungen-bei-der-startup-von-einem-apple-mac/"><u>Lösung Für Den Fehlermeldungen Bei Der Startup Von Einem Apple Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-go-emerges-changing-the-mobile-landscape/"><u>Portal Go Emerges, Changing the Mobile Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-altering-facebook-pics/"><u>The Essential Guide to Altering Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychological-upsides-of-a-temporary-online-hiatus/"><u>The Psychological Upsides of a Temporary Online Hiatus</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-stick-to-original-policies-for-uninterrupted-functionality/"><u>WhatsApp Users Stick to Original Policies for Uninterrupted Functionality</u></a></li>
+</ul></div>
 

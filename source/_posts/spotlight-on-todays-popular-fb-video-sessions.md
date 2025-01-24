@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2025-01-14T16:24:21.904Z
-updated: 2025-01-18T16:00:41.198Z
+date: 2025-01-22T19:21:39.263Z
+updated: 2025-01-24T18:06:34.006Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -49,7 +45,7 @@ That's it. Here you will find all the recently watched videos.
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
@@ -63,13 +59,13 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
@@ -80,7 +76,7 @@ That's it. Here you will find all the recently watched videos.
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
@@ -102,11 +98,11 @@ Close
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
-![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 Close
 
@@ -114,6 +110,10 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -134,24 +134,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-10plus-top-free-youtube-image-extractors/"><u>[New] 2024 Approved 10+ Top FREE YouTube Image Extractors</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-apples-ios-a-treasure-trove-of-vr-game-hits-for-2024/"><u>[Updated] Apple's iOS A Treasure Trove of VR Game Hits for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-dramatic-portraits-with-hdr-a-complete-tutorial/"><u>[Updated] Dramatic Portraits with HDR A Complete Tutorial</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-fb-video-conversion-wizardry-turning-hd-to-high-quality-mp4-for-free/"><u>[Updated] In 2024, FB Video Conversion Wizardry – Turning HD to High-Quality MP4, For Free</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/your-names-expert-review-the-perfect-hybrid-device-for-college-master-work-and-play-on-one-laptop-zdnet/"><u>[Your Name]'s Expert Review: The Perfect Hybrid Device for College - Master Work and Play on One Laptop | ZDNet</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/can-computers-pass-as-humans-insights-into-beating-the-turing-test/"><u>Can Computers Pass as Humans? Insights Into Beating the Turing Test</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/claude-2-decoded-features-functions-unveiled/"><u>Claude 2 Decoded: Features, Functions Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-your-pages-standards-ban-users-with-confidence/"><u>Fortifying Your Page's Standards: Ban Users with Confidence</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-reno-10-pro-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo Reno 10 Pro 5G FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-metaai-set-to-overtake-common-ai-chatbots/"><u>Is MetaAI Set to Overtake Common AI Chatbots?</u></a></li>
-<li><a href="https://facebook.techidaily.com/monitor-your-digital-presence-facebook-breach-alerts/"><u>Monitor Your Digital Presence: Facebook Breach Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-facebook-from-suggesting-connections/"><u>Prevent Facebook From Suggesting Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-insight-your-latest-watches-on-facebook/"><u>Quick Insight: Your Latest Watches on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-for-silencing-fb-noises/"><u>The Ultimate Strategy for Silencing FB Noises</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-costs-of-friendship-networks-top-10-reasons-to-cut-off-facebook/"><u>The Unseen Costs of Friendship Networks - Top 10 Reasons to Cut Off Facebook</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-october-2024-pre-black-friday-gamer-bargains-where-to-find-them/"><u>Top October 2024 Pre-Black Friday Gamer Bargains: Where to Find Them</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforming-audio-a-rapid-guide-on-converting-mp4-files-to-wave-format/"><u>Transforming Audio: A Rapid Guide on Converting MP4 Files to Wave Format</u></a></li>
-<li><a href="https://facebook.techidaily.com/trend-of-doubt-grows-for-large-internet-entities-facebook-most-targeted/"><u>Trend of Doubt Grows for Large Internet Entities; Facebook Most Targeted</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-top-4-business-meta-analytical-tools/"><u>Unlock Potential: Top 4 Business Meta Analytical Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-decode-the-mysteries-in-depth-guide-to-stardews-ginger-island/"><u>[New] In 2024, Decode the Mysteries In-Depth Guide to Stardew's Ginger Island</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unlocking-the-full-screen-potential-of-premiere-pro-for-2024/"><u>[Updated] Unlocking the Full Screen Potential of Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-updated-news-feed-structure/"><u>Dissecting Facebook's Updated News Feed Structure</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-visual-storytelling-with-innovative-instagram-video-techniques-for-2024/"><u>Elevate Your Visual Storytelling with Innovative Instagram Video Techniques for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-mirage-deceptive-identity-reproduction/"><u>Facebook Mirage: Deceptive Identity Reproduction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-image-compromised-in-poll-showcasing-tech-mistrust/"><u>Facebook's Image Compromised in Poll Showcasing Tech Mistrust</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-lava-yuva-3-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Lava Yuva 3 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-facebook-enhancement-reels-rooms-in-story-panels/"><u>Impending Facebook Enhancement: Reels, Rooms in Story Panels?</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-the-rise-of-disenchanted-facebookers/"><u>Insight: The Rise of Disenchanted Facebookers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/integrating-google-drive-with-slack-a-step-by-step-guide/"><u>Integrating Google Drive with Slack: A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/microsoft-mouse-driver-update-procedure-for-windows-users/"><u>Microsoft Mouse Driver Update Procedure for Windows Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimizing-conversion-processes-from-xml-to-high-quality-srts-for-2024/"><u>Optimizing Conversion Processes From XML to High-Quality SRTs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-meets-portability-with-facebooks-new-launch/"><u>Portal Meets Portability with Facebook’s New Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-intertwine-fb-insta-unity-emerges/"><u>Social Sites Intertwine: FB, Insta Unity Emerges</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/steam-deck-a-comprehensively-rated-portable-game-device/"><u>Steam Deck: A Comprehensively Rated Portable Game Device?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-guide-to-downloading-gifs-a-step-by-step-approach/"><u>Twitter's Guide to Downloading GIFs A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-connectivity-through-facebook-portals/"><u>Unlocking the Potential of Social Connectivity Through Facebook Portals</u></a></li>
 </ul></div>
 

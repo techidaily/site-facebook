@@ -1,7 +1,7 @@
 ---
 title: Can <Security@facebookmail.com> Be Trusted for FB Safety?
-date: 2024-08-08T11:20:34.384Z
-updated: 2024-08-09T11:20:34.384Z
+date: 2025-01-23T16:34:05.235Z
+updated: 2025-01-24T16:41:24.010Z
 tags:
   - facebook
 categories:
@@ -26,8 +26,9 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
  <Security@facebookmail.com> is the email address that Facebook uses to send security-related emails to its users. If you receive an email from the email address containing the same email domain (@facebookmail), it's legit and coming from Facebook. You should follow the directions in the email.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does the Email From "<Security@facebookmail.com>" Look Like?
 
  Facebook has been sending a special security email to accounts with large audiences, running essential pages, or which have great community significance, notably from an address that reads "<security@facebookmail.com>".
@@ -44,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point [to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
@@ -55,14 +60,13 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 * In the majority of cases, Facebook sends the email to enable Facebook Protect by the email address, "<security@facebookmail.com>". Is the email address from which you received the email different from this one? If so, you may be dealing with a scam.
 * Facebook doesn't include a link in the email to enable Facebook Protect, nor does it direct users to log in directly from the email. So if the email you received contains links and buttons, it's a scam.
 * Facebook also lets users view recent emails they received in their account security settings. That's another way of verifying the legitimacy of the email. For this, log into your account, click on the**profile icon** in the top-right corner, navigate to**Settings & privacy > Settings** , and then click**Security and login** in the left-sidebar.  
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![Opening Facebook Settings on Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Opening-Facebook-Settings-on-Facebook-Web-Client.jpg)  
  Afterward, click the**View** button next to**See recent emails from Facebook** under**Advanced** .  
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Clicking on View to View Recent Emails From Facebook in Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Clicking-on-View-to-View-Recent-Emails-From-Facebook-in-Facebook-Web-Client.jpg)  
  If the same email you received appears here, it's official. Otherwise, it's a scam.
 
@@ -80,9 +84,6 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 
  The Facebook Protect feature is only available for a limited number of Facebook users. And Facebook removes this feature from certain accounts when it feels that the account no longer meets the criteria to enjoy it. If you cannot find this option despite enabling it before, it signifies that your account no longer meets the eligibility criteria. So don't worry about it having been a scam!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Respond to a Fake Facebook Protect Email
 
  If the email you supposedly received from Facebook asking you to enable Facebook Protect does not meet the conditions listed above, it is probably a scam. So you should be cautious enough not to fall victim to any of its traps.
@@ -92,14 +93,16 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
  In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to [attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Do if You Fall for a Fake Facebook Protect Email Scam
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your [profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in [recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
@@ -109,22 +112,15 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## "<Security@facebookmail.com>" Is Legit (but You Should Still Be Careful)
 
  Fraudsters are very good at mimicking official emails and making them appear legit. Hopefully, knowing the context of Facebook Protect email will help you distinguish fake emails from real ones. Additionally, those tips will assist you in limiting the damage if you mistakenly fall victim to such phishing emails.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,6 +129,20 @@ thumbnail: https://thmb.techidaily.com/a208f3a78dbc1966a7b3c23e883554ad74b655fe5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-harnessing-windows-11-for-high-impact-visually-striking-videos/"><u>[New] Harnessing Windows 11 for High-Impact, Visually Striking Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-precision-and-artistry-the-ultimate-crossfade-playbook-with-audacity/"><u>[New] In 2024, Precision and Artistry The Ultimate Crossfade Playbook with Audacity</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-iphoneandroid-choose-great-focus-shots-for-2024/"><u>[New] IPhone/Android Choose Great Focus Shots for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-share-a-private-youtube-video/"><u>[Updated] How to Share a Private YouTube Video?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-full-examination-hero4-black-designs/"><u>2024 Approved Full Examination Hero4 Black Designs</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connected-to-contented-the-top-10-reasons-why-quitting-facebook-is-worth-it/"><u>From Connected to Contented: The Top 10 Reasons Why Quitting Facebook Is Worth It</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-facebook-messages-disappear/"><u>How to Make Your Facebook Messages Disappear?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-into-metas-hub-administering-facebook-and-instagram-profiles/"><u>Journey Into Meta's Hub: Administering Facebook & Instagram Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-concealed-count-how-many-more-are-leaving/"><u>The Concealed Count: How Many More Are Leaving?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-handling-inactive-accounts-of-the-departed/"><u>The Guide to Handling Inactive Accounts of the Departed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-merger-of-tech-titans-facebook-and-rust-unite/"><u>The Merger of Tech Titans: Facebook and Rust Unite</u></a></li>
+</ul></div>
 

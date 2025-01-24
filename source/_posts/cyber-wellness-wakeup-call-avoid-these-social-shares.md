@@ -1,7 +1,7 @@
 ---
 title: "Cyber Wellness Wakeup Call: Avoid These Social Shares"
-date: 2024-08-08T11:20:39.960Z
-updated: 2024-08-09T11:20:39.960Z
+date: 2025-01-22T21:37:34.875Z
+updated: 2025-01-24T16:15:20.169Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 ## Cyber Wellness Wakeup Call: Avoid These Social Shares
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -28,13 +29,6 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
 ## 1\. Travel Plans
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
@@ -69,9 +63,6 @@ No advertising on the website.
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -82,6 +73,10 @@ No advertising on the website.
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -90,9 +85,6 @@ No advertising on the website.
 
  Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
@@ -104,14 +96,16 @@ No advertising on the website.
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Scammy Giveaways and Contests
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -125,9 +119,6 @@ No advertising on the website.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -136,20 +127,21 @@ No advertising on the website.
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Shouldn't Share Online
 
  While social media can be a fun way to share with friends you don't see in person, sharing online has many downsides compared to talking in person. It's easy to overshare, not realize the audience that could see your posts, or make other mistakes.
 
  Sharing information online voluntarily lessens your privacy and can open you up to attacks on your security, too. It's wise to be intentional about what you share.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +150,17 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-camera-to-feed-iphone-and-android-broadcast-guide-for-facebook/"><u>[New] From Camera to Feed IPhone & Android Broadcast Guide for Facebook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-superior-platforms-10-android-gba-simulator-picks/"><u>[New] Superior Platforms 10 Android GBA Simulator Picks</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-tag-and-showcase-a-podcast-episode/"><u>[New] Tag and Showcase a Podcast Episode</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-8-access-free-eco-friendly-vfx-backdrops-online/"><u>[Updated] 2024 Approved Top 8 Access Free Eco-Friendly VFX Backdrops Online</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-advice-on-addressing-and-resolving-error-code-0x80070652-during-windows-updates/"><u>Expert Advice on Addressing and Resolving Error Code 0X80070652 During Windows Updates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mirror-movies-a-guide-to-flipping-your-youtube-video-upside-down/"><u>In 2024, Mirror Movies A Guide to Flipping Your YouTube Video Upside Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-privacy-update-essential-steps/"><u>Navigating Facebook’s Privacy Update: Essential Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/non-facebook-nations-revealed-3-picks/"><u>Non-Facebook Nations Revealed: #3 Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-social-networking-strategies-for-fb/"><u>Secret Social Networking Strategies for Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-utilizing-facebooks-annual-review-function/"><u>Strategies for Utilizing Facebook's Annual Review Function</u></a></li>
+</ul></div>
 

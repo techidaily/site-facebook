@@ -1,7 +1,7 @@
 ---
 title: Breaking Down the FBCTA's Effect on Consumers
-date: 2024-08-08T11:21:00.332Z
-updated: 2024-08-09T11:21:00.332Z
+date: 2025-01-23T17:00:30.648Z
+updated: 2025-01-24T20:38:10.847Z
 tags:
   - facebook
 categories:
@@ -22,14 +22,16 @@ thumbnail: https://thmb.techidaily.com/d11ab69328de06b2bbe702807d8f8d332f02dd668
  This article will outline how Congress wants Facebook and other tech giants to change their algorithms. Keep reading to find out more about how this proposed bill could affect you.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Filter Bubble Transparency Act?
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![courtroom gavel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/courtroom-gavel-judge.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
@@ -52,14 +54,16 @@ thumbnail: https://thmb.techidaily.com/d11ab69328de06b2bbe702807d8f8d332f02dd668
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How the Filter Bubble Transparency Act Could Affect You
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -68,22 +72,20 @@ thumbnail: https://thmb.techidaily.com/d11ab69328de06b2bbe702807d8f8d332f02dd668
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Personalized Algorithms Become a Thing of the Past?
 
  Congress wants big tech companies to stop using unsolicited data from users to inform its algorithms, which is a big ask, considering this is a key part of apps like Facebook and Instagram, and part of what keeps users scrolling and engaging.
 
  Facebook is known to push back against lawmakers and defending its business, so it will be interesting to see how this plays out. For now though, don't hold your breath on Facebook overhauling its algorithm.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +94,16 @@ thumbnail: https://thmb.techidaily.com/d11ab69328de06b2bbe702807d8f8d332f02dd668
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-optimal-income-mastering-youtube-channel-profitability-on-mobile/"><u>[New] 2024 Approved Optimal Income Mastering YouTube Channel Profitability on Mobile</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-melodic-matrix-mac-sound-recording/"><u>[New] In 2024, Melodic Matrix Mac Sound Recording</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-essential-photo-edits-guide-for-the-novice-photographer/"><u>2024 Approved Essential Photo Edits Guide for the Novice Photographer</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-hack-300-oculus-purchase-new-login-method-revealed/"><u>Facebook Hack: $300 Oculus Purchase, New Login Method Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-no-login-to-in-in-just-minutes-revive-your-fb-account/"><u>From 'No Login' To In, in Just Minutes: Revive Your FB Account</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-repair-scrolling-problems-with-your-pcs-touchpad-on-windows-10/"><u>How to Repair Scrolling Problems with Your PC's Touchpad on Windows 10</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-reno-11-pro-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-login-protection-setting-up-fbs-two-factor-system/"><u>Instant Login Protection: Setting Up FB's Two-Factor System</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-account-exploration/"><u>Mastering Social Media Account Exploration</u></a></li>
+</ul></div>
 

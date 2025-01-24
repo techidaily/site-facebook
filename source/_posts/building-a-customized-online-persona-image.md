@@ -1,7 +1,7 @@
 ---
 title: Building a Customized Online Persona Image
-date: 2024-08-08T11:19:45.232Z
-updated: 2024-08-09T11:19:45.232Z
+date: 2025-01-17T17:41:22.887Z
+updated: 2025-01-24T18:06:55.604Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
  You can use avatars in your profile picture, along with in various other ways on the platform. In this article, you'll find out how to create a Facebook avatar and share it with others.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are Facebook Avatars?
 
  The Facebook avatar is a lookalike of a person with more of a fun touch. Using different faces and hairstyles, you can customize them however you like. Once created, avatars also can be used as stickers to display emotions that you would otherwise typically express through emojis.
@@ -30,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 
  You can share Facebook avatars regardless of whether you use the platform on your computer, tablet, or smartphone.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Why Did Facebook Add Avatars?
 
  With the purchase of Bitmoji in 2016, Snapchat enabled users to create their own virtual characters.
@@ -42,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
  Now that you know a little about what a Facebook avatar is, you can find out how to make and share your own below.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Create a Facebook Avatar
 
  To begin creating your own avatar on Facebook, you'll first need to log into Facebook on your smartphone. Click on**the three dots** in the top right-hand corner to open**Menu** , or swipe right a few times to achieve the same end result.
@@ -51,9 +50,14 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 ![Preview of Logged In Facebook Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Preview-of-Logged-In-Facebook-Account.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Menu Open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Menu-Open.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Avatar Option in See More Section in Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Avatar-Option-in-See-More-Section-in-Facebook-Menu.jpg)
 
@@ -65,10 +69,11 @@ Close
 
 ![Choosing a Glasses To Create An Avatar In Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Choosing-a-Glasses-to-Create-an-Avatar-in-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![Clicking On Next To Finalize The Avatar In Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Clicking-on-Next-To-Finalize-The-Avatar-in-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -86,9 +91,6 @@ Close
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## How to Make Your Avatar Your Profile Picture
 
  If you want to use your avatar for your Facebook profile picture, you'll first need to go to**Settings > Avatar** . Once the avatar has loaded, click on**the arrow button** at the top of the options list on the right.
@@ -96,8 +98,9 @@ Close
 ![Make Profile Picture To Use Avatar As Profile Picture On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Make-Profile-Picture-to-Use-Avatar-as-Profile-Picture-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Choosing a Pose And Background To Use Avatar As Profile Picture On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Choosing-a-Pose-and-Background-to-Use-Avatar-as-Profile-Picture-on-Facebook.jpg)
 
 Close
@@ -113,8 +116,9 @@ Close
 ![Setting Avatar As Temporary Profile Picture On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Setting-Avatar-as-Temporary-Profile-Picture-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Using Avatar As Profile Picture On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Using-Avatar-as-Profile-Picture-On-Facebook.jpg)
 
 Close
@@ -135,14 +139,8 @@ Close
 
 ![Creating Post To Use Avatar On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Creating-Post-To-Use-Avatar-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Selecting a Pose To Use Avatar In Post On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Selecting-a-Pose-to-Use-Avatar-in-Post-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Writing Post With Using Avatar In Post On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Writing-Post-With-Using-Avatar-in-Post-on-Facebook.jpg)
 
 Close
@@ -157,9 +155,6 @@ Close
 
  The post will then be shared with your chosen background, as you can see below in the final screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Creating a Post On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Creating-a-Post-on-Facebook.jpg)
 
 ![Choosing Avatar As Background For Post On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Choosing-Avatar-as-Background-For-Post-on-Facebook.jpg)
@@ -178,25 +173,23 @@ Close
 4. Select an avatar.
 5. Post the comment by clicking on the**arrow icon** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![Choosing a Personalized Avatar Sticker To Comment On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Choosing-a-Personalized-Avatar-Sticker-To-Comment-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![Personalized Sticker Selected To Use In Comments On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Personalized-Sticker-Selected-to-Use-in-Comments-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Personalized Avatar Sticker Used In Comments On Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Personalized-Avatar-Sticker-Used-in-Comments-on-Facebook.jpg)
 
 Close
 
  Tapping on**Edit Avatar** in the top right corner, which is underneath**Your Avatar** , will take you to the avatar preview window. Here, you can make edits to the sticker you've chosen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use Your Avatar as a Messenger Sticker
 
@@ -209,29 +202,16 @@ Close
 5. Find a friend you would like to send the Avatar to.
 6. Select**Send** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Sending Avatar Stickers In Messenger Option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Sending-Avatar-Stickers-in-Messenger-Option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![Avatar Sticker Ready To Send On Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Avatar-Sticker-Ready-to-Send-on-Facebook-Messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![Searching The Name Of Person To Send Avatar Sticker On Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Searching-the-Name-of-Person-To-Send-Avatar-Sticker-on-Facebook-Messenger.jpg)
 
 Close
 
  Once shared, you can reuse the sticker on Facebook Messenger. You can also save it directly in your phone's gallery to share across other platforms, and the process is identical to if you shared a normal image.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Share Your Facebook Avatar on Instagram
 
  If you want to, you can also share your Facebook avatar on other social media platforms. One of those is Instagram; you can find the steps for doing so as a sticker on this app below.
@@ -244,6 +224,10 @@ Close
 6. Share your avatar sticker after writing a description. You can do this by clicking on**the tick icon** in the top right.
 
 ![All Stickers of Avatar Sharing Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/All-Stickers-of-Avatar-Sharing-Options.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Sharing Avatar Sticker To External Apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Sharing-Avatar-Sticker-To-External-Apps.jpg)
 
@@ -259,14 +243,11 @@ Close
 
  After making your avatar, you can use it in a variety of ways—both on Facebook and beyond. So, if you haven't made an avatar yet, why not give it a try?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -275,6 +256,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-exquisite-drone-fleet-the-pinnacle-of-visual-artistry/"><u>[New] Exquisite Drone Fleet The Pinnacle of Visual Artistry</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-tactical-phone-data-shift-android-to-iphone/"><u>[New] In 2024, Tactical Phone Data Shift Android to iPhone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-engage-and-inspire-viewers-animated-subscribers-in-filmora-explained/"><u>[Updated] In 2024, Engage and Inspire Viewers - Animated Subscribers in Filmora Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-satire-facebooks-directive/"><u>Identifying Satire: Facebook's Directive</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-oneplus-ace-2v-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your OnePlus Ace 2V Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-logitech-k350-drivers-get-them-here/"><u>Latest Logitech K350 Drivers - Get Them Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-deletion-remove-your-facebook-story/"><u>Mastering the Deletion: Remove Your Facebook Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-social-media-integrations-facebook-tips/"><u>Organizing Social Media Integrations: Facebook Tips</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-6s-plus-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 6s Plus Data From iCloud | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/restrict-sponsored-content-curation-in-social-environments/"><u>Restrict Sponsored Content Curation in Social Environments</u></a></li>
+<li><a href="https://some-tips.techidaily.com/secure-your-discounted-apple-watch-series-10-now-exclusive-offer-under-100-with-preorders-at-best-buy-learn-more-inside/"><u>Secure Your Discounted Apple Watch Series 10 Now: Exclusive Offer Under $100 with Preorders at Best Buy – Learn More Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/spark-conversation-social-media-mastery-with-ripl/"><u>Spark Conversation: Social Media Mastery with Ripl</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oloists-journey-personal-growth-and-success-on-youtube-for-musicians/"><u>The Soloist's Journey Personal Growth and Success on YouTube for Musicians</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-accessing-your-fb-ban/"><u>Understanding and Accessing Your FB Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-fb-cracking-down-on-genuine-promos/"><u>Whispers of FB Cracking Down on Genuine Promos</u></a></li>
+</ul></div>
 

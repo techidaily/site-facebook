@@ -1,7 +1,7 @@
 ---
 title: Building Engaging FB Polls for Pages & Groups
-date: 2024-08-08T11:19:10.786Z
-updated: 2024-08-09T11:19:10.786Z
+date: 2025-01-19T17:07:18.667Z
+updated: 2025-01-24T18:56:37.350Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/7079de538a777b736a226ef7753a657beca0fed63
  In this guide, we’ll show you how to create a poll on Facebook—specifically for posts on Pages, in Groups, and on your Stories.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Create a Poll on a Facebook Page
 
  Facebook supports adding a poll to your Facebook Page, and this way you can collect responses from the people who follow it.
@@ -42,16 +43,10 @@ To create a poll on your page from Facebook’s desktop site:
 
  Related: [Here's What Facebook's New Page Labels Mean](https://www.makeuseof.com/what-facebook-new-page-labels-mean/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Start a Poll in a Facebook Group
 
  You can add a poll as a post to your Facebook Groups as well. The procedure to do this is similar to how you add a poll to a Facebook Page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Start a poll in a Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-group.png)
 
  A Group poll helps collect responses from its members. Here's how you set one up::
@@ -65,21 +60,24 @@ To create a poll on your page from Facebook’s desktop site:
 7. Finally, click**Post** at the bottom to publish your poll.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Post a Poll to a Facebook Story
 
  You must use Facebook’s iOS or Android app to add a poll to a Facebook Story. This is because Facebook’s desktop version doesn’t offer the option to make a poll in your Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Post a poll in a Facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-story.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Poll options in a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/poll-options-facebook-story.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -94,18 +92,19 @@ To create a poll in a Story:
 7. When you’re done, tap**Done** at the top-right corner.
 8. Select**Share** at the bottom to share your poll in your Facebook Story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Collect Opinions With Ease Using Facebook Polls
 
  With Facebook allowing you to create polls in your Pages, Groups, and Stories, it’s easy to collect opinions about various topics from your social media following. Try it out and see how it works for yourself.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,6 +113,20 @@ To create a poll in a Story:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-lenovos-secrets-to-effortless-screenshots/"><u>[New] 2024 Approved Lenovo's Secrets to Effortless Screenshots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-gain-instagram-reel-fame-emulate-top-tiktok-trends-and-insights-for-2024/"><u>[Updated] Gain Instagram Reel Fame Emulate Top TikTok Trends & Insights for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/beyond-cyberlink-top-screen-capture-software-reviewed-for-2024/"><u>Beyond Cyberlink Top Screen Capture Software Reviewed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-principles-to-diminish-digital-distractions/"><u>Guiding Principles to Diminish Digital Distractions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-itel-s23plus-phone-by-drfone-android/"><u>How to Unlock a Network Locked Itel S23+ Phone?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-street-saga-best-gaming-matches-to-gta-v/"><u>In 2024, Street Saga Best Gaming Matches to GTA V</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-insights-how-to-make-your-videos-a-hit/"><u>Instagram Insights How to Make Your Videos a Hit</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-under-wraps-dont-join-in-facebook-market-research/"><u>Keep It Under Wraps: Don't Join in Facebook’ Market Research</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1682855-9780980885941-love-it-forward/"><u>Love it Forward | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-trump-accuses-g-f-t-of-silencing-opinions/"><u>President Trump Accuses G-F-T of Silencing Opinions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-rooms-potential-additions-to-facebook-stories-panels/"><u>Reels & Rooms: Potential Additions to Facebook Stories Panels</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-12-pro-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme 12 Pro 5G Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/vanishing-visibility-of-friends-on-fb/"><u>Vanishing Visibility of Friends on FB</u></a></li>
+</ul></div>
 

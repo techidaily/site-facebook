@@ -1,7 +1,7 @@
 ---
 title: Quick Remedies for Top 11 Social Media Headaches on FB
-date: 2025-01-11T16:24:22.971Z
-updated: 2025-01-18T16:14:22.837Z
+date: 2025-01-23T19:57:45.031Z
+updated: 2025-01-24T20:02:32.584Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/5102f68d4f6f5865eb613c39e1e5be805ea96bcf0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Require Reviews for Tags
 
 [Facebook tagging is a fun feature](http://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) on the surface, but it's also a privacy risk. If someone takes an embarrassing picture of you and tags you in it, all your friends will be able to see that picture. There's also a risk that someone could use a tagged post to obtain too much personal information about you.
@@ -37,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/5102f68d4f6f5865eb613c39e1e5be805ea96bcf0
 ![Facebook Profile and Tagging settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-profile-and-tagging-2023.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### If Facebook Tagging Isn't Working
@@ -58,6 +62,10 @@ We all know someone who posts all the time on Facebook:
  To[unfollow someone on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) , visit their profile page. On the right side below their cover photo, you should see a box that says**Friends** . Click that, then select**Unfollow** .
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
@@ -86,7 +94,7 @@ We all know someone who posts all the time on Facebook:
 ![Meta Account Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/meta-account-ad-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Here, you'll see a few categories. Choose**No** under**Activity information from ad partners** and Facebook won't use your activity on other sites to show ads on Facebook.
@@ -97,17 +105,9 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Advertising List Info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Advertising-List-Info.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Setting**Social interactions** to**Only Me** prevents Facebook from using pages that you like to show ads to your friends.
 
  Finally, if you disable the slider in**Ads shown off of Meta** , websites that use Meta's ad services can't use your profile to affect the ads you see outside of Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Stop Sharing Posts With Everyone
 
@@ -127,6 +127,10 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Restricted List Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Restricted-List-Friends.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Block Annoying Auto-Playing Videos
 
  Very few people like videos that play as soon as you scroll past them. They're loud and can catch you off-guard if you thought your volume was muted. Plus, if you're on a metered connection, they're a waste of data.
@@ -134,10 +138,6 @@ We all know someone who posts all the time on Facebook:
  To turn off auto-play for videos on Facebook, click your profile picture again and choose**Settings & privacy > Settings** . Click the**Videos** tab on the left, then set the**Auto-Play Videos** option to**Off** .
 
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Block Annoying App Invites
 
@@ -150,7 +150,7 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Change the Facebook Interface to Your Liking
@@ -163,6 +163,10 @@ We all know someone who posts all the time on Facebook:
 
 ![Social Fixer Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Social-Fixer-Menu.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Social Fixer offers too many options to cover here, but the highlights include:
 
 * Automatically enable**Most Recent** view in your News Feed (**General** tab).
@@ -174,13 +178,13 @@ We all know someone who posts all the time on Facebook:
 
  Dig into the Social Fixer options and you'll find many more ways to change the most annoying parts of Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Solutions for Common Facebook Errors
 
  To wrap up, let's go over some tips for common Facebook errors you might run into.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. You Forgot Your Facebook Password
 
@@ -206,10 +210,6 @@ We all know someone who posts all the time on Facebook:
 
  When you get messages like this, make sure you've done basic Facebook troubleshooting too. Refresh the page, try logging out and back in, and make sure you don't have a network issue, as described above. If you're comfortable with it, try asking a mutual friend if they have the same problem. This can confirm your suspicions that you've been blocked or otherwise restricted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Fix Facebook Problems Easily
 
  We've shared fixes for some of the most common Facebook problems and errors. By flipping the right settings or using powerful extensions, you can make Facebook a more pleasant experience for yourself.
@@ -231,24 +231,21 @@ We all know someone who posts all the time on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/just-chill-decoding-instagrams-encouragement-to-reduce-tech-time/"><u>'Just Chill': Decoding Instagram’s Encouragement to Reduce Tech Time</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-finalizing-your-video-with-a-bold-statement/"><u>[New] 2024 Approved Finalizing Your Video with a Bold Statement</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-sony-bdp-s6500-review/"><u>[New] 2024 Approved Sony BDP-S6500 Review</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-capture-kings-warzone-for-2024/"><u>[New] Capture Kings Warzone for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-meme-madness-twitters-funniest-video-threads/"><u>[Updated] Meme Madness Twitter's Funniest Video Threads</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/my-passport-wd/"><u>西部My Passport WD數據盒容量分配與管理：解決方法</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/eyegigglesengine-jestimageforge-for-2024/"><u>EyeGigglesEngine JestImageForge for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/finding-familiarity-or-isolation-the-impact-of-joining-a-fb-expat-group/"><u>Finding Familiarity or Isolation? The Impact of Joining a FB Expat Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortify-your-pages-adopting-additional-admins/"><u>Fortify Your Pages: Adopting Additional Admins</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-vivo-v27e-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Vivo V27e Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-restrictions-under-consideration-facebooks-upcoming-youth-initiative/"><u>Instagram Restrictions Under Consideration: Facebook's Upcoming Youth Initiative</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networkings-new-favorite-crypto-advertising-increases/"><u>Social Networking's New Favorite: Crypto Advertising Increases</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/turning-onoff-your-android-devices-bluetooth-connection/"><u>Turning On/Off Your Android Device's Bluetooth Connection</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-iconography-in-digital-communication-fb-messenger/"><u>Understanding Iconography in Digital Communication: FB Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-remote-relationships-through-facebook-portals-video-chats/"><u>Unlocking Remote Relationships Through Facebook Portals' Video Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-facebooks-auditory-expressions-for-sms/"><u>Unraveling Facebook’s Auditory Expressions for SMS</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-clearly-the-efectum-app-download-without-a-watermark-option-is-on-android-phones-thus-read-this-review-on-the-efectum-app-and-find-replaceme/"><u>Updated In 2024, Clearly, the Efectum App Download without a Watermark Option Is on Android Phones. Thus, Read This Review on the Efectum App and Find Replacements for Good</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-online-dialogue-is-now-in-the-hands-of-social-giants/"><u>Why Online Dialogue Is Now in the Hands of Social Giants</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elite-7-dslr-options-superior-for-professional-videography/"><u>[New] In 2024, Elite 7 DSLR Options Superior for Professional Videography</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-tailoring-podcast-sharing-for-instagram-enthusiasts-for-2024/"><u>[New] Tailoring Podcast Sharing for Instagram Enthusiasts for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-zoom-for-beginners-essential-webinar-skills-unveiled/"><u>[New] Zoom for Beginners Essential Webinar Skills Unveiled</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-ranked-9-iphone-applications-to-add-watermarks-on-photos/"><u>[Updated] Ranked 9 iPhone Applications to Add Watermarks on Photos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/battle-of-the-smartwatch-giants-assessing-the-pros-and-cons-of-samsungs-ultra-vs-apples-ultra-making-an-informed-purchase-decision/"><u>Battle of the Smartwatch Giants: Assessing the Pros and Cons of Samsung's Ultra Vs. Apple's Ultra – Making an Informed Purchase Decision</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-swagtron-swagboard-t1-affordable-quality-with-exceptional-maneuverability/"><u>Comprehensive Analysis of the Swagtron Swagboard T1 - Affordable Quality with Exceptional Maneuverability</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/expressive-exchanges-textual-embellishments-in-messages/"><u>Expressive Exchanges: Textual Embellishments in Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/giphy-at-a-crossroads-as-fb-sell-scenario-emerges/"><u>Giphy at a Crossroads as FB Sell Scenario Emerges</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-xiaomi-redmi-note-12-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Xiaomi Redmi Note 12 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-story-expertise-your-ultimate-resource/"><u>In 2024, Instagram Story Expertise Your Ultimate Resource</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-keywords-that-captivate-enhancing-your-video-content/"><u>In 2024, Keywords that Captivate Enhancing Your Video Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/interconnected-evolution-4-ways-platforms-altered-society/"><u>Interconnected Evolution: 4 Ways Platforms Altered Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/skillful-use-of-alternative-chat-platforms-not-fb/"><u>Skillful Use of Alternative Chat Platforms, Not FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-purity-drive-excluding-polityfaith-talk/"><u>Social Media Purity Drive: Excluding Polity/Faith Talk</u></a></li>
+<li><a href="https://facebook.techidaily.com/suspension-of-decision-facebooks-regulatory-board/"><u>Suspension of Decision: Facebook's Regulatory Board</u></a></li>
 </ul></div>
 

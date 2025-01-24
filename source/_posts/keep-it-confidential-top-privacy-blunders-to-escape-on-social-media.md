@@ -1,7 +1,7 @@
 ---
 title: Keep It Confidential! Top Privacy Blunders to Escape on Social Media
-date: 2025-01-14T16:16:10.271Z
-updated: 2025-01-18T16:27:17.935Z
+date: 2025-01-18T21:05:24.387Z
+updated: 2025-01-24T19:50:23.781Z
 tags:
   - facebook
 categories:
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -31,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 * Avoid sharing personally-identifying information, such as your full date of birth or photos of important documents, to prevent identity theft and unauthorized access to your accounts.
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Travel Plans
 
@@ -55,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Personally-Identifying Information
@@ -76,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -98,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
@@ -113,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
@@ -122,11 +114,19 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -157,21 +157,18 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-best-10-free-downloads-legal-meditation-melodies/"><u>2024 Approved Best 10 Free Downloads Legal Meditation Melodies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-pushing-boundaries-3d-text-in-adobe-illustrator/"><u>2024 Approved Pushing Boundaries 3D Text in Adobe Illustrator</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-motorola-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Motorola</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-apple-iphone-8-plus-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>Best Apple iPhone 8 Plus & iPad Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-user-interactions-with-a-focus-on-news-streams/"><u>Exploring User Interactions with a Focus on News Streams</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/freeze-the-frame-overcoming-shake-phenomena-for-2024/"><u>Freeze the Frame Overcoming Shake Phenomena for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-nvidia-high-definition-audio-no-sound/"><u>How to Fix Nvidia High Definition Audio No Sound</u></a></li>
-<li><a href="https://facebook.techidaily.com/masked-mutualities-facebooks-friendlist-shield/"><u>Masked Mutualities: Facebook's Friendlist Shield</u></a></li>
-<li><a href="https://facebook.techidaily.com/resurrect-the-inactive-restore-your-facebook-experience/"><u>Resurrect the Inactive: Restore Your Facebook Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-connectivity-what-to-expect-from-fbs-boombox-with-spotify/"><u>Revolutionizing Connectivity: What to Expect From FB's Boombox With Spotify</u></a></li>
-<li><a href="https://facebook.techidaily.com/sealing-your-social-exit-complete-unsubscription-from-fb/"><u>Sealing Your Social Exit: Complete Unsubscription From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-breakthroughs-in-technology-youve-missed-out-on/"><u>The Biggest Breakthroughs in Technology You've Missed Out On</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-essential-guide-to-iphone-reflections-in-landscapes/"><u>The Essential Guide to iPhone Reflections in Landscapes</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/1723862839510-transform-your-workspace-get-the-immersive-lg-34-inch-499-curved-ultragear-display-today/"><u>Transform Your Workspace: Get the Immersive LG 34-Inch $499 Curved UltraGear Display Today</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-fixing-modern-warfare-game-crashes-and-lag-issues-on-windows/"><u>Troubleshooting: Fixing 'Modern Warfare' Game Crashes & Lag Issues on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-social-etiquette-in-digital-interactions/"><u>Understanding Social Etiquette in Digital Interactions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-10-webcam-applications-in-windows-a-comprehensive-list/"><u>[Updated] 2024 Approved Top 10 Webcam Applications in Windows A Comprehensive List</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-how-to-choose-video-recording-between-30-vs-60-fps/"><u>[Updated] How To Choose Video Recording Between 30 Vs. 60 FPS?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-enhance-visual-harmony-editing-for-instagram-standards/"><u>2024 Approved Enhance Visual Harmony Editing for Instagram Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-amplify-your-online-presence-with-fb-groups/"><u>A Guide to Amplify Your Online Presence with FB Groups</u></a></li>
+<li><a href="https://win-superb.techidaily.com/acquire-exclusive-designer-cakes-media-seamless-video-downloads-from-designer-cakescom/"><u>Acquire Exclusive Designer Cakes Media: Seamless Video Downloads From designer-cakes.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-off-social-buttons-on-fb-nostalgia-feature/"><u>Cut Off Social Buttons on FB Nostalgia Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-framework-understanding-its-governance-entity/"><u>Facebook's Framework: Understanding Its Governance Entity</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-iphone-6-plus-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T iPhone 6 Plus with 3 Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-opportunities-5-facebook-strategies-for-careers/"><u>Maximizing Opportunities: 5 Facebook Strategies for Careers</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-stop-and-resolve-apex-crashes-in-win11/"><u>Strategies to Stop and Resolve Apex Crashes in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-fumbles-of-the-current-era/"><u>The Biggest Tech Fumbles of the Current Era</u></a></li>
+<li><a href="https://win-help.techidaily.com/turn-off-graphics-processing-unit-gpu-under-windows-with-easy-steps-from-yl-software-experts/"><u>Turn Off Graphics Processing Unit (GPU) Under Windows with Easy Steps From YL Software Experts</u></a></li>
 </ul></div>
 

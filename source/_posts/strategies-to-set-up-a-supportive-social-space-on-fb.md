@@ -1,7 +1,7 @@
 ---
 title: Strategies to Set Up a Supportive Social Space on FB
-date: 2025-01-17T16:05:22.434Z
-updated: 2025-01-18T16:18:09.504Z
+date: 2025-01-20T20:07:07.569Z
+updated: 2025-01-24T16:27:07.017Z
 tags:
   - facebook
 categories:
@@ -24,24 +24,24 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Steps to Make a Group on Facebook
 
 ![Facebook app menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318180626_1305065376700688_893057211392699849_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook app menu showing groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318097009_540592084597722_6156826463203386396_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook app add group page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318166381_2214654402059587_9156416634789261192_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -54,6 +54,10 @@ Close
 4. You'll see a**blue circle** with a cross through it on the bottom left-hand corner of the screen.
 5. Tap it and select**Create Group** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Customize Your Facebook Group
 
  Before you create your group, you'll need to select some options from a menu which will enable you to customize it for your purposes.
@@ -64,21 +68,17 @@ Close
 
  When you're finished, click**Create Group** at the bottom of the screen. You'll then be taken to a page that will allow you to invite members from your Facebook friends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Go Live With Your Facebook Group
 
 ![Create group page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318217881_894969165206821_5445276175446551093_n.jpg)
 
 ![Choose group options when creating a group on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318477258_939639773675965_2846710644227593590_n.jpg)
 
-![Add a cover photo to a group page option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318289485_906496730348611_983213840070343513_n.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Add a cover photo to a group page option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318289485_906496730348611_983213840070343513_n.jpg)
 
 Close
 
@@ -103,18 +103,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-turn-social-media-audio-into-mp3/"><u>[New] 2024 Approved Turn Social Media Audio Into MP3</u></a></li>
-<li><a href="https://program-issues.techidaily.com/a-comprehensive-guide-to-resolving-minecraft-black-screen-issues-2024-update/"><u>A Comprehensive Guide to Resolving Minecraft Black Screen Issues: 2024 Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-dialogue-6-grouping-gains-on-facebook/"><u>Elevating Dialogue: 6 Grouping Gains on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-reelstory-the-next-step-in-branding/"><u>Facebook & Instagram Reel/Story: The Next Step in Branding</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/get-lost-in-sound-with-gamings-best-speaker-system-now-at-a-discounted-price-read-more-in-zdnets-review/"><u>Get Lost in Sound with Gaming's Best Speaker System Now At A Discounted Price! Read More In ZDNET's Review</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-to-ask-chatgpt-to-help-modify-your-car/"><u>How to Ask ChatGPT to Help Modify Your Car</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-xiaomi-redmi-note-12-4g-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Xiaomi Redmi Note 12 4G? Try These Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/isbm-enhances-mental-wellness-with-groundbreaking-cbt-strategies/"><u>ISBM Enhances Mental Wellness with Groundbreaking CBT Strategies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ey-around-the-world-on-youtube-including-you-for-2024/"><u>Journey Around the World on YouTube, Including You for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-messenger-location-sharing/"><u>Step-by-Step Guide to Messenger Location Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-everyone-emoticons-in-comments/"><u>Stop @Everyone Emoticons in Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailor-your-soundtrack-listen-to-spotifys-mini-player-on-fb/"><u>Tailor Your Soundtrack: Listen to Spotify's Mini Player on FB</u></a></li>
-<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-honor-90-lite-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Honor 90 Lite.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-instructions-turn-on-windows-11s-adaptive-hdr-for-2024/"><u>[New] Instructions Turn on Windows 11'S Adaptive HDR for 2024</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/1-troubleshooting-how-to-fix-a-non-responsive-mouse-on-your-pc-expert-tips-by-yl-computing/"><u>1. Troubleshooting: How to Fix a Non-Responsive Mouse on Your PC - Expert Tips by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-double-edged-sword-weighing-social-connectivity-against-your-privacy-with-facebook-logins/"><u>A Double-Edged Sword: Weighing Social Connectivity Against Your Privacy with Facebook Logins</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-for-gaming-supremacy-nintendos-switch-lite-vs-oled-edition-head-to-head-review/"><u>Battle for Gaming Supremacy: Nintendo's Switch Lite Vs. OLED Edition Head-to-Head Review</u></a></li>
+<li><a href="https://win-web.techidaily.com/comprendre-le-guide-de-mise-a-jour-execution-du-commandement-de-dell-pour-windows-1110/"><u>Comprendre Le Guide De Mise À Jour : Exécution Du Commandement De Dell Pour Windows 11/10</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-enterprise-excellence-select-5-powerful-platforms/"><u>Exploring Enterprise Excellence: Select 5 Powerful Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recognize-and-stop-facebook-fraudsters/"><u>How to Recognize and Stop Facebook Fraudsters</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-attention-magnet-article-initiator/"><u>In 2024, Attention Magnet Article Initiator</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-craft-your-cinematic-iphone-footage-creating-and-editing-slow-movement-sequences/"><u>In 2024, Craft Your Cinematic iPhone Footage Creating & Editing Slow Movement Sequences</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-honor-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Honor Phone that is Locked?</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-of-growth-unveiling-the-new-term-metamate/"><u>Journey of Growth: Unveiling the New Term, 'Metamate'</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-memorable-with-fb-images-on-whatsapp/"><u>Making Friends Memorable with FB Images on WhatsApp</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-your-build-essential-tips-from-toms-hardware/"><u>Mastering Your Build: Essential Tips From Tom's Hardware</u></a></li>
+<li><a href="https://win11.techidaily.com/retuning-windows-11-energy-settings-from-loss/"><u>Retuning Windows 11 Energy Settings From Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-metas-updated-approach-to-user-privacy/"><u>Unraveling Meta's Updated Approach to User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
 </ul></div>
 

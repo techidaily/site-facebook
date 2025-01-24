@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Covert Norms of Online Networking on FB
-date: 2025-01-11T16:00:41.627Z
-updated: 2025-01-18T16:24:34.510Z
+date: 2025-01-17T21:51:12.249Z
+updated: 2025-01-24T17:33:12.965Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Find Your Friend Requests on Facebook
 
  When logged into Facebook, you can find your pending friend requests under**Menu (3x3 dots icon) > Friends** . Facebook no longer highlights pending friend requests, but you will see a note in your Facebook notifications.
@@ -40,7 +44,15 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Overview of received friend requests and people you may know on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Requests-Received.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When you remove or deny a friend request, Facebook won't notify them about it. However, they won't be able to send you another request for an entire year.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Send and Cancel a Friend Request on Facebook
 
@@ -48,27 +60,19 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Facebook Add Friend button on a person's profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Add-Friend.jpg)
 
- To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
 ## How to Find Out Whether Someone Denied Your Facebook Friend Request
 
 ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
 
  If you can't send them a friend request at all, they may have changed who can add them or they denied your friend request less than a year ago.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Unfollowing vs. Unfriending on Facebook
 
@@ -78,12 +82,16 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Facebook on-post menu to unfollow or snooze a friend.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Alternatively, head to your friend's profile, expand the menu right next to your friendship status, and select**Unfollow** from the bottom.
 
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Unwritten Facebook Friend Request Rules
@@ -104,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
  In other words: don't look like a fake account, don't add random strangers, and don't be a stranger yourself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Add Friends Conservatively
 
  You will often want to add a new friend immediately, even though you don't have mutual friends on Facebook. And it might be more awkward to send a message first than to add them directly.
@@ -118,15 +122,15 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
  If you just want to follow someone's Facebook posts, and if there is an option to follow them, rather choose that option. From their profile, click the three-dot menu, and select**Follow** . This allows you to see what they are up to, but your timeline is not shared with them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Report Spammy Friend Requests
 
  When you delete a friend request, Facebook promises that the sender won't be notified. But they might send you a new request. If you can't get rid of them, you can use either the**Find support or report offline** or**Block** options, available from the three-dot menu, to prevent further friend requests from that person.
 
 ![Block person after unsolicited friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Block-Friend-Request.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Use the first option to report fake accounts, strangers, or people who harass you.
 
@@ -135,7 +139,7 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 Keep in mind that if you do this, the person may be penalized.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Review Friend Requests You Have Sent
@@ -151,7 +155,7 @@ Keep in mind that if you do this, the person may be penalized.
  Check through your sent requests to make sure you haven't unwittingly sent someone an invite on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Block Friend Requests From Strangers
@@ -164,10 +168,6 @@ Keep in mind that if you do this, the person may be penalized.
 
 ![Facebook friend request settings in the Privacy section.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Request-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Hide Your Friends List
 
  Allowing everyone to see who you've friended could cause some people to be jealous and subject your friends to unsolicited friend requests. It's best to restrict who can see your Friends list and friend activity.
@@ -177,6 +177,10 @@ Keep in mind that if you do this, the person may be penalized.
  Here, you can further refine your privacy settings by choosing who can see your Friends list.
 
 ![Choose who can see your Facebook friends list.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-List-Visibility.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You can also access all friends-related settings from your (existing) Facebook friends page. From your profile page, click**See all friends** , then click the**three-dot menu** next to Find Friends and choose**Edit Privacy** .
 
@@ -208,10 +212,6 @@ Keep in mind that if you do this, the person may be penalized.
 
  If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
  This can happen if you send too many friend requests at once, have many unanswered friend requests, or if several people marked your requests as spam.
@@ -241,20 +241,21 @@ Follow our guidelines above to avoid this from happening again.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-shorts-monetization-how-to-make-money-on-youtube-shorts/"><u>[New] YouTube Shorts Monetization How to Make Money on YouTube Shorts?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-incredible-analysis-and-backup-recommendations-for-2024/"><u>[Updated] Incredible Analysis & Backup Recommendations for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-top-2-methods-to-transform-zoom-sound-ensuring-clarity-for-2024/"><u>[Updated] Top 2 Methods to Transform Zoom Sound, Ensuring Clarity for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfecting-subtitles-in-media-ultimate-list-of-on-line-aid-sources/"><u>2024 Approved Perfecting Subtitles in Media Ultimate List of On-Line Aid Sources</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dells-new-lightweight-gaming-laptop-the-perfect-blend-of-power-and-portability-for-the-office/"><u>Dell's New Lightweight Gaming Laptop: The Perfect Blend of Power & Portability for the Office</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-lava-yuva-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fords-off-road-legend-as-an-rc-model-the-ultimate-review-of-galaxy-f-150-rtr/"><u>Ford's Off-Road Legend as an RC Model - The Ultimate Review of Galaxy F-150 RTR</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-online-dialogues-facebook-brings-end-to-end-encryption-for-im-and-call/"><u>Fortifying Online Dialogues: Facebook Brings End-to-End Encryption for IM and Call</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-online-narratives-identifying-honest-and-hollow-profiles/"><u>Navigating Online Narratives: Identifying Honest and Hollow Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/permanently-burying-others-in-fbs-memories-sphere/"><u>Permanently Burying Others in FB's Memories Sphere</u></a></li>
-<li><a href="https://facebook.techidaily.com/shop-online-live-the-experience-on-fb-fridays/"><u>Shop Online, Live the Experience on FB Fridays</u></a></li>
-<li><a href="https://facebook.techidaily.com/sidestep-facebook-snares-learn-about-these-14-frequent-frauds/"><u>Sidestep Facebook Snares: Learn About These 14 Frequent Frauds</u></a></li>
-<li><a href="https://facebook.techidaily.com/text-room-success-starts-here-novice-guidance/"><u>Text Room Success Starts Here: Novice Guidance</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/titre-techniques-simplifiees-pour-sauvegarder-et-configurer-les-ordinateurs-developpement-professionnel-avec-windows/"><u>Titre: Techniques Simplifiées Pour Sauvegarder Et Configurer Les Ordinateurs Développement Professionnel Avec Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-facebook-life-under-siege-find-the-signs/"><u>Your Facebook Life Under Siege? Find the Signs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-animation-tips-warped-type-techniques-for-2024/"><u>[New] Animation Tips Warped Type Techniques for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unleashing-creativity-with-aes-best-text-presets/"><u>[New] Unleashing Creativity with AE's Best Text Presets</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-music-lovers-unite-how-to-add-sounds-in-inshot/"><u>2024 Approved Music Lovers Unite How to Add Sounds in InShot</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipate-a-shift-social-networkings-new-focus-on-crypto/"><u>Anticipate a Shift: Social Networking's New Focus on Crypto</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tutorial-assembling-groups-on-facebook-platforms/"><u>Comprehensive Tutorial: Assembling Groups on Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-telegrams-popularity-post-facebook-outage/"><u>Demystifying Telegram’s Popularity Post-Facebook Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-digital-misappropriation-of-intriguing-selfies/"><u>Halt Digital Misappropriation of Intriguing Selfies</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-nokia-130-music-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Nokia 130 Music Phones with/without a PC</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/inside-look-at-apple-watch-series-6-refined-features-keep-it-ahead-of-competition/"><u>Inside Look at Apple Watch Series 6: Refined Features Keep It Ahead of Competition</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-find-x6-profrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Find X6 ProFRP Lock</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210347370-9782226425195-le-visage-du-vent-dest/"><u>Le Visage du vent d'est | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-vs-perception-how-we-view-facebooks-userbase/"><u>Reality Vs. Perception: How We View Facebook's Userbase</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-banishing-your-faux-pas-fb-business-page/"><u>Step-by-Step Guide to Banishing Your Faux Pas - FB Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-investment-oculus-quest-trend-post-account-breaches/"><u>The $300 Investment: Oculus Quest Trend Post-Account Breaches</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-next-gen-macbook-pro-with-m3-chip-what-you-need-to-know-about-price-release-date-and-spec-sheet/"><u>The Next-Gen MacBook Pro with M3 Chip: What You Need to Know About Price, Release Date & Spec Sheet</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Honor Magic 5? | Dr.fone</u></a></li>
 </ul></div>
 

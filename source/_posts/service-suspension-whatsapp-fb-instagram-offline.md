@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2025-01-14T16:04:34.233Z
-updated: 2025-01-18T16:15:26.262Z
+date: 2025-01-23T18:17:55.720Z
+updated: 2025-01-24T22:37:10.268Z
 tags:
   - facebook
 categories:
@@ -37,14 +37,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
@@ -57,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -71,12 +67,16 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
 
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -109,16 +109,18 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-elevating-your-macro-videos-a-comprehensive-checklist-for-2024/"><u>[Updated] Elevating Your Macro Videos A Comprehensive Checklist for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/banishing-the-black-screen-specter-on-your-iphone-with-ease/"><u>Banishing the Black Screen Specter on Your iPhone with Ease</u></a></li>
-<li><a href="https://program-issues.techidaily.com/bypassing-startup-problems-for-helldivers-2-on-steam-effective-strategies-and-fixes/"><u>Bypassing Startup Problems for Helldivers 2 on Steam: Effective Strategies and Fixes</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-clip-courage-embracing-twitters-viral-vanguard/"><u>In 2024, Clip Courage Embracing Twitter's Viral Vanguard</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-essentials-of-apple-podcast-catalog-integration/"><u>In 2024, Essentials of Apple Podcast Catalog Integration</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/low-cost-strategies-5-tips-for-efficient-fb-update-planning/"><u>Low-Cost Strategies: 5 Tips for Efficient FB Update Planning</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-discretion-concealing-likes-on-fb/"><u>Mastering Discretion: Concealing Likes on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-safety-on-fb-marketplace-essential-nine-steps/"><u>Mastering Safety on FB Marketplace: Essential Nine Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-facebook-interaction-maximizing-impact-responsibly/"><u>The Art of Facebook Interaction: Maximizing Impact Responsibly</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/troubleshooting-tips-fixing-your-samsung-blu-ray-player-issues/"><u>Troubleshooting Tips: Fixing Your Samsung Blu-Ray Player Issues</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-legal-download-how-to-safely-transfer-youtube-to-mp4/"><u>[New] 2024 Approved Legal Download How to Safely Transfer YouTube to MP4</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-monetizing-with-youtube-avg-revenue-from-an-ad/"><u>[New] 2024 Approved Monetizing with Youtube Avg Revenue From An Ad?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-immersive-film-experience-photography-plus-music-for-2024/"><u>[Updated] Immersive Film Experience Photography + Music for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-unseen-by-fb-learn-to-use-the-off-fb-tool/"><u>Be Unseen by FB: Learn to Use the Off-FB Tool</u></a></li>
+<li><a href="https://some-tips.techidaily.com/cost-effective-yet-questionable-accuracy-a-comprehensive-review-of-the-thermopro-tp67/"><u>Cost-Effective Yet Questionable Accuracy: A Comprehensive Review of the ThermoPro TP67</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-connections-not-clicks-leave-facebook/"><u>Cultivate Connections, Not Clicks: Leave Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanded-social-footprint-distribute-instagram-reels-to-facebook-network/"><u>Expanded Social Footprint: Distribute Instagram Reels to Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-collection-at-risk-due-to-ios-145-update/"><u>Facebook's Data Collection at Risk Due to iOS 14.5 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-pivotal-shifts-causing-facebooks-user-slide/"><u>Four Pivotal Shifts Causing Facebook's User Slide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-much-does-youtube-pay-for-1-million-views-for-2024/"><u>How Much Does YouTube Pay for 1 Million Views for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-samsung-galaxy-m54-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Samsung Galaxy M54 5G Phone?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/labor-day-sale-alert-land-a-huge-savings-of-700-on-latest-202n-ipad-pro-models-zdnet-hot-offers/"><u>Labor Day Sale Alert: Land a Huge Savings of $700 on Latest 202N iPad Pro Models | ZDNET Hot Offers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-hosting-events-via-facebook-platform/"><u>The Art of Hosting Events via Facebook Platform</u></a></li>
 </ul></div>
 

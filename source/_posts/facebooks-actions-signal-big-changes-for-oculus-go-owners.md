@@ -1,7 +1,7 @@
 ---
 title: Facebook's Actions Signal Big Changes for Oculus Go Owners
-date: 2025-01-15T16:06:01.200Z
-updated: 2025-01-18T16:02:44.472Z
+date: 2025-01-19T19:25:24.403Z
+updated: 2025-01-24T22:04:58.658Z
 tags:
   - facebook
 categories:
@@ -22,16 +22,12 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Oculus Go Is Getting Unlocked Root Access
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-top-buttons.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  John Carmack confirmed on Twitter that, after "pushing on for years," Facebook will finally unlock root access to the Oculus Go. This will be available with a future OS build that can be side-loaded in the Go.
@@ -41,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  Related:[How to Introduce Older People to VR](https://www.makeuseof.com/how-to-introduce-older-people-vr/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does This Mean to Oculus Go Users?
@@ -49,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-kai-use.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Oculus Go was first introduced back in 2018, and critics considered it a low-end VR headset primarily for media consumption. Facebook first dropped the Oculus Go from the enterprise website back in January 2020, and then it altogether discontinued it in June 2020\. Afterward, as of last December, the Oculus Go couldn't update apps anymore or accept new apps in its Go store.
@@ -58,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
  The Oculus Go's root access represents many possibilities for the community as a whole. It will basically get rid of many of the limitations the headset currently has. And it opens the door for many other opportunities, like using external hardware with the Go. Of course, this will also depend on what the developers are willing to do for the Oculus Go once root access is available.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is Root Access the Future of Oculus?
 
  As of right now, Carmack confirmed that this OS build is specific to the Oculus Go, so don't expect similar treatment to other headsets like the Oculus Quest 2\. At least not for now. But, as Carmack puts it, this could set a precedent for the future. Don't hold your breath, though. This single change required so much effort in the first place.
@@ -65,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  Related:[Things You Must Do When You First Get an Oculus Quest 2](https://www.makeuseof.com/things-must-do-when-first-get-oculus-quest-2/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Time to Play the Waiting Game
@@ -87,17 +87,20 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-iphone-recording-creating-fb-shareable-reels/"><u>[Updated] 2024 Approved Seamless iPhone Recording Creating FB Shareable Reels</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>[Updated] Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-install-hp-envy-4500-all-in-one-printer-drivers-for-windows/"><u>Download and Install HP Envy 4500 All-in-One Printer Drivers for Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-could-reels-elevate-over-tiktok-struggles/"><u>Facebook, Could Reels Elevate over TikTok Struggles?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Change Netflix Location to Get More Country Version On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-apple-iphone-13-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>How to Fix My Apple iPhone 13 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/in-depth-tutorial-your-facebook-journey-maped-and-analyzed/"><u>In-Depth Tutorial: Your Facebook Journey Maped and Analyzed</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/restoring-lost-iphone-voice-notes-a-comprehensive-guide-for-iphone-13-and-14-users/"><u>Restoring Lost iPhone Voice Notes: A Comprehensive Guide for iPhone 13 and 14 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-hack-vanishing-your-virtual-browsing-info-on-facebook/"><u>Tech Hack: Vanishing Your Virtual Browsing Info on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ripple-effect-of-your-facebook-actions-on-brands/"><u>The Ripple Effect of Your Facebook Actions on Brands</u></a></li>
-<li><a href="https://blog-min.techidaily.com/trasforma-file-audio-aac-in-formato-m4r-online-e-gratuitamente-con-movavi/"><u>Trasforma File Audio AAC in Formato M4R Online E Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-past-a-step-by-step-for-downloadable-facebook-logs/"><u>Unlocking the Past: A Step-by-Step for Downloadable Facebook Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-the-strategy-behind-instagrams-take-away-campaign/"><u>'Unfollowing': The Strategy Behind Instagram’s Take-Away Campaign</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-mastering-the-art-of-extracting-massive-quantities-of-tiktok-content/"><u>[New] 2024 Approved Mastering the Art of Extracting Massive Quantities of TikTok Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-transform-your-photos-to-slideshow/"><u>[Updated] 2024 Approved Transform Your Photos to Slideshow</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-direct-video-streaming-sending-fb-vids-straight-into-whatsapp/"><u>[Updated] Direct Video Streaming Sending FB Vids Straight Into WhatsApp</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-wildlife-wonders-at-fingertips-top-mobile-simulators/"><u>2024 Approved Wildlife Wonders at Fingertips Top Mobile Simulators</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-y17s-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-fbs-hefty-bet-of-5-million-on-authorship-and-publishing-sector/"><u>A New Chapter: FB's Hefty Bet of $5 Million on Authorship & Publishing Sector</u></a></li>
+<li><a href="https://article-tips.techidaily.com/affordable-aerial-acrobats-best-bargain-drones-for-(500/"><u>Affordable Aerial Acrobats Best Bargain Drones for <$500</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-user-exodus-from-the-worlds-largest-network/"><u>Deciphering the User Exodus From the World’s Largest Network</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/harness-facebook-videos-on-devices-with-new-tool-for-2024/"><u>Harness Facebook Videos on Devices with New Tool for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-vs-online-communities-the-shift-explained/"><u>Social Networks Vs. Online Communities: The Shift Explained</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-10plus-instagram-content-downloaders-reviewed-for-2024/"><u>Top 10+ Instagram Content Downloaders Reviewed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-sharing-of-phone-numbers-on-fb-chat/"><u>Unintended Sharing of Phone Numbers on FB Chat?</u></a></li>
 </ul></div>
 

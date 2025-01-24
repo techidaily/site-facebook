@@ -1,7 +1,7 @@
 ---
 title: Controlling Cyber Circulation of Confidential Visuals
-date: 2024-08-08T11:22:03.773Z
-updated: 2024-08-09T11:22:03.773Z
+date: 2025-01-19T18:20:39.208Z
+updated: 2025-01-24T18:17:39.649Z
 tags:
   - facebook
 categories:
@@ -20,19 +20,16 @@ thumbnail: https://thmb.techidaily.com/826e213581d156558e6f234936866c0f136b90179
  Here's what you should know about the new Take It Down platform and how Meta is involved...
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Joins Take It Down To Prevent Sextortion
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![a woman with her son at a desktop computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/parenta-control-featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta announced in a February 2023 press release that they will be joining an effort to stop and prevent the spread of young people’s intimate images online. Instagram and Facebook will be founding members of Take It Down, the new platform initiative from the National Center for Missing and Exploited Children (NCMEC).
 
@@ -45,34 +42,34 @@ thumbnail: https://thmb.techidaily.com/826e213581d156558e6f234936866c0f136b90179
  Intimate images, like those including nudity, and content that exploits young people, are already not allowed on Meta’s platforms. Meta’s work with NCMEC will hopefully prevent more content like this from being posted. The enforcement of the guidelines before this was largely retroactive instead of proactive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Also Announces Safety Update to Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![User using iPhone Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/theives-stealing-iphones-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Instagram also introduced safety updates to make it more difficult for suspicious adults to interact with teens on the app including direct messages and comments. Teen accounts will also receive notifications to update their privacy settings if a suspicious adult tries to interact with their account.
 
  These features are in addition to other safety features on Instagram, including many specifically for teens like [activating parental supervision on teen Instagram accounts](https://www.makeuseof.com/instagram-how-to-activate-parental-supervision/) .
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is Working to Prevent Intimate Image Sharing
 
  With two of the largest social media platforms in the world, Meta is a key player in Take It Down’s mission to prevent the sharing of young people’s intimate images online. Although both Facebook and Instagram have guidelines against sharing these images, it unfortunately happens, and this is another step to prevent it and give control of the images back to their owner.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,6 +78,21 @@ thumbnail: https://thmb.techidaily.com/826e213581d156558e6f234936866c0f136b90179
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-mastering-tiktoks-elements-success/"><u>[New] 2024 Approved Mastering TikTok's Elements Success</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-is-photoshops-shake-control-a-game-changer-in-2024/"><u>[New] Is Photoshop's Shake Control a Game Changer, In 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-pros-and-cons-of-samsung-photo-editor/"><u>[Updated] 2024 Approved Unveiling the Pros & Cons of Samsung PHOTO EDITOR</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-lite-android-apps-that-are-faster-than-the-full-versions/"><u>10 Lite Android Apps That Are Faster Than the Full Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-gaming-the-true-scope-of-the-metaverse/"><u>Beyond Gaming: The True Scope of the Metaverse</u></a></li>
+<li><a href="https://program-issues.techidaily.com/chrome-flickering-woes-master-the-fix-with-our-comprehensive-guide-for-windows-users/"><u>Chrome Flickering Woes? Master the Fix with Our Comprehensive Guide for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-across-borders-pros-cons-of-fb-expat-groups/"><u>Connecting Across Borders? Pros, Cons of FB Expat Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-sunset-mastering-the-art-of-permanent-deletion-on-facebook/"><u>Digital Sunset: Mastering the Art of Permanent Deletion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-web-locating-profile-and-group-links/"><u>Exploring Facebook's Web: Locating Profile & Group Links</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intel-dptf-driver-setup-troubleshooting-a-step-by-step-success-story/"><u>Intel DPTF Driver Setup Troubleshooting: A Step-by-Step Success Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetizing-mastery-top-5-strategies-for-igfb-success/"><u>Monetizing Mastery: Top 5 Strategies for IG/FB Success</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/next-gen-clarity-in-depth-review-of-best-8k-monitors-for-2024/"><u>Next-Gen Clarity In-Depth Review of Best 8K Monitors for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/streamline-your-content-with-these-4-instagram-looping-hacks/"><u>Streamline Your Content with These 4 Instagram Looping Hacks</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-is-my-mobile-devices-wi-fi-so-darn-slow-unveiling-7-surprising-culprits/"><u>Why Is My Mobile Device's Wi-Fi So Darn Slow? Unveiling 7 Surprising Culprits</u></a></li>
+</ul></div>
 

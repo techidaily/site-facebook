@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2025-01-13T16:07:24.562Z
-updated: 2025-01-18T16:06:00.507Z
+date: 2025-01-23T21:27:22.951Z
+updated: 2025-01-24T21:10:17.904Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,22 +61,17 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-essential-mc-stronghold-constructions/"><u>[Updated] In 2024, Essential MC Stronghold Constructions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-keeping-up-with-the-screen-capturing-internet-television-online/"><u>[Updated] In 2024, Keeping Up With The Screen - Capturing Internet Television Online</u></a></li>
-<li><a href="https://win-online.techidaily.com/1-resolving-issues-with-non-appearing-iphone-playlist-on-itunes-top-4-solutions/"><u>1. Resolving Issues with Non-Appearing iPhone Playlist on iTunes: Top 4 Solutions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-2023-updates-the-next-generation-of-samsung-k850u/"><u>2024 Approved 2023 Updates - The Next Generation of Samsung K850U</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-tailoring-eye-catching-instagram-highlight-summaries/"><u>2024 Approved Tailoring Eye-Catching Instagram Highlight Summaries</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ace-your-streams-with-top-microphones-specially-designed-for-gamers/"><u>Ace Your Streams with Top Microphones Specially Designed for Gamers</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211015900-9781958896174-awakening-of-a-warrior/"><u>Awakening of a Warrior | Free Book</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-most-effective-email-solutions-beyond-gmail-top-8-picks/"><u>Discover the Most Effective Email Solutions Beyond Gmail (Top 8 Picks)</u></a></li>
-<li><a href="https://facebook.techidaily.com/explore-job-opportunities-build-the-future-with-facebooks-metaverse/"><u>Explore Job Opportunities: Build the Future with Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-adds-new-gear-with-ray-bans-stories-functions-and-pricing/"><u>Facebook Adds New Gear with Ray-Bans Stories - Functions and Pricing?</u></a></li>
-<li><a href="https://facebook.techidaily.com/gain-competitive-edge-essential-metadata-tools-for-success/"><u>Gain Competitive Edge: Essential Metadata Tools for Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/get-your-video-back-fixing-fb-video-loops/"><u>Get Your Video Back: Fixing FB Video Loops</u></a></li>
-<li><a href="https://facebook.techidaily.com/mobile-revolution-facebook-launches-portable-portal/"><u>Mobile Revolution: Facebook Launches Portable Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/shifting-algorithms-for-enhanced-social-media-interaction/"><u>Shifting Algorithms for Enhanced Social Media Interaction</u></a></li>
-<li><a href="https://facebook.techidaily.com/signifying-personal-safety-on-facebook/"><u>Signifying Personal Safety on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-revised-meanings-of-facebooks-pages/"><u>Understanding Revised Meanings of Facebook's Pages</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-team-groups-latest-innovations-pcie-(-50-ssds-advanced-ssd-coolers-and-ai-ready-portable-ssd-with-bluetooth-at-computex-2024/"><u>Unveiling Team Group's Latest Innovations: PCIe < 5.0 SSDs, Advanced SSD Coolers & AI-Ready Portable SSD With Bluetooth at Computex 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-instagrams-sponsorship-jungle-for-affluent-creators/"><u>[New] In 2024, Navigating Instagram's Sponsorship Jungle for Affluent Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prime-tools-turning-youtube-videos-into-text-for-2024/"><u>[Updated] Prime Tools Turning YouTube Videos Into Text for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusations-facebook-targets-honest-commerce-promotion/"><u>Accusations: Facebook Targets Honest Commerce Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-pristine-profile-7-strategies/"><u>Achieve Pristine Profile: 7 Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-muted-slack-notifications-on-windows-11/"><u>Addressing Muted Slack Notifications on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-romance-in-the-social-media-era-facebooks-fresh-take-on-dating/"><u>Crafting Romance in the Social Media Era: Facebook's Fresh Take on Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-oppo-find-n3-flip-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Oppo Find N3 Flip for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/manage-custom-recommendations-for-better-privacy-online/"><u>Manage Custom Recommendations for Better Privacy Online</u></a></li>
+<li><a href="https://some-tips.techidaily.com/missing-pieces-in-apples-latest-ai-showcase-are-upgrades-coming-soon/"><u>Missing Pieces in Apple's Latest AI Showcase – Are Upgrades Coming Soon?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-12-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme 12 5G</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-insiders-secrets-of-screencastify-recording-for-2024/"><u>The Insider’s Secrets of Screencastify Recording for 2024</u></a></li>
 </ul></div>
 

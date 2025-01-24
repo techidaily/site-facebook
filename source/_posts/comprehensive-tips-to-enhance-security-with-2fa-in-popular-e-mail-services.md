@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Tips to Enhance Security with 2FA in Popular E-Mail Services
-date: 2024-08-08T11:19:16.514Z
-updated: 2024-08-09T11:19:16.514Z
+date: 2025-01-22T17:56:15.749Z
+updated: 2025-01-24T16:51:37.326Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/132555d330df6c205c8e32dca26d7905a91b5054d
 
  2FA works differently depending on the online account you are using. 2FA also carries slightly different names in some places, too. So, here is your short guide to enabling 2FA, in its various guises, on a host of online accounts.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How Does 2FA Work?
 
  Two-factor authentication works by locking your account with two separate "factors." In this case, a factor is "something you know" (e.g., password), "something you have" (e.g., phone), or "something you are" (e.g., fingerprint). You have the best protection by combing two of these factors.
@@ -31,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/132555d330df6c205c8e32dca26d7905a91b5054d
  Check out our article on the [pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
@@ -67,10 +65,11 @@ thumbnail: https://thmb.techidaily.com/132555d330df6c205c8e32dca26d7905a91b5054d
 
 ## How to Set Up 2FA on Microsoft Outlook
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
@@ -89,13 +88,11 @@ thumbnail: https://thmb.techidaily.com/132555d330df6c205c8e32dca26d7905a91b5054d
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf [guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
 Locking your Facebook account is as important as your email address.
@@ -104,11 +101,12 @@ Locking your Facebook account is as important as your email address.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires [a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Twitter
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
@@ -117,15 +115,13 @@ Locking your Facebook account is as important as your email address.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
 
@@ -140,21 +136,18 @@ Locking your Facebook account is as important as your email address.
  Head to your **Amazon Account Settings > Login & Security > Two-Step Verification (2SV) Settings.** Under Two-Step Verification (2SV) Settings, select**Edit > Get Started** . You can use SMS or an authenticator app. If you choose the latter, scan the QR code using the Authenticator app and follow the Amazon instructions.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Switching On Two-Factor Authentication Is Worth It
 
  It takes a minute or two to set up 2FA security on all of your accounts. Of course, the accounts on this list aren't exhaustive. But you now understand how the 2FA process works, why 2FA is essential, and where you might find the settings in your other online accounts.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,6 +156,22 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-your-guide-to-cost-free-android-screenshots/"><u>[New] 2024 Approved Your Guide to Cost-Free Android Screenshots</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eciphering-the-code-understanding-what-unlisted-on-youtube-means-for-2024/"><u>[New] Deciphering the Code Understanding What 'Unlisted' On YouTube Means for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/fficient-solutions-for-youtube-short-snags-for-2024/"><u>[New] Efficient Solutions for YouTube Short Snags for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlock-the-secrets-to-enthralling-unboxing-content-on-insta/"><u>[New] Unlock the Secrets to Enthralling Unboxing Content on Insta</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-transformative-techniques-looping-videos-that-engage-instagram-users/"><u>[Updated] In 2024, Transformative Techniques Looping Videos That Engage Instagram Users</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-can-reels-turn-around-tiktok-trends/"><u>Facebook, Can Reels Turn Around TikTok Trends?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-metas-approach-may-signal-changes-for-social-media-giants/"><u>How Meta's Approach May Signal Changes for Social Media Giants</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-accelerated-learning-path-with-final-cut-pro/"><u>In 2024, Accelerated Learning Path with Final Cut Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-facebook-integrated-apps-and-sites/"><u>Navigating the Maze of Facebook-Integrated Apps and Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/poll-indicates-growing-distrust-in-technology-leaders-with-facebook-worst-hit/"><u>Poll Indicates Growing Distrust in Technology Leaders, with Facebook Worst Hit</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Itel A60? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/trend-spotting-hacked-user-habits-drive-oculus-quest-sales/"><u>Trend Spotting: Hacked User Habits Drive Oculus Quest Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriendship-a-guide-to-dissolving-online-bonds/"><u>Unfriendship: A Guide to Dissolving Online Bonds</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-asus-most-overlooked-yet-exceptional-laptop-trait-a-comprehensive-review-by-zdnet/"><u>Unveiling Asus' Most Overlooked Yet Exceptional Laptop Trait: A Comprehensive Review by ZDNet</u></a></li>
+</ul></div>
 

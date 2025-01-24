@@ -1,7 +1,7 @@
 ---
 title: Exploring Grievances Against Online Connectivity Platforms
-date: 2025-01-16T16:11:40.465Z
-updated: 2025-01-18T16:24:04.495Z
+date: 2025-01-17T16:55:30.084Z
+updated: 2025-01-24T20:27:15.997Z
 tags:
   - facebook
 categories:
@@ -28,15 +28,15 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 ![Browsing Facebook on PC and Phone](https://thmb.techidaily.com/c614df743851cde902b9dc7b624e356646f565efb6b83602d7f5ffd347873428.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you've been using Facebook for a long time, you would have noticed what could be considered an obsessive desire to make it "the" social media platform. Twitter is where you share quick thoughts, Snapchat is where you message your friends and TikTok is for short videos. However, Facebook has tried to be everything for everyone and, in doing so, has made the platform confusing and difficult to use.
 
 [Facebook adopted Snapchat's stories feature](https://www.makeuseof.com/best-facebook-features-other-apps-launched-first/) , copied Twitter's hashtag system, and is currently forcing its way into the short video space with Facebook Reels. While it's admirable that Facebook is trying to keep up with the competition, it's also made the platform feel cluttered.
 
  Its constant feature adoption has made it feel like Facebook is just trying to do too much and, in the process, has lost its focus. What really is Facebook for?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Privacy Concerns
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  This lack of privacy is a big turnoff for many people and is one of the main reasons they hate Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Data Breaches
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Its Impact on Mental Health
@@ -86,13 +86,13 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Perceived Inaction on Hate Speech
 
 ![man holding hate is a virus sign](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/man-holding-hate-is-a-virus-sign.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Another reason people hate Facebook is because of the company's perceived inaction on hate speech. The platform has been used to spread hateful and divisive content, with grave consequences.
 
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Making Sense of It All
@@ -125,19 +125,24 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-adding-linktree-to-your-tiktok-info/"><u>[New] Mastering the Art of Adding Linktree to Your TikTok Info</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-preserving-periscope-content-tips-from-the-pros-for-2024/"><u>[Updated] Preserving Periscope Content Tips From the Pros for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-enhancing-your-creative-vision-iphones-new-camera-tools/"><u>2024 Approved Enhancing Your Creative Vision IPhone's New Camera Tools</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-the-art-of-selecting-podcasts-for-iphone-devices/"><u>2024 Approved The Art of Selecting Podcasts for iPhone Devices</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-download-and-use-logitech-g402-mouse-software-for-enhanced-play/"><u>Easy Steps to Download and Use Logitech G402 Mouse Software for Enhanced Play</u></a></li>
-<li><a href="https://facebook.techidaily.com/evolving-interactive-experience-with-facebooks-audio-hub/"><u>Evolving Interactive Experience with Facebook’s Audio Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/holding-fire-facebook-oversight-ponders-suspension/"><u>Holding Fire: Facebook Oversight Ponders Suspension</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-from-your-apple-iphone-6s-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock from your Apple iPhone 6s and iPad?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-techniques-for-seamless-blending-of-hdr-photographs-in-lightroom/"><u>In 2024, Techniques for Seamless Blending of HDR Photographs in Lightroom</u></a></li>
-<li><a href="https://facebook.techidaily.com/insights-on-facebooks-impending-name-change/"><u>Insights on Facebook's Impending Name Change</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-and-their-cultural-significance/"><u>Romance Languages and Their Cultural Significance</u></a></li>
-<li><a href="https://facebook.techidaily.com/signal-claims-to-have-been-banned-from-facebook-for-honest-advertising/"><u>Signal Claims to Have Been Banned From Facebook for Honest Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-final-cut-how-to-eliminate-your-facebook-presence-on-android/"><u>The Final Cut: How to Eliminate Your Facebook Presence On Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/eading-stock-tutorials-channel-roundup/"><u>[New] Leading Stock Tutorials Channel Roundup</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-expertise-in-windows-media-player-for-streamlined-audio-conversion/"><u>[Updated] 2024 Approved Expertise in Windows Media Player for Streamlined Audio Conversion</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-mastering-snapchat-for-business-success/"><u>[Updated] Mastering Snapchat for Business Success</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-revolutionary-software-evolving-the-way-we-record-games/"><u>[Updated] Revolutionary Software Evolving the Way We Record Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/android-tv-integration-tips/"><u>Android TV Integration Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-citizenaship-banned-trump-but-not-indefinitely/"><u>Cyber Citizenaship: Banned Trump, but Not Indefinitely</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-altered-connotations-on-facebook-pages/"><u>Demystifying the Altered Connotations on Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-aesthetics-building-collage-content-online/"><u>Effortless Aesthetics: Building Collage Content Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-social-media-presence-incorporating-your-avatar-in-covers/"><u>Enhancing Your Social Media Presence: Incorporating Your Avatar in Covers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-deciphering-no-snaps-possible-blocking/"><u>In 2024, Deciphering No Snaps, Possible Blocking</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-xiaomi-13-ultra-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Xiaomi 13 Ultra Face Lock?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-thriving-despite-youtubes-rigorous-copyright-strike-system/"><u>In 2024, Thriving Despite YouTube's Rigorous Copyright Strike System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-breakdown-of-ambient-weather-ws-1002-elevated-quality-justifies-the-investment/"><u>Insightful Breakdown of Ambient Weather WS-1002 - Elevated Quality Justifies the Investment?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/save-big-top-6-inexpensive-action-cams-under-100-deals-for-2024/"><u>Save Big Top 6 Inexpensive Action Cams Under $100 Deals for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-instagram-reels-on-facebook-a-step-by-step-guide/"><u>Sharing Instagram Reels on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-tech-titans-the-latest-us-antitrust-moves/"><u>Tackling Tech Titans: The Latest US Antitrust Moves</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-for-eliminating-elex-ii-windows-crashes/"><u>Troubleshooting Tips for Eliminating Elex II Windows Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-cleaning-up-your-social-sphere/"><u>Unveiling the Process: Cleaning up Your Social Sphere</u></a></li>
 </ul></div>
 

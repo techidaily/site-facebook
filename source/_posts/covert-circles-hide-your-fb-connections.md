@@ -1,7 +1,7 @@
 ---
 title: "Covert Circles: Hide Your Fb Connections"
-date: 2024-08-08T11:21:41.791Z
-updated: 2024-08-09T11:21:41.791Z
+date: 2025-01-17T17:33:45.276Z
+updated: 2025-01-24T18:37:48.724Z
 tags:
   - facebook
 categories:
@@ -19,24 +19,25 @@ thumbnail: https://thmb.techidaily.com/700877a9102ebfac6b027a9da8135a8597355f7b4
 
  What can be done, is hiding all your friends from all your friends, or hiding all your friends from some of your friends. Follow the steps below, and you too will be able to gain just a little more of that precious privacy online.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Who Can See Your Facebook Friends?
 
  At the moment, there are two likely scenarios: either everyone can see your friends list or only your friends can see your friends list. No matter who can or can't see your full friends list, though, anyone can see if they have mutual friends with you and also see who they are. This is possible even if they're not your friends. In the example below, you can see we have 23 mutual friends in the grey text under the profile name.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook mutual followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-mutual-followers.jpg)
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Hide Your Facebook Friends List
 
  You can hide your friends list either from the Facebook app or on the desktop website. Either way, you will be able to change the same setting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hiding Your Friends List on Mobile
 
@@ -52,22 +53,24 @@ thumbnail: https://thmb.techidaily.com/700877a9102ebfac6b027a9da8135a8597355f7b4
 
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Hiding Your Friends List on Desktop
 
 The steps are similar on Facebook's desktop website.
@@ -76,16 +79,10 @@ The steps are similar on Facebook's desktop website.
 
  2\. Click**Settings and Privacy** then**Settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
  3\. From the left sidebar, click**Privacy** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
  4\. Scroll to**How people find and contact you** .
@@ -99,22 +96,20 @@ The steps are similar on Facebook's desktop website.
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Gaining Privacy on Facebook
 
  Facebook should be a place where you can connect with friends and have fun without sharing information that you don't want to.
 
  Not wanting people to see your friends list isn't a bad thing, and you may even benefit from hiding it. Hiding your Facebook network may protect you and your friends from dangerous or bothersome strangers messaging you. You may also protect yourself from drama related to your family or friends seeing who else you are friends with on Facebook. Gaining this privacy can keep you safe and free from stress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +118,26 @@ The steps are similar on Facebook's desktop website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat/"><u>[Updated] 2024 Approved Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-expert-tips-for-capturing-sims-sessions/"><u>[Updated] Expert Tips for Capturing Sims Sessions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-entry-level-sports-cameras-that-dont-break-the-bank/"><u>[Updated] In 2024, Entry-Level Sports Cameras that Don't Break the Bank</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-drone-buddies-kids-most-enjoyed-toy-companions/"><u>Best Drone Buddies Kids' Most Enjoyed Toy Companions</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-protocol-for-reactivating-deactivated-fb-id/"><u>Essential Protocol for Reactivating Deactivated FB ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
+<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-iphone-8-by-drfone-ios/"><u>Guide on How To Remove Apple ID From iPhone 8</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-itel-a60s-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Itel A60s</u></a></li>
+<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-vivo-v29-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Vivo V29 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/infuse-text-with-tune-utilizing-soundemojis-in-chats/"><u>Infuse Text with Tune: Utilizing Soundemojis in Chats</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/optimize-your-pc-with-intel-usb-30-drivers-for-windows-10-start-downloading-today/"><u>Optimize Your PC with Intel USB 3.0 Drivers for Windows 10 - Start Downloading Today!</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/reset-display-settings-overcoming-win-10-hurdle/"><u>Reset Display Settings: Overcoming Win 10 Hurdle</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-assesses-president-trumps-status/"><u>Social Network Assesses President Trump's Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-unliking-on-websites/"><u>The Impact of Unliking on Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-stance-on-online-communities-negative-dominant/"><u>U.S. Stance on Online Communities: Negative Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+</ul></div>
 

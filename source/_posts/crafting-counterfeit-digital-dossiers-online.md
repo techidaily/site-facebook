@@ -1,7 +1,7 @@
 ---
 title: Crafting Counterfeit Digital Dossiers Online
-date: 2024-08-08T11:21:30.912Z
-updated: 2024-08-09T11:21:30.912Z
+date: 2025-01-20T17:21:58.380Z
+updated: 2025-01-24T23:11:38.447Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
 
  Here’s everything you need to know about the Facebook cloning scam, how to check if you’re already a victim, and what you can do to protect yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Facebook Account Cloning Scam?
 
  This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for [other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
@@ -27,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
 
  The more they trick into adding them, the more legit their accounts will look like.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Why Do Scammers Clone Accounts?
 
  When scammers reach out to these contacts, they might send a message with a phishing link they’ll ask contacts to click. And because your contacts trust, you there’s a chance they will click on that link.
@@ -46,9 +47,6 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
 
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Facebook Cloning vs. Facebook Hacking
 
  Facebook cloning does not involve getting into your account using credentials they may have acquired through a data leak or another phishing attack.
@@ -56,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
  Unlike hacking, cloning simply means copying your account, then pretending to be you without gaining access to your real account.
 
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Has Been Cloned
 
@@ -72,8 +74,9 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Protect Yourself From Facebook Account Cloning
 
  Be mindful of what you share with people outside your friends' list and the platform. Remember that everything you share—photos, private information, friends list—that’s set to public can be seen by everyone on the internet.
@@ -85,8 +88,9 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
  Also, set your friends list to private so scammers can’t target them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Check If Your Facebook Account Is Public
 
  There might have been times when you shared something without knowing that it was set to "Public". To check what the public can see, go to your profile. Then click the three dots on the top right corner, below your cover photo. Click the eye icon that says**View As** .
@@ -97,9 +101,6 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
 
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do If You Find a Cloned Facebook Account
 
  If you find a Facebook clone account, go to the profile of the clone account. Click the three dots on the top right corner of the screen below the cover photo. Then select**Find Support or Report Page** .
@@ -107,22 +108,20 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
  If you don’t have a Facebook account and someone has made a fake account, you can fill out [this form](https://www.facebook.com/help/contact/295309487309948?helpref=faq%5Fcontent) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Protect Your Friends and Family From Scammers
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
  Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like [social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,6 +130,18 @@ thumbnail: https://thmb.techidaily.com/4e339c0438a311f0739fe8dd767b8fe136567e49f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-enhancing-engagement-top-20-best-practices-for-video-ads-on-facebook-for-2024/"><u>[Updated] Enhancing Engagement Top 20 Best Practices for Video Ads on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-earning-potential-steps-to-join-the-youtube-premium-club/"><u>2024 Approved Earning Potential Steps to Join the YouTube Premium Club</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-honor-100-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Honor 100 Pro Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-rising-trend-quest-2-sales-surge-among-hack-victims/"><u>Cybersecurity Rising Trend - Quest 2 Sales Surge Among Hack Victims</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/decoding-cloud-service-price-structures/"><u>Decoding Cloud Service Price Structures</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-strangers-from-seeing-your-facebook-4-settings-to-tweak/"><u>How to Stop Strangers From Seeing Your Facebook: 4 Settings to Tweak</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-alphabet-decoding-the-power-of-30-abbreviations/"><u>Influencer's Alphabet: Decoding the Power of 30 Abbreviations</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-rated-free-m4a-editing-software-for-pc-and-mac-for-2024/"><u>New Top-Rated Free M4A Editing Software for PC and Mac for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-breakup-on-the-horizon-fb-and-giphys-future/"><u>Potential Breakup on the Horizon: FB & Giphy's Future?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-time-and-privacy-why-ditch-facebook-now/"><u>Reclaiming Time and Privacy: Why Ditch Facebook Now</u></a></li>
+</ul></div>
 

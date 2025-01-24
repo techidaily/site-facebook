@@ -1,7 +1,7 @@
 ---
 title: Big Brother Offers $5M Support for Viral Outbreak Relief
-date: 2024-08-08T11:20:49.996Z
-updated: 2024-08-09T11:20:49.996Z
+date: 2025-01-19T20:12:37.938Z
+updated: 2025-01-24T19:10:54.876Z
 tags:
   - facebook
 categories:
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/cdded6aa8f500657d1cc67ca7b77cb926c32d80c7
  In an effort to help more communities get access to the COVID-19 vaccines, Facebook announced that it's donating $5 million to the World Health Organization's (WHO)[Go Give One](https://gogiveone.org/) fundraiser. The goal of the fundraiser is to ensure that everyone gets access to the COVID-19 vaccine, including those living in developing countries.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
 
  A post on [the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
@@ -37,28 +29,31 @@ thumbnail: https://thmb.techidaily.com/cdded6aa8f500657d1cc67ca7b77cb926c32d80c7
 
  To raise money for Facebook's goal, Facebook will donate $20 to every Facebook Fundraiser created for the United Nations Foundation. This campaign will be rolled out first for fundraisers in the US, UK, Germany, and Norway.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image Credit: Facebook
 
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Also Aims to Highlight "Trusted Messengers"
 
  In the same blog post, Facebook also outlined its goal to help people affected by COVID-19 the most.
 
  Facebook is working with the Kaiser Family Foundation, BlackDoctor.org, and the National Academy of Medicine in the US to "to amplify content that features black doctors, nurses and researchers answering common questions about COVID-19 vaccines."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
 
@@ -69,20 +64,18 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Fights for Vaccine Equity
 
  It looks like Facebook is trying to help promote the COVID-19 vaccines both on and off the platform. While Facebook's donation will go towards helping the most vulnerable communities receive the COVID-19 vaccine, the platform-wide vaccine campaigns will also encourage users to get vaccinated.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,6 +84,22 @@ Image Credit: Facebook
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/evolutionize-video-creation-make-edit-and-share-on-the-go/"><u>[New] Revolutionize Video Creation Make, Edit & Share on the Go</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/embracing-innovation-in-spreadsheets-my-journey-into-microsofts-creative-call-to-action-as-featured-on-zdnet/"><u>Embracing Innovation in Spreadsheets: My Journey Into Microsoft's Creative Call-to-Action as Featured on ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/erasing-regretful-tweets-ultimate-removal-guide/"><u>Erasing Regretful Tweets: Ultimate Removal Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-chatgpts-custom-commands-work-and-their-applications/"><u>How Does ChatGPT's Custom Commands Work & Their Applications</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-15-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 15 to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-industry-standards-prime-gimbals-for-drones/"><u>In 2024, Industry Standards Prime Gimbals for Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-audio-tools-now-on-facebooks-horizon/"><u>Innovative Audio Tools Now on Facebook's Horizon</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-essential-microsoft-surface-pro-4-drivers-for-optimal-performance-on-windows-computers/"><u>Install Essential Microsoft Surface Pro 4 Drivers for Optimal Performance on Windows Computers</u></a></li>
+<li><a href="https://win-forum.techidaily.com/leading-digital-networks-exploring-facebook-twitter-instagram-and-youtube/"><u>Leading Digital Networks - Exploring Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-initiate-a-facebook-based-forum/"><u>Steps to Initiate a Facebook-Based Forum</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-photographic-pathway-to-popularity-online/"><u>The Photographic Pathway to Popularity Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-smart-approach-to-decreasing-digital-clutter/"><u>The Smart Approach to Decreasing Digital Clutter</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-slow-motion-magic-in-instagram-reels-for-2024/"><u>Unlocking Slow Motion Magic in Instagram Reels for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/various-methods-to-transfer-pictures-from-apple-iphone-12-pro-to-pc-drfone-by-drfone-transfer-from-ios/"><u>Various Methods to Transfer Pictures from Apple iPhone 12 Pro to PC | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-celebrate-connectivity-9-blessings-of-being-social/"><u>Why You Should Celebrate Connectivity: 9 Blessings of Being Social</u></a></li>
+</ul></div>
 

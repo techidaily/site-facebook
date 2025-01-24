@@ -1,7 +1,7 @@
 ---
 title: Block Group-Wide Emoticon Tags (@Everyone)
-date: 2024-08-08T11:19:40.533Z
-updated: 2024-08-09T11:19:40.533Z
+date: 2025-01-23T18:18:56.676Z
+updated: 2025-01-24T20:54:44.993Z
 tags:
   - facebook
 categories:
@@ -20,35 +20,30 @@ thumbnail: https://thmb.techidaily.com/3afd30f31da7656743dda52f15a6af22d0fe17904
  If you don't want to receive these batch notifications, we've got you covered. Read on to learn how to turn off the annoying @everyone tag on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off the @everyone Tag on Facebook
 
  Here's how to turn off the pesky notifications without [leaving a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) :
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-settings-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing facebook notification settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-notification-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing facebook tag page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-tag-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,8 +55,9 @@ Close
  That's all there is to it. You'll no longer receive notifications when someone uses the @everyone tag in a group post. You can further customize the notifications you receive on the**Notifications Settings** page to receive even fewer notifications.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why You Should Turn Off @everyone Tags on Facebook
 
  The @everyone feature is popular with Facebook groups because it allows admins to alert members of important news or events. It's also helpful when admins want to [start a discussion with everyone in a Facebook group](https://www.makeuseof.com/how-to-mention-all-members-facebook-group/) .
@@ -70,23 +66,17 @@ Close
 
  Turning off the Batch @everyone mentions toggle can be a great way to take control of your notifications and stop getting spammed by overzealous group admins. You will still get notified of personal tags, so you won't miss any vital conversations.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Take Control of Your Facebook Tags
 
  You can control your notifications and decide which tags you want to receive. Just follow the steps above, and you'll be able to customize your notifications settings in no time.
 
  You don't have to leave the group or mute the conversation if you don't want to—just turn off the Batch @everyone mentions toggle and be done with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,6 +85,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-perfect-your-images-with-polarr-a-complete-photography-resource/"><u>[New] In 2024, Perfect Your Images with Polarr A Complete Photography Resource</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-revel-in-the-rhythm-of-rising-text/"><u>[New] Revel in the Rhythm of Rising Text</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-evaluating-fraps-as-a-screen-grab-pro/"><u>[Updated] In 2024, Evaluating Fraps as a Screen Grab Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-honor-v-purse-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Honor V Purse Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-xcover-6-pro-tactical-edition-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-how-to-turn-any-device-into-a-youtube-livestream-capturing-tool/"><u>In 2024, How to Turn Any Device Into a YouTube Livestream Capturing Tool</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-reviewing-free-screen-recorder-tools-for-pc/"><u>In 2024, Reviewing Free Screen Recorder Tools for PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-cuts-ties-with-fbs-id-what-lies-ahead/"><u>Meta Cuts Ties With FB’s ID: What Lies Ahead?</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-securityfbcom-is-it-real-fb-safety-email/"><u>Scrutinizing @security@fb.com: Is It Real FB Safety Email?</u></a></li>
+<li><a href="https://facebook.techidaily.com/smartwatch-innovation-fbs-possible-double-camera-design/"><u>Smartwatch Innovation: FB's Possible Double-Camera Design</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamlining-monetization-strategies-on-youtube/"><u>Streamlining Monetization Strategies on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-control-identifying-and-fixing-your-fb-breach/"><u>Taking Back Control: Identifying and Fixing Your FB Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/taming-the-trending-political-chaos/"><u>Taming the Trending Political Chaos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/techniques-for-fascinating-vlog-dialogue-structure/"><u>Techniques for Fascinating Vlog Dialogue Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-hashtags-effectiveness-in-building-online-communities-on-facebook/"><u>Understanding Hashtags' Effectiveness in Building Online Communities on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-shifts-in-symbolic-meaning-on-facebook-pages/"><u>Understanding the Shifts in Symbolic Meaning on Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/video-ventures-and-value-creation-the-impact-of-metric-mastery-on-content-creator-moneyflows/"><u>Video Ventures & Value-Creation: The Impact of Metric Mastery on Content Creator Moneyflows</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Breaking Down Misinformation on Platforms During Pandemic
-date: 2024-08-08T11:20:22.075Z
-updated: 2024-08-09T11:20:22.075Z
+date: 2025-01-18T16:17:00.555Z
+updated: 2025-01-24T19:25:58.020Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/412d065764cb0ba50733f600b7a0dabb6c2d4fd11
 Here's what social media platforms can do to tackle the issue.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Spread of COVID-19 and Vaccine Misinformation on Social Media
 
  Social media is an extension of our lives, so information shared online can spread like wildfire. When COVID-related misinformation is circulated, it creates uncertainty, skepticism and distrust, which can lead to people rejecting proven public health measures.
@@ -40,17 +41,15 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -68,6 +67,10 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
@@ -78,25 +81,20 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  They can also share their personal experiences around getting vaccinated.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
  A low threshold, such as two strikes, would allow for moderate enforcement prior to removal—such as the restriction of a page’s ability to go live or post video content without moderated review.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
@@ -111,20 +109,21 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
  As the COVID-19 pandemic has highlighted, the role played by social media in the spread of misinformation can have serious social and public health consequences. Mass vaccination remains the most likely successful strategy to achieve long-term control of the pandemic.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,6 +132,20 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-insights-into-instagram-follower-exits/"><u>[New] In 2024, Insights Into Instagram Follower Exits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-creating-your-channels-pathway-youtubian-starter-pack-earning-money/"><u>[Updated] 2024 Approved Creating Your Channel's Pathway Youtubian Starter Pack, Earning Money</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-becoming-a-pro-streaming-on-youtube-and-twitch-via-obs/"><u>[Updated] Becoming a Pro Streaming on YouTube & Twitch via OBS</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-the-simplest-way-to-understand-and-apply-discord-spoilers/"><u>2024 Approved The Simplest Way to Understand and Apply Discord Spoilers</u></a></li>
+<li><a href="https://win-best.techidaily.com/can-you-monitor-past-bitcoin-deals-using-an-address-history-verification-application-by-yl-computing-solutions/"><u>Can You Monitor Past Bitcoin Deals Using an Address History Verification Application by YL Computing Solutions?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-on-maintaining-a-crystal-clear-hdtv-view/"><u>Expert Tips on Maintaining a Crystal Clear HDTV View</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-dangers-opting-out-of-facebooks-visit-tracker/"><u>Hidden Dangers: Opting Out of Facebook's Visit Tracker</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiate-your-love-quest-the-introduction-to-facebooks-matchmaking-service/"><u>Initiate Your Love Quest: The Introduction to Facebook's Matchmaking Service</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagrams-per-video-restrictions-for-2024/"><u>Mastering Instagram's Per-Video Restrictions for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rotibox-wireless-beanie-hat-evaluation-a-perfect-merge-of-cozy-fit-and-superior-audio-performance/"><u>Rotibox Wireless Beanie Hat Evaluation: A Perfect Merge of Cozy Fit and Superior Audio Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/textual-excellence-in-messages-beyond-basic-fonts/"><u>Textual Excellence in Messages: Beyond Basic Fonts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triad-of-friend-recognition-master-three-efficient-tagging-techniques-on-facebook/"><u>The Triad of Friend Recognition: Master Three Efficient Tagging Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriend-the-unknowns-a-guide-to-safe-social-media-conduct/"><u>Unfriend the Unknowns: A Guide to Safe Social Media Conduct</u></a></li>
+</ul></div>
 

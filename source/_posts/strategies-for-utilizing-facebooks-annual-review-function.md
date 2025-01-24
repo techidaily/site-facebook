@@ -1,7 +1,7 @@
 ---
 title: Strategies for Utilizing Facebook's Annual Review Function
-date: 2025-01-15T16:13:20.496Z
-updated: 2025-01-18T16:19:02.033Z
+date: 2025-01-19T20:09:01.877Z
+updated: 2025-01-24T23:28:01.634Z
 tags:
   - facebook
 categories:
@@ -26,15 +26,15 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is the On This Day Feature on Facebook?
 
  If you are keen on saving and revisiting memories, the On This Day feature is just for you. It allows you to check out the posts you made on the same day years ago—some even call it a way to relive your past cringe. It includes everything from the media you uploaded to the posts you shared and the statuses you posted.
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use the On This Day Feature
 
@@ -60,10 +60,6 @@ To share a memory from the On This Day feature:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
@@ -80,6 +76,10 @@ You can save your On This Day posts with the following steps:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 Close
@@ -92,7 +92,15 @@ To access your saved memories:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -100,15 +108,15 @@ Close
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. See What Your Friends Shared on Your Wall
 
  With a thriving social circle, your friends might tag you in posts and share them on your profile. Remember a birthday or a special occasion on which your friends tagged you in their posts?
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Customization Options for the On This Day Feature
 
@@ -120,17 +128,13 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
 
@@ -147,10 +151,6 @@ Close
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
@@ -173,22 +173,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-how-to-craft-engaging-macootd-tiktoks-effortlessly-for-2024/"><u>[New] How To Craft Engaging MacOOTD TikToks Effortlessly for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unleash-your-creativity-with-mobile-blur-tools/"><u>[Updated] 2024 Approved Unleash Your Creativity with Mobile Blur Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-joy-of-journeys-end-innovative-box-revelations/"><u>[Updated] In 2024, The Joy of Journey's End Innovative Box Revelations</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia 150 (2023) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-the-incessant-facebook-interruptions/"><u>End the Incessant Facebook Interruptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-audiences-how-to-conduct-facebook-pages-surveys/"><u>Engage Audiences: How to Conduct Facebook Pages Surveys</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1322231-9780804151139-laugh-i-thought-id-die-if-i-didnt/"><u>Laugh! I Thought I'd Die (If I Didn't) | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-music-with-spotifys-miniplayer-in-fb-app/"><u>Navigate Music with Spotify's Miniplayer in FB App</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-differences-ipad-air-versus-ipad-pro-making-the-right-pick/"><u>Navigating the Differences: IPad Air versus iPad Pro – Making the Right Pick</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-go-unveiled-a-new-era-for-portability/"><u>Portal Go Unveiled: A New Era for Portability</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reveal-your-pcs-intel-core-gen-via-8-windows-tips/"><u>Reveal Your PC's Intel Core Gen via 8 Windows Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-earning-gold-online-fb-and-insta-tactics/"><u>The Ultimate Guide for Earning Gold Online: FB and Insta Tactics</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/uncover-the-greatest-8-free-tunes-apps-available-on-ios-devices/"><u>Uncover the Greatest 8 Free Tunes Apps Available on iOS Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebook-duplication-fraud/"><u>Understanding Facebook Duplication Fraud</u></a></li>
-<li><a href="https://facebook.techidaily.com/upcoming-updates-on-facebook-focus-on-story-panels-with-reels-rooms/"><u>Upcoming Updates on Facebook: Focus on Story Panels with Reels, Rooms</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-waits-on-end-to-end-encryption-implementation-till-23/"><u>Why Meta Waits on End-to-End Encryption Implementation Till '23</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-dj-iq-upgrade-two-drone-brands-now-offer-free-lut-sets/"><u>[New] DJ IQ Upgrade – Two Drone Brands Now Offer FREE LUT Sets</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-gif-mastery-10-key-elements-to-perfect-creation/"><u>[New] GIF Mastery 10 Key Elements to Perfect Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-picks-optimal-sites-for-downloading-alarm-tones/"><u>[New] In 2024, Top Picks Optimal Sites for Downloading Alarm Tones</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-from-ephemeral-to-everlasting-the-art-of-saving-social-media-snaps/"><u>[Updated] 2024 Approved From Ephemeral to Everlasting The Art of Saving Social Media Snaps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-flip-shift-and-merge-videos-for-professional-android-results/"><u>[Updated] Flip, Shift & Merge Videos for Professional Android Results</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-impactful-video-elements-cardsannotations/"><u>[Updated] How to Create Impactful Video Elements Cards/Annotations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rejects-extinction-why-it-wont-die-off-insightful-analysis/"><u>Facebook Rejects Extinction: Why It Won't Die Off - Insightful Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-dark-mode-on-facebook/"><u>How to Enable Dark Mode on Facebook</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-trackingcast-synopsis/"><u>In 2024, TrackingCast Synopsis</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-social-media-advertising/"><u>Navigating the Maze of Social Media Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-to-group-departure-with-tact/"><u>Navigating the Path to Group Departure with Tact</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-effective-group-communication-on-facebook/"><u>Techniques for Effective Group Communication on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-sharing-vacancies-via-facebook/"><u>Tips for Sharing Vacancies via Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtube-playlists-reconfigured-step-by-step-instructions-for-2024/"><u>YouTube Playlists Reconfigured Step-by-Step Instructions for 2024</u></a></li>
 </ul></div>
 

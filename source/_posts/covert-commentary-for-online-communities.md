@@ -1,7 +1,7 @@
 ---
 title: Covert Commentary for Online Communities
-date: 2024-08-08T11:21:27.079Z
-updated: 2024-08-09T11:21:27.079Z
+date: 2025-01-21T18:13:10.559Z
+updated: 2025-01-24T21:43:33.873Z
 tags:
   - facebook
 categories:
@@ -20,9 +20,9 @@ thumbnail: https://thmb.techidaily.com/ab712e6369c11731fb797565c1d31f34a50ed98f4
  Here’s all you need to know about anonymous posting, along with a walkthrough for using it in a Facebook group.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Brief Background on Anonymous Group Posts
 
  In June 2020, [Facebook](https://www.facebook.com/community/whats-new/new-parenting-group-type/) announced the introduction of a new group type for parents in its community. It came with some features, one of which was the ability to share anonymous group posts.
@@ -30,21 +30,24 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Post Anonymously in a Facebook Group
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ![create an anonymous post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,9 +63,6 @@ Close
 
 **Note:** This feature is only available in groups set as parenting groups.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What You Need to Know About Anonymous Posts
 
  All anonymous posts are subject to approval by admins, even if post approval is turned off on the group. This is understandable, as it helps keep spammers at bay.
@@ -74,12 +74,9 @@ Close
  Some post formats are disabled for anonymous posts to protect you from accidentally exposing your identity. You can’t go live or tag people in the Anonymous Post interface.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Now You Know How to Share an Anonymous Post on Facebook
 
  Posting anonymously in a Facebook group is an effective way to share information and express opinions, without revealing your identity to group members.
@@ -88,14 +85,11 @@ No advertising on the website.
 
  You can think of it as an effective way to get your voice heard, but without the pressure of being seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,6 +98,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-pinnacle-7-action-shooter-games/"><u>[New] 2024 Approved Pinnacle 7 Action Shooter Games</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-topic-titling-artisans-assistant/"><u>[New] In 2024, Topic Titling Artisan's Assistant</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-optimizing-your-online-presence-leading-twitter-de-followers/"><u>[Updated] Optimizing Your Online Presence Leading Twitter De-Followers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210399399-9781088008409-90-minutes-from-covid/"><u>90 Minutes From Covid | Free Book</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/best-of-the-best-the-premier-pick-for-extended-range-routers-2024/"><u>Best of the Best: The Premier Pick for Extended Range Routers, 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-online-connections-on-fb/"><u>Discovering Hidden Online Connections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-protocols-for-defeating-fb-account-intrusion/"><u>Emergency Protocols for Defeating FB Account Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-the-world-anywhere-facebooks-mobility-focused-portal/"><u>Experience the World Anywhere: Facebook's Mobility-Focused Portal</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-innovation-with-toms-tech-insights-and-comprehensive-reviews/"><u>Exploring Innovation with Tom's Tech Insights and Comprehensive Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-multi-app-sign-ins-the-case-for-and-against-using-facebook-login/"><u>Navigating Multi-App Sign-Ins: The Case for & Against Using Facebook Login</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-a-beginners-manual-to-incorporating-sounds-into-your-powerpoint-presentations-on-pcmac-computers/"><u>New In 2024, A Beginners Manual to Incorporating Sounds Into Your PowerPoint Presentations on PC/Mac Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-fb-after-phone-theft-heres-what-to-do/"><u>Reactivating FB After Phone Theft? Here's What to Do</u></a></li>
+</ul></div>
 

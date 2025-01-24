@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2025-01-14T16:07:57.474Z
-updated: 2025-01-18T16:04:16.065Z
+date: 2025-01-17T22:33:42.449Z
+updated: 2025-01-24T16:58:40.761Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Giphy's Acquisition by Facebook
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -95,24 +95,18 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-top-20-must-play-sandbox-adventures/"><u>[New] 2024 Approved The Top 20 Must-Play Sandbox Adventures</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ear-up-for-greatness-choosing-webcams-for-youtube-excellence/"><u>[New] Gear Up for Greatness Choosing Webcams for YouTube Excellence</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-vivid-chromatic-tweaker/"><u>[New] In 2024, Vivid Chromatic Tweaker</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-journey-into-tech-mastery-essential-tips-for-screen-recording-your-mac/"><u>[Updated] 2024 Approved Journey Into Tech Mastery Essential Tips for Screen Recording Your Mac</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-comprehensive-overview-dji-inspire-2/"><u>[Updated] Comprehensive Overview - DJI Inspire 2</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-mastering-the-art-of-making-an-effective-podcast-launch-video-for-2024/"><u>[Updated] Mastering the Art of Making an Effective Podcast Launch Video for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/aufladen-ihrer-bilder-mit-fortschrittlicher-bildoptimierung-und-restaurierung-auf-ultra-hochauflosung-uhd-4k-8k-and-10k-mithilfe-von-winxvideo-ai/"><u>Aufladen Ihrer Bilder Mit Fortschrittlicher Bildoptimierung Und -Restaurierung Auf Ultra-Hochauflösung (UHD) 4K, 8K & 10K Mithilfe Von WinxVideo AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-vision-shifts-oculus-quest-delayed/"><u>Facebook's Vision Shifts: Oculus Quest Delayed</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-posting-to-purchasing-could-a-social-media-platform-open-shops/"><u>From Posting to Purchasing: Could a Social Media Platform Open Shops?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unleashing-profitability-with-innovative-fb-animation-techniques/"><u>In 2024, Unleashing Profitability with Innovative FB Animation Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-network-privacy-vs-convenience-with-social-app-sign-ins-via-facebook/"><u>Navigating Network Privacy vs Convenience with Social App Sign-Ins via Facebook</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/optimize-task-handling-on-windows-with-advanced-utilities/"><u>Optimize Task Handling on Windows with Advanced Utilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-cyber-space-from-unwanted-users/"><u>Secure Your Cyber-Space From Unwanted Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-erase-your-facebook-share/"><u>Step-by-Step Guide: Erase Your Facebook Share</u></a></li>
-<li><a href="https://some-skills.techidaily.com/survey-spectrum-of-video-and-film-equipment-for-2024/"><u>Survey Spectrum of Video and Film Equipment for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
-<li><a href="https://facebook.techidaily.com/tectonic-shifts-ahead-us-antitrust-laws-role-in-controlling-tech-titans/"><u>Tectonic Shifts Ahead: U.S. Antitrust Law's Role in Controlling Tech Titans</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-story-behind-facebooks-news-feed-rebranding/"><u>The Story Behind Facebook's News Feed Rebranding</u></a></li>
-<li><a href="https://facebook.techidaily.com/trumps-online-presence-under-review/"><u>Trumps Online Presence Under Review</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-seamlessly-sharing-your-style-macootd-tiktoks/"><u>[New] 2024 Approved Seamlessly Sharing Your Style MacOOTD TikToks</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fotor-pro-advanced-workflow/"><u>[New] Fotor Pro Advanced Workflow</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-from-syncing-to-capturing-a-complete-itunes-journey/"><u>[New] In 2024, From Syncing to Capturing A Complete iTunes Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/camouflaging-connections-in-facebook/"><u>Camouflaging Connections in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-deleting-fb-watch-history-and-its-benefits/"><u>Clearing Up: Deleting FB Watch History & Its Benefits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-with-ios-15-an-instructional-roadmap/"><u>Elevate with iOS 15: An Instructional Roadmap</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elevate-your-design-game-with-our-guide-to-the-best-9-sites-showcasing-graffiti-typefaces/"><u>Elevate Your Design Game with Our Guide to the Best 9 Sites Showcasing Graffiti Typefaces</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-iphone-error-14-heres-your-ultimate-guide-to-a-smooth-screen/"><u>Fixing iPhone Error 14? Here's Your Ultimate Guide to a Smooth Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-digital-life-the-complete-fb-safety-guidebook/"><u>Fortify Your Digital Life: The Complete FB Safety Guidebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-screen-mirroring-apple-iphone-se-2020-to-tv-or-pc-drfone-by-drfone-ios/"><u>In 2024, How Screen Mirroring Apple iPhone SE (2020) to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-thorough-evaluation-of-frozen-snack-playback-devices/"><u>In 2024, Thorough Evaluation of Frozen Snack Playback Devices</u></a></li>
+<li><a href="https://driver-error.techidaily.com/leveraging-lenovos-bt-capabilities-in-windows-11/"><u>Leveraging Lenovo's BT Capabilities in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-to-clear-your-facebook-chronicle/"><u>The Ultimate Strategy to Clear Your Facebook Chronicle</u></a></li>
 </ul></div>
 

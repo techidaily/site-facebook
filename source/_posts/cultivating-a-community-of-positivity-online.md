@@ -1,7 +1,7 @@
 ---
 title: Cultivating a Community of Positivity Online
-date: 2024-08-08T11:20:42.838Z
-updated: 2024-08-09T11:20:42.838Z
+date: 2025-01-23T19:19:00.666Z
+updated: 2025-01-24T20:26:51.453Z
 tags:
   - facebook
 categories:
@@ -15,17 +15,15 @@ thumbnail: https://thmb.techidaily.com/f3ddbfc1319d06192a1f603baf76c1f6dea1578ed
 
 ## Cultivating a Community of Positivity Online
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Quick Links
 
 * [What Is Poking on Facebook?](#what-is-poking-on-facebook)
 * [How to Poke Someone on Facebook in 2024](#how-to-poke-someone-on-facebook-in-2024)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Facebook is reviving the "poke" feature with a design tweak.
@@ -35,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/f3ddbfc1319d06192a1f603baf76c1f6dea1578ed
  You may have thought poking was dead on Facebook. But it turns out the feature is still there and Facebook is even trying to revive it. Here's what you need to know about poking someone on Facebook and how you can still use the feature.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is Poking on Facebook?
 
  Those who used Facebook in its early days will remember the ability to "poke" someone on Facebook to get their attention. This would essentially send a notification to the person letting them know that you poked them. But the feature was eventually buried, with Facebook leaning towards post reactions and interactions instead.
@@ -50,8 +49,9 @@ Close
  You should also note that you can only use the feature with friends, so the button will not appear next to the names of people you're not Facebook friends with.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Poke Someone on Facebook in 2024
 
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
@@ -65,21 +65,23 @@ To do this, follow these steps:
 1. In the search bar, type the word**"poke"** and press**Enter** .
 2. Select the menu item that says**Pokes** . This will take you to a page where you can see who has poked you.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook pokes feature on website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/facebook-pokes-feature.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  From this page, you can also access the poke button to send pokes to friends. Facebook will provide a list of suggested users to poke, but you can also use the search bar to look for someone specific.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![list of friends to poke on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/list-of-friends-to-poke-on-facebook.png)
 
  When you poke someone, Facebook will send the person a notification to let them know that you used the feature.
 
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like [seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
 
@@ -87,14 +89,11 @@ To do this, follow these steps:
 
  So if you want to catch a friend's attention or just give the feature a try, check out the poke feature on Facebook for a sense of nostalgia or a new way to attract someone's notice.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,6 +102,24 @@ To do this, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-learn-to-produce-fb-video-ads-using-free-kit/"><u>[Updated] In 2024, Learn to Produce FB Video Ads Using Free Kit</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unfolding-the-digital-canvas-vr-evolution/"><u>[Updated] Unfolding the Digital Canvas VR Evolution</u></a></li>
+<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/5yq55p6c55qe44gr44oi44kt44kq44oi44o844k344on44oz44ot44oh44kq44ks6kiy6yyy44gz44kl44gf44kb44gu5oml6acg/"><u>効果的にトキオモーションビデオを記録するための手順</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-ultimate-sound-revolution-exclusive-look-at-best-alternative-to-bose-and-sonos-gadgetguru/"><u>Discover the Ultimate Sound Revolution: Exclusive Look at Best Alternative to Bose and Sonos | GadgetGuru</u></a></li>
+<li><a href="https://facebook.techidaily.com/enter-the-virtual-domain-facebooks-pathway-to-metaverse/"><u>Enter the Virtual Domain: Facebook's Pathway to Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tactics-for-producing-attention-grabbing-video-stories-in-60-seconds/"><u>Essential Tactics for Producing Attention-Grabbing Video Stories in 60 Seconds</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-guide-to-resurrecting-removed-facebook-ads/"><u>Expert Guide to Resurrecting Removed Facebook Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-join-and-whats-inside-facebook-local-spots/"><u>How to Join and What's Inside Facebook Local Spots?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockout-ledger-cleared-simple-steps-to-regain-fb-entry/"><u>Lockout Ledger Cleared: Simple Steps to Regain FB Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-teen-fb-privacy-safeguards-a-step-by-step-guide/"><u>Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tempo-transformation-techniques-for-videos/"><u>Tempo Transformation Techniques for Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fall-of-forums-top-6-social-platform-factors/"><u>The Fall of Forums: Top 6 Social Platform Factors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-kindle-oasis-2019-achieving-the-perfect-tangible-e-book-feel/"><u>The Ultimate Guide to Kindle Oasis (2019): Achieving the Perfect, Tangible E-Book Feel</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-how-musicians-get-paid-on-facebook-now/"><u>Understanding How Musicians Get Paid on Facebook Now</u></a></li>
+<li><a href="https://techidaily.com/will-motorola-moto-g-stylus-5g-2023-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Motorola Moto G Stylus 5G (2023) play AVCHD mts files?</u></a></li>
+</ul></div>
 

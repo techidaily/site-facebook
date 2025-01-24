@@ -1,7 +1,7 @@
 ---
 title: "Cyber Shutdown: Global Giants' Blackout Briefcase"
-date: 2024-08-08T11:20:49.028Z
-updated: 2024-08-09T11:20:49.028Z
+date: 2025-01-19T20:45:25.741Z
+updated: 2025-01-24T21:11:32.091Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were [having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -56,22 +58,20 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,6 +80,17 @@ thumbnail: https://thmb.techidaily.com/6e815c1b64efb14276b71fc721777a9cc6b2edabd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-visual-mastery-with-iphone-identifying-optimal-shooting-spots-for-2024/"><u>[New] Visual Mastery with iPhone Identifying Optimal Shooting Spots for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-virtual-worlds-with-more-to-offer-than-just-gta/"><u>[Updated] 2024 Approved Virtual Worlds with More to Offer than Just GTA</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-cost-analysis-completing-a-music-video-shoot/"><u>2024 Approved Cost Analysis Completing A Music Video Shoot</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-hashtag-hits-videoviral-trends-on-twitter/"><u>2024 Approved Hashtag Hits #VideoViral Trends on Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/headsets-as-security-measures-for-facebooks-vulnerable-users/"><u>Headsets as Security Measures for Facebook's Vulnerable Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-tips-easily-accept-photostream-album-requests-from-friends-and-family/"><u>IPhone Tips: Easily Accept Photostream Album Requests From Friends and Family</u></a></li>
+<li><a href="https://facebook.techidaily.com/service-suspension-whatsapp-fb-instagram-offline/"><u>Service Suspension: WhatsApp, FB, Instagram Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailor-made-feed-experience-made-simple-on-fb/"><u>Tailor-Made Feed Experience, Made Simple on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-stuck-fb-notification-bars/"><u>Troubleshooting Stuck FB Notification Bars</u></a></li>
+</ul></div>
 

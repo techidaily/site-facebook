@@ -1,7 +1,7 @@
 ---
 title: Unlocking a Safer Social Media Experience with Facebook’s Streamlined Privacy Control
-date: 2025-01-14T16:14:14.607Z
-updated: 2025-01-18T16:00:23.236Z
+date: 2025-01-18T20:15:38.563Z
+updated: 2025-01-24T21:51:12.703Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -38,21 +42,17 @@ Here's how:
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
@@ -67,15 +67,15 @@ Here's how:
 
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
@@ -92,7 +92,7 @@ Here's how:
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why You Should Use Facebook's Privacy Center
@@ -128,16 +128,16 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-novices-nexus-grasping-frame-rates-and-aspect-ratios/"><u>[New] Novice's Nexus Grasping Frame Rates and Aspect Ratios</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-innovate-laughter-through-adobe-creation/"><u>2024 Approved Innovate Laughter, Through Adobe Creation</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/best-free-tools-comprehensive-review-of-screen-recorders-on-windows-7/"><u>Best Free Tools: Comprehensive Review of Screen Recorders on Windows 7</u></a></li>
-<li><a href="https://facebook.techidaily.com/friends-files-legal-lines-navigating-video-acquisition-ethics/"><u>Friend's Files, Legal Lines: Navigating Video Acquisition Ethics</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y100-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y100 5G</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-breaking-down-triller-its-distinctive-position-in-the-video-world/"><u>In 2024, Breaking Down Triller Its Distinctive Position in the Video World</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-lava-storm-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Lava Storm 5G?</u></a></li>
-<li><a href="https://facebook.techidaily.com/instantaneous-alteration-of-your-facebook-personality-icon/"><u>Instantaneous Alteration of Your Facebook Personality Icon</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-hidden-dangers-on-a-computer-screen/"><u>Navigating Hidden Dangers on a Computer Screen</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-22s-standout-podcast-episodes/"><u>The Ultimate Guide to '22'S Standout Podcast Episodes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-touch-usefulness-assessment/"><u>Unveiling Facebook Touch: Usefulness Assessment</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-passion-to-prominence-the-creators-quest/"><u>[New] In 2024, From Passion to Prominence The Creator's Quest</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-subtle-art-of-easing-audio-intensity-garageband/"><u>[New] The Subtle Art of Easing Audio Intensity (Garageband)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-gamers-choice-top-software-for-live-scenes-for-2024/"><u>[Updated] Gamers' Choice Top Software for Live Scenes for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/american-public-consensus-social-medias-downside/"><u>American Public Consensus: Social Media's Downside</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-metaais-role-in-advancing-conversational-tech/"><u>Assessing MetaAI’s Role in Advancing Conversational Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-deeper-real-numbers-of-facebook-leavers/"><u>Delving Deeper: Real Numbers of Facebook Leavers</u></a></li>
+<li><a href="https://win-guides.techidaily.com/effective-strategies-for-growing-your-subscribers-an-insightful-guide-with-massmailer-tools/"><u>Effective Strategies for Growing Your Subscribers: An Insightful Guide with MassMailer Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-tecno-camon-30-pro-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Tecno Camon 30 Pro 5G</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-realme-c55-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Realme C55? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/scam-or-savvy-the-double-edged-sword-of-fb-cloning/"><u>Scam or Savvy? The Double-Edged Sword of FB Cloning</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
 </ul></div>
 

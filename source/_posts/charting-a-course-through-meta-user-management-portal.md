@@ -1,7 +1,7 @@
 ---
 title: Charting a Course Through Meta User Management Portal
-date: 2024-08-08T11:21:50.254Z
-updated: 2024-08-09T11:21:50.254Z
+date: 2025-01-23T21:10:13.524Z
+updated: 2025-01-24T19:44:53.611Z
 tags:
   - facebook
 categories:
@@ -21,31 +21,35 @@ thumbnail: https://thmb.techidaily.com/c44e4e5c600145f0a206a8e58618f5b19fc163e0b
 
 ## Facebook and Instagram: Navigating to the Accounts Center
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
 
  It's easy to confuse the Accounts Center in the Facebook and Instagram apps with other settings, like**Account** ,**Security** ,**Notifications** , and**Privacy** . These options are specific for each app and the account you're using. The Accounts Center, however, is a central hub under Meta, the parent company of both platforms. Among the many features it offers, you can use it to [create and link Facebook and Instagram](http://www.makeuseof.com/facebook-instagram-account-center-linked-accounts/) accounts.
 
  Here's a brief look at how to access the Accounts Center on Instagram and Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Finding the Accounts Center on Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Settings menu for Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151644.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -58,26 +62,15 @@ Here's how you can access the Accounts Center on Instagram:
 
 ### Finding the Accounts Center on Facebook
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
 
 ![Meta Accounts Center hub with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -95,14 +88,11 @@ Here's how to access the Accounts Center on Facebook:
 
  While convenient, there are concerns about privacy and security regarding the Accounts Center. No need to fret, though. There are a few ways you can disconnect your Instagram account from your Facebook account, if you share those concerns.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,6 +101,26 @@ Here's how to access the Accounts Center on Facebook:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-enlightenment-echoes-best-ed-tutorials-yt/"><u>[New] 2024 Approved Enlightenment Echoes Best Ed Tutorials YT</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-next-level-graphic-cards-for-4k-titles/"><u>[New] 2024 Approved Next-Level Graphic Cards for 4K Titles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transcendence-in-music-mixing-crossfade-unveiled/"><u>[New] Transcendence in Music Mixing Crossfade Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/26-metaverse-milestones-a-journey-into-virtual-realms-for-2024/"><u>26 Metaverse Milestones A Journey Into Virtual Realms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-building-industry-relationships-on-social-media-fb/"><u>A Step-by-Step Approach to Building Industry Relationships on Social Media: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decor-constructing-visual-albums-on-the-web/"><u>Digital Decor: Constructing Visual Albums on the Web</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-documented-life-a-comprehensive-record-of-all-fb-activities-you-participated-in/"><u>Digitally Documented Life: A Comprehensive Record of All Fb Activities You Participated In</u></a></li>
+<li><a href="https://games-able.techidaily.com/discover-the-perfect-typing-sensation-with-glorious-auras-premium-pudding-caps-top-ranked-on-zdnet/"><u>Discover the Perfect Typing Sensation with Glorious Aura's Premium Pudding Caps – Top Ranked on ZDNet!</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-big-with-these-5-facebook-and-instagram-hacks/"><u>Earn Big with These 5 Facebook and Instagram Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/examine-the-number-of-facebook-admirers/"><u>Examine the Number of Facebook Admirers</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/free-mp3-audio-file-converter-software-with-movavi-quick-and-easy-downloads/"><u>Free MP3 Audio File Converter Software with Movavi - Quick and Easy Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-abruptly-end-a-social-network-fellowship/"><u>How to Abruptly End a Social Network Fellowship</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-virtual-wit-factory/"><u>In 2024, Virtual Wit Factory</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/ipad-pro-comparison-choosing-the-right-version-between-2021-and-2022-models/"><u>IPad Pro Comparison: Choosing the Right Version Between 2021 and 2022 Models</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-securityfacebookmailcom-legitimate/"><u>Is the Facebook Protect Email From Security@facebookmail.com Legitimate?</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-search-navigate-to-facebook-group-and-profile-links/"><u>Masterful Search: Navigate to Facebook Group & Profile Links</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-comprehensive-guide-to-fixing-minecrafts-infamous-exit-code-0-bug/"><u>Solved: Comprehensive Guide to Fixing Minecraft's Infamous Exit Code 0 Bug</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-auditory-performances/"><u>Ultimate Auditory Performances</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-users-authenticity-now-at-meta/"><u>US Users: Authenticity Now at Meta</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2025-01-12T16:00:19.245Z
-updated: 2025-01-18T16:09:01.332Z
+date: 2025-01-20T16:41:07.470Z
+updated: 2025-01-24T19:21:35.850Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,22 +79,24 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-financial-breakdown-of-music-video-production/"><u>[Updated] Financial Breakdown of Music Video Production</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-revisiting-youtubes-archive-two-proven-watch-strategies/"><u>[Updated] Revisiting Youtube's Archive Two Proven Watch Strategies</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-summit-series-of-ultimate-4k-touch-screens/"><u>[Updated] Summit Series of Ultimate 4K Touch Screens</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/5o6s6zmk5yplusv55ar5zwp6agm77ya6auy5pwi6kej5rg65bel5l2c5yplusw5lik55qe5pah5lu25asx6lmk5pa55rov/"><u>排除可疑問題：高效解決工作台上的文件失蹤方法</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-vivo-y28-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Vivo Y28 5G? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/connectivity-concerns-addressed-eight-remedies-for-iphone-and-ipad-not-connecting-to-wi-fi/"><u>Connectivity Concerns Addressed: Eight Remedies for iPhone and iPad Not Connecting to Wi-Fi</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-authenticity-tech-giants-obligation-to-remove-deceptive-advertising/"><u>Ensuring Authenticity: Tech Giants' Obligation to Remove Deceptive Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-reel-strategy-is-it-enough-to-dethrone-tiktoks-rule/"><u>Facebook’s Reel Strategy: Is It Enough to Dethrone TikTok's Rule?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/het-beste-software-voor-het-behandelen-van-stamppuntsproblemen-eenlijst/"><u>Het Beste Software Voor Het Behandelen Van Stamppuntsproblemen: Eenlijst!</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/inside-toms-hardware-the-ultimate-tech-resource/"><u>Inside Tom's Hardware: The Ultimate Tech Resource</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-whether-metaai-will-dominate-ai-dialogue/"><u>Investigating Whether MetaAI Will Dominate AI Dialogue</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-standing-spectrum-the-highest-points-in-metas-and-blues/"><u>Social Standing Spectrum: The Highest Points in Metas and Blues</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-black-box-of-frozen-social-media-accounts/"><u>The Black Box of Frozen Social Media Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-shopping-rolls-in-on-fridays-with-fb/"><u>The Future of Shopping Rolls In on Fridays with FB</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitter-video-viral-2024/"><u>Twitter Video Viral 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-enhanced-tool-for-directing-consumers-to-brands/"><u>Unveiling Facebook’s Enhanced Tool for Directing Consumers to Brands</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-do-facebooks-newly-renamed-pages-really-signify/"><u>What Do Facebook's Newly Renamed Pages Really Signify?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-download-facebook-status-videos/"><u>[New] In 2024, How to Download Facebook Status Videos?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-video-intros-selecting-from-top-15-youtube-sets/"><u>[Updated] Ideal Video Intros Selecting From Top 15 YouTube Sets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mac-and-pcs-top-10-supercharged-srt-systems-unveiled/"><u>[Updated] Mac & PC's Top 10 Supercharged SRT Systems Unveiled</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-strengthened-by-7-social-innovations/"><u>Community Strengthened by 7 Social Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-networking-identity-codes-fb-vs-unames/"><u>Deciphering Social Networking Identity Codes: FB vs UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrypting-the-secrets-of-social-media-invisibility/"><u>Decrypting the Secrets of Social Media Invisibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-privacy-with-a-new-phrase/"><u>Enhancing Your Facebook Privacy with a New Phrase</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-targeted-fb-ad-sightings/"><u>Explanation for Targeted FB Ad Sightings?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-transformed-by-sheryl-sandbergs-leadership/"><u>Facebook Transformed by Sheryl Sandberg’s Leadership</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disentangle-your-social-networks-instagram-and-facebook/"><u>How to Disentangle Your Social Networks (Instagram & Facebook)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-v27-pro-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo V27 Pro Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-oppo-k11xs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Oppo K11xs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://win11.techidaily.com/methods-to-tackle-misdirected-token-call-on-windows/"><u>Methods to Tackle Misdirected Token Call” On Windows</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/sonic-shakers-the-ultimate-audio-rippers-list/"><u>Sonic Shakers The Ultimate Audio Rippers List</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-back-breaking-ties-on-facebook/"><u>Stepping Back: Breaking Ties on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-offline-world-reimagined-after-social-media-departure/"><u>The Offline World Reimagined After Social Media Departure</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://win-updates.techidaily.com/1728464909850-404/"><u>ウェブサイトでフロアを探しても、何故か見当たらない!? - 404ページ未発見の謎解き</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2025-01-14T16:18:16.304Z
-updated: 2025-01-18T16:22:34.648Z
+date: 2025-01-18T16:43:43.965Z
+updated: 2025-01-24T22:49:32.605Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do People See Who's Online on Facebook?
@@ -71,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
@@ -85,14 +85,10 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
@@ -129,15 +125,19 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 
-![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -160,17 +160,22 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-premier-guidance-leading-ringtone-artisans-iphone/"><u>[Updated] Premier Guidance Leading Ringtone Artisans iPhone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-ls-pros-and-cons-firmware-versus-devices/"><u>2024 Approved LS Pros & Cons Firmware Versus Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-eufy-t82-00-video-doorbell-complete-analysis-without-hidden-costs/"><u>Discover the Eufy T82 00 Video Doorbell - Complete Analysis without Hidden Costs</u></a></li>
-<li><a href="https://win-blog.techidaily.com/diy-eradicating-graphics-problems-in-fifa-20-with-ease/"><u>DIY: Eradicating Graphics Problems in FIFA 20 with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-interactive-elements-necessity-or-novelty/"><u>Facebook’s Interactive Elements: Necessity or Novelty?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-download-the-right-drivers-for-your-logitech-t6pressor-t630-on-various-windows-systems/"><u>How to Download the Right Drivers for Your Logitech T6pressor T630 on Various Windows Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/pioneering-promotion-the-5-leading-social-tools-for-trade/"><u>Pioneering Promotion: The 5 Leading Social Tools for Trade</u></a></li>
-<li><a href="https://facebook.techidaily.com/podcast-profiles-boosted-by-facebooks-latest-release/"><u>Podcast Profiles Boosted by Facebook's Latest Release</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/rectifying-hp-printer-issue-code-oxc4eb827f/"><u>Rectifying HP Printer Issue: Code OXC4EB827F</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-silent-cyberspace-app-downtimes-explained/"><u>The Silent Cyberspace: App Downtimes Explained</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-to-overcome-connect-pairing-errors-in-windows-11-os/"><u>Tips to Overcome 'Connect' Pairing Errors in Windows 11 OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-should-incorrantegate-sleep-mode-into-your-daily-routine-with-messenger-kids/"><u>Why You Should Incorrantegate Sleep Mode Into Your Daily Routine with Messenger Kids</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-quickscreen-recorder-for-professionals-for-2024/"><u>[New] QuickScreen Recorder for Professionals for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-sony-xperia-5-v-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Sony Xperia 5 V Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/a-comprehensive-look-at-a-miniaturized-yet-multi-talented-chrome-os-device/"><u>A Comprehensive Look at a Miniaturized yet Multi-Talented Chrome OS Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-group-leave-friction-the-facebook-way/"><u>Avoiding Group Leave Friction: The Facebook Way</u></a></li>
+<li><a href="https://facebook.techidaily.com/claiming-a-portion-of-the-mega-settlement-from-facebook/"><u>Claiming a Portion of the Mega-Settlement From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-motorola-razr-40-ultra-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Motorola Razr 40 Ultra Phone that is Locked?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mending-broken-connection-with-friendster-facebook/"><u>Mending Broken Connection with Friendster (Facebook)</u></a></li>
+<li><a href="https://win-web.techidaily.com/pro-mixing-secrets-on-pioneer-touch-xtented-3-harnessing-dex-search-tools-for-optimal-performance/"><u>Pro Mixing Secrets on Pioneer Touch XTENTED 3: Harnessing DEX Search Tools for Optimal Performance</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/pure-tunes-safe-hearing-high-quality-muffs-reviewed/"><u>Pure Tunes, Safe Hearing: High-Quality Muffs Reviewed</u></a></li>
+<li><a href="https://games-able.techidaily.com/regain-command-reviving-your-controllers-connection-windows/"><u>Regain Command: Reviving Your Controller's Connection (Windows)</u></a></li>
+<li><a href="https://facebook.techidaily.com/streaming-on-ig-live-with-no-media-required/"><u>Streaming On IG Live With No Media Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-in-accepting-everyones-friendship-overtures/"><u>The Hidden Risks in Accepting Everyone's Friendship Overtures</u></a></li>
+<li><a href="https://facebook.techidaily.com/wait-and-see-facebook-board-halts-decision-process/"><u>Wait and See: Facebook Board Halts Decision Process</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/4k2k/"><u>スムーズな変換: 高解像度4K動画を2Kへ効率良くダウンサイジングする手引き</u></a></li>
 </ul></div>
 

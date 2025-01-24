@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2025-01-14T16:08:10.932Z
-updated: 2025-01-18T16:24:19.887Z
+date: 2025-01-19T20:56:41.527Z
+updated: 2025-01-24T22:23:16.956Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -42,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
  Enabling Link History allows Meta to track the sites you visited through the Facebook app in the last 30 days. And by doing so, it's able to deliver targeted ads across its apps and services, including Instagram and Threads (both owned by Meta).
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
 
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
@@ -66,13 +66,13 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -90,11 +90,11 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
-![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
@@ -121,18 +121,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-ultimate-guide-8-budget-friendly-video-calls-on-windows-and-mac/"><u>[New] In 2024, Ultimate Guide 8 Budget-Friendly Video Calls on Windows & Mac</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-invisible-broadcasts-anonymous-instagram-live-tips/"><u>[Updated] 2024 Approved Invisible Broadcasts Anonymous Instagram Live Tips</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-skies-in-4k-with-mi-drone/"><u>[Updated] Exploring Skies in 4K with MI Drone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-x50-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor X50 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/customizing-your-msi-motherboard-with-updated-drivers-in-windows/"><u>Customizing Your MSI Motherboard with Updated Drivers in Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-unlock-discord-install-glitches-on-windows-11/"><u>How to Unlock Discord Install Glitches on Windows 11</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-insightful-ways-of-gathering-photographic-elements/"><u>In 2024, Insightful Ways of Gathering Photographic Elements</u></a></li>
-<li><a href="https://win-dash.techidaily.com/masterclass-resolve-intel-dptf-driver-install-issues-like-a-pro/"><u>Masterclass: Resolve Intel DPTF Driver Install Issues Like a Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/sync-up-sports-facebook-twitter-unite-for-the-league/"><u>Sync-Up Sports: Facebook, Twitter Unite for the League</u></a></li>
-<li><a href="https://some-skills.techidaily.com/vanguard-designs-evaluation-studio-25-examined-current-year-for-2024/"><u>Vanguard Designs Evaluation Studio 25 Examined, Current Year for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-final-cut-pro-x-a-guide-to-instagrams-vertical-preference/"><u>[Updated] 2024 Approved Final Cut Pro X A Guide to Instagram’s Vertical Preference</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-fitness-frontiers-youtubes-best-yoga-content/"><u>[Updated] 2024 Approved Fitness Frontiers - YouTube's Best Yoga Content</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-beginners-blueprint-for-green-screen-in-kinemaster/"><u>2024 Approved Beginner's Blueprint for Green Screen in KineMaster</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-stance-on-networking-harmful-impact/"><u>America's Stance on Networking: Harmful Impact</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/choosing-your-top-generative-ai-ally-is-it-chatgpt-or-notion-ai/"><u>Choosing Your Top Generative AI Ally: Is It ChatGPT or Notion AI?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/elevating-computer-standards-software-deployment-enabler/"><u>Elevating Computer Standards: Software Deployment Enabler</u></a></li>
+<li><a href="https://driver-download.techidaily.com/genetic-predisposition-significantly-increases-the-risk-of-developing-an-aaa/"><u>Genetic Predisposition Significantly Increases the Risk of Developing an AAA.</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-fb-more-smoothly-with-shortcut-management/"><u>Navigate FB More Smoothly With Shortcut Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-approach-to-delete-digital-dialogue-on-fb/"><u>Simplified Approach to Delete Digital Dialogue on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-in-a-digital-world-reasons-not-to-accept-all-friend-requests/"><u>Stay Safe in a Digital World: Reasons Not to Accept All Friend Requests</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/est-8-platforms-for-effective-youtube-advertising-for-2024/"><u>The Best 8 Platforms for Effective Youtube Advertising for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Itel P55 5G? | Dr.fone</u></a></li>
 </ul></div>
 

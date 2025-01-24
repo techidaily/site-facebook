@@ -1,7 +1,7 @@
 ---
 title: The Mythical Allure and Reality of Facebook Users
-date: 2025-01-11T16:02:31.609Z
-updated: 2025-01-18T16:07:19.216Z
+date: 2025-01-21T16:06:58.368Z
+updated: 2025-01-24T16:29:47.737Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Have These Facebook Stats Come From?
@@ -33,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  Meta released its[annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
 
 ![Facebook Numbers Screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Numbers-Screenshot.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image Credit: Meta
 
@@ -47,6 +43,10 @@ Image Credit: Meta
  Related:[Why Apple's Privacy Policies May Have Cost Social Media Companies Billions of Dollars](https://www.makeuseof.com/apples-privacy-policies-may-cost-social-media-companies-billions-of-dollars/)
 
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Facebook Has Barely Lost Any Users
 
@@ -59,7 +59,7 @@ Image Credit: Meta
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. It's Natural for Facebook to Lose Some Users
@@ -75,7 +75,7 @@ Image Credit: Meta
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
@@ -83,10 +83,6 @@ Image Credit: Meta
  Delving even deeper, you can consider the critical mass curve for a platform's users. Critical mass is the minimum number of users you need to sustain value in the product with no other product changes. Usually businesses want to work up this curve towards critical mass, but there's a point when you exceed it.
 
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Meta Is Focusing on the Metaverse
 
@@ -99,6 +95,10 @@ Image Credit: Meta
  If Meta does indeed bring the metaverse into the mainstream, it's likely it will continue to pursue that area. At this point, perhaps Facebook becomes less important for the company. Or perhaps Meta will integrate Facebook into the metaverse itself.
 
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Chill Out! Facebook Is Fine
 
@@ -121,14 +121,22 @@ Image Credit: Meta
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-breaking-down-the-system-behind-highlighted-video-comments/"><u>[Updated] 2024 Approved Breaking Down the System Behind Highlighted Video Comments</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-evaluating-the-financial-giants-mr-beast/"><u>2024 Approved Evaluating the Financial Giants Mr. Beast</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-facebooks-potential-for-professional-client-connections/"><u>Maximizing Facebook's Potential for Professional Client Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-no-security-code-issues-with-facebook-accounts/"><u>Navigating No-Security-Code Issues with Facebook Accounts</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-learning-how-to-create-luts-with-luts-generator/"><u>New 2024 Approved Learning How to Create LUTs with LUTs Generator</u></a></li>
-<li><a href="https://facebook.techidaily.com/phishing-proof-your-social-life-on-facebook/"><u>Phishing-Proof Your Social Life on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/premier-league-players-pledge-no-more-social-networking-for-harassment-purposes/"><u>Premier League Players Pledge No More Social Networking for Harassment Purposes</u></a></li>
-<li><a href="https://win-able.techidaily.com/stop-arma-3-disruptions-comprehensive-troubleshooting-tips-for-the-latest-updates/"><u>Stop Arma 3 Disruptions: Comprehensive Troubleshooting Tips for the Latest Updates</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-rated-mp3-players-the-ultimate-guide/"><u>Top Rated MP3 Players : The Ultimate Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-sync-obs-with-facebook-for-2024/"><u>[New] The Ultimate Guide to Sync OBS with Facebook for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-from-snap-to-stunning-photo-editing-secrets/"><u>[Updated] In 2024, From Snap to Stunning Photo Editing Secrets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-spark-the-motivation-top-inspirational-youtube-videos-for-2024/"><u>[Updated] Spark the Motivation Top Inspirational YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-voices-facebook-introduces-audiovisual-hub/"><u>Bridging Voices: Facebook Introduces Audiovisual Hub</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/y-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>Comedy in a Click Best Funny Short Video Suggestions for YouTubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealed-contacts-on-facebook-platform/"><u>Concealed Contacts on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-connectivity-share-your-fb-memories-anywhere/"><u>Cross-Platform Connectivity: Share Your Fb Memories Anywhere.</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-directed-posting-uncover-3-fb-tagging-ways/"><u>Decoding the Mystery of Directed Posting: Uncover 3 Fb Tagging Ways</u></a></li>
+<li><a href="https://win11.techidaily.com/delving-into-windows-diagnostics-formulating-and-reviewing-reports/"><u>Delving Into Windows Diagnostics: Formulating and Reviewing Reports</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-googles-solutions-for-phone-conversations-and-texting/"><u>Evaluating Google's Solutions for Phone Conversations and Texting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v13-document-with-electronic-signature-tool-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.3 document with electronic signature tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-meets-vr-six-critical-disparities-to-consider/"><u>Metaverse Meets VR: Six Critical Disparities to Consider</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/remedying-recurring-frame-drops-in-media/"><u>Remedying Recurring Frame Drops in Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-playback-techniques-in-social-media-apps/"><u>Spotify Playback Techniques in Social Media Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-24-hour-cyber-sabbath-for-big-tech/"><u>The 24-Hour Cyber Sabbath for Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/verdict-on-holding-facebook-oversight-on-trump-ban/"><u>Verdict on Holding: Facebook Oversight on Trump Ban</u></a></li>
+<li><a href="https://win-unique.techidaily.com/1728492524656-4/"><u>パソコンに保存されているゲームデータの4つの効果的な回復手段</u></a></li>
 </ul></div>
 

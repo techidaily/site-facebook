@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2025-01-16T16:26:41.620Z
-updated: 2025-01-18T16:17:45.342Z
+date: 2025-01-23T17:21:04.584Z
+updated: 2025-01-24T16:13:10.497Z
 tags:
   - facebook
 categories:
@@ -26,17 +26,9 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
@@ -47,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
@@ -78,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -87,10 +83,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -102,12 +94,16 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -121,6 +117,10 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,20 +143,24 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-foundational-steps-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved Foundational Steps for YouTube Enthusiasts</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-pixels-to-prints-master-snapseed-fundamentals/"><u>[Updated] From Pixels to Prints Master Snapseed Fundamentals</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagrams-abandoned-followers-map/"><u>[Updated] Instagram's Abandoned Followers Map</u></a></li>
-<li><a href="https://facebook.techidaily.com/fighting-deception-on-the-internet-time-for-tech-to-step-up/"><u>Fighting Deception on the Internet: Time for Tech to Step Up</u></a></li>
-<li><a href="https://facebook.techidaily.com/go-wherever-you-want-facebooks-mobility-centric-portal/"><u>Go Wherever You Want: Facebook's Mobility-Centric Portal</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-samsung-galaxy-a34-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Samsung Galaxy A34 5G</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-gt-3-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme GT 3 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-se-to-samsung-simplified-guide-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer From Apple iPhone SE to Samsung Simplified Guide | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-optimize-your-video-written-by-your-name/"><u>In 2024, Optimize Your Video' Written By [Your Name]</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-13-mini-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>iPhone 13 mini Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastodon-a-new-era-of-discourse/"><u>Mastodon: A New Era of Discourse</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-messages-discovering-new-auditory-features-on-messenger/"><u>Revolutionizing Messages: Discovering New Auditory Features on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-backdoor-for-anti-immunization-advocates/"><u>Social Media's Backdoor for Anti-Immunization Advocates</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-intrusion-verifying-third-party-login-on-facebook/"><u>Uncover Intrusion: Verifying Third-Party Login on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-facebooks-inner-circle-with-dossiers-revealed/"><u>Unmasking Facebook’s Inner Circle with Dossiers Revealed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unveiling-the-veil-insta-story-exploration-without-trace-for-2024/"><u>[New] Unveiling the Veil Insta Story Exploration without Trace for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-gimbals-matched-for-high-res-dslrs/"><u>[Updated] Best Gimbals Matched for High-Res DSLRs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-uncharted-territories-virtual-realitys-role-in-leisure/"><u>[Updated] Uncharted Territories Virtual Reality's Role in Leisure</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-visual-gastronomy-a-chefs-guide-to-film-production-for-2024/"><u>[Updated] Visual Gastronomy A Chef's Guide to Film Production for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-carving-out-your-place-in-the-design-world/"><u>2024 Approved Carving Out Your Place in the Design World</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footsteps-lead-to-pages-groups-in-fb/"><u>Digital Footsteps Lead to Pages, Groups in FB</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/embedding-echoes-adding-audio-to-your-powerpoint-slides-for-2024/"><u>Embedding Echoes Adding Audio to Your PowerPoint Slides for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/flvmp3flv/"><u>FLV到MP3转换专家:高效转码FLV文件解决方案</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-read-between-the-lines-of-facebooks-chat-emoji-meanings/"><u>How to Read Between the Lines of Facebook's Chat Emoji Meanings</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-every-shared-photo-permanent-archive/"><u>Is Every Shared Photo Permanent Archive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-second-life-poised-for-a-comeback-in-the-dawn-of-metaversal-worlds/"><u>Is Second Life Poised for a Comeback in the Dawn of Metaversal Worlds?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/next-gen-hd-video-recording-the-pinnacle-choices/"><u>Next-Gen HD Video Recording The Pinnacle Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-authority-checks-right-to-suspend-trump-temporarily/"><u>Online Authority Checks: Right to Suspend Trump, Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/premium-metas-gain-verified-identity-badge/"><u>Premium Metas: Gain Verified Identity Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-world-of-non-facebook-direct-messaging/"><u>The World of Non-Facebook Direct Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-anonymity-options-in-social-networks/"><u>Understanding Anonymity Options in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-realme-v30-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Realme V30? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/xbox-screen-sharing-setting-up-for-fb-livestreaming/"><u>Xbox Screen Sharing Setting Up for FB Livestreaming</u></a></li>
 </ul></div>
 

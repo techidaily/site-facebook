@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Sensational Stories: Rethinking Social Media Scandals"
-date: 2024-08-08T11:19:54.284Z
-updated: 2024-08-09T11:19:54.284Z
+date: 2025-01-21T22:33:06.293Z
+updated: 2025-01-24T22:19:32.242Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,9 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 **Note:** The Facebook Papers were released before [Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
  Most of the reports from The Facebook Papers focus on misinformation as the big “revelation” about Facebook. Now, misinformation certainly is a problem on the internet; it can actually be quite dangerous. But it isn't particularly scandalous for Facebook.
@@ -39,18 +39,20 @@ The ultimate burning program for all your needs!</a>
 
  The Facebook Papers are being described and perceived as the worst information that could have come out about the company. But that's not so. Imagine if the reports contained information that showed Facebook was being used by other countries in cyberattacks. That would have been a real revelation.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Misinformation Warning](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Misinformation-Warning.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credits: Facebook
 
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
  When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as [Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
@@ -66,8 +68,9 @@ The ultimate burning program for all your needs!</a>
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -82,10 +85,11 @@ The ultimate burning program for all your needs!</a>
 
  The particular example used is the CEO claiming Facebook removes 94 percent of the hate speech it finds before a human reports it, but a leaked report reveals less than five percent of all hate speech is removed from the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credits: Anthony Quintano via Flickr
 
@@ -95,9 +99,6 @@ The ultimate burning program for all your needs!</a>
 
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -106,14 +107,11 @@ The ultimate burning program for all your needs!</a>
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,6 +120,24 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/eamless-songstreaming-the-best-free-apps-for-youtube-music-on-android-for-2024/"><u>[New] Seamless Songstreaming The Best Free Apps for YouTube Music on Android for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-premiere-pros-finest-tools-free-and-exceptional-quality-for-2024/"><u>[Updated] Premiere Pro's Finest Tools - Free & Exceptional Quality for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/break-free-the-chuckles-ranking-20-hilarious-fb-detention-scenes/"><u>Break Free the Chuckles Ranking 20 Hilarious FB Detention Scenes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-strategies-for-success-leveraging-the-advantages-of-business-pages/"><u>Facebook Strategies for Success: Leveraging the Advantages of Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-judgment-justifiable-short-term-suspension-of-trump/"><u>Facebook's Judgment: Justifiable Short-Term Suspension of Trump</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/fixing-warped-youtube-videos-step-by-step/"><u>Fixing Warped YouTube Videos Step-by-Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-your-facebook-account-on-android/"><u>How to Delete Your Facebook Account on Android</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-samsung-galaxy-f04-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Samsung Galaxy F04 to iPad | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2020-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2020) to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-interventions-to-dodge-cybernetic-charlatans/"><u>Insightful Interventions to Dodge Cybernetic Charlatans</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-these-14-common-facebook-scams-before-its-too-late/"><u>Spot These 14 Common Facebook Scams Before It's Too Late</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-connected-six-critical-reasons-for-keeping-up-with-facebook/"><u>Staying Connected: Six Critical Reasons for Keeping Up with Facebook</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/ultimate-guide-4-effective-techniques-to-retrieve-deleted-data-from-usb-using-cmd/"><u>Ultimate Guide: 4 Effective Techniques to Retrieve Deleted Data From USB Using CMD</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-the-plugged-in-world-via-facebook/"><u>Unplugging the Plugged-In World via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/waiting-game-when-will-we-see-the-third-gen-oculus-quest/"><u>Waiting Game: When Will We See the Third-Gen Oculus Quest</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/dngjpeg/"><u>オンラインで簡単! DNGフォーマットからJPEGへの無料変換 - モバビ</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Shifting Social Identity: New Name, Same Network on FB"
-date: 2025-01-13T16:09:17.554Z
-updated: 2025-01-18T16:24:09.107Z
+date: 2025-01-17T19:25:07.192Z
+updated: 2025-01-24T18:40:48.221Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/1323edf73cef5ddeb6760a28b46d407c0ed89a315
 The process differs slightly on the website versus the app.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### On the Web
@@ -49,25 +49,21 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### On the Facebook App
 
 ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook name change page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-name-change-page-ios.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -100,10 +96,6 @@ Close
 
 ![enter additional name facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/02-creating-additional-names-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  Select the type of name, then enter your additional name. Check**Show at top of profile** if you want your additional name to stand tall on your profile.
@@ -111,6 +103,10 @@ Close
  Remember that the additional name will still be visible to others under the**About** section of your profile and search engines.
 
  Read More:[How to Untag Yourself From Facebook Photos](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Restrictions on Changing Your Facebook Name
 
@@ -129,6 +125,10 @@ Close
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
  However, Facebook also accepts other non-government IDs like a bank statement, health insurance, credit card, and so on as long as it shows your official names.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## More Things To Try on Facebook
 
@@ -151,19 +151,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-brush-up-your-youtube-videos-with-color-correction/"><u>[New] Brush Up Your Youtube Videos with Color Correction</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-premier-networks-for-your-personalized-watchlist/"><u>[New] Premier Networks for Your Personalized Watchlist</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nlocking-the-art-of-video-marketing-on-youtube/"><u>[New] Unlocking the Art of Video Marketing on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-evaluating-acid-pro-open-source-rivals-explored/"><u>[Updated] 2024 Approved Evaluating ACID Pro Open-Source Rivals Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-enhances-chat-security-with-new-encrypted-messaging-features/"><u>Facebook Enhances Chat Security with New Encrypted Messaging Features.</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/guida-rapida-al-passaggio-dei-file-da-un-microsd-allaltro-senza-problemi/"><u>Guida Rapida Al Passaggio Dei File Da Un microSD All'altro Senza Problemi</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-pro-max-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 Pro Max to other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-control-with-facebooks-new-privacy-settings/"><u>Maximizing Control with Facebook's New Privacy Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-nexus-transformation-facebooks-progression-to-meta/"><u>Networking Nexus Transformation: Facebook's Progression to Meta</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-elevate-your-video-production-top-free-adobe-premiere-plugins/"><u>New Elevate Your Video Production Top Free Adobe Premiere Plugins</u></a></li>
-<li><a href="https://facebook.techidaily.com/public-mistrust-mounting-towards-large-it-entities/"><u>Public Mistrust Mounting Towards Large IT Entities</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-digital-rebranding-changing-your-fb-name-gracefully/"><u>The Art of Digital Rebranding: Changing Your FB Name Gracefully</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-a-guide-to-leaving-facebook/"><u>The Art of Unplugging: A Guide to Leaving Facebook</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tiktok-to-tokens-financial-figures-of-pewdiepie/"><u>TikTok to Tokens Financial Figures of PewDiePie</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-revisiting-old-memories-how-to-upload-them-on-snapchat/"><u>[Updated] Revisiting Old Memories How to Upload Them on Snapchat</u></a></li>
+<li><a href="https://techtrends.techidaily.com/android-16-unveiled-app-reviews-anticipated-costs-official-release-info-and-buzzworthy-tech-details-inside/"><u>Android 16 Unveiled: App Reviews, Anticipated Costs, Official Release Info & Buzzworthy Tech Details Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticated-by-america-enter-metas-us-platform/"><u>Authenticated by America – Enter Meta's US Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-whatsapp-policy-update-keep-access-full-and-complete/"><u>Bypassing WhatsApp Policy Update, Keep Access Full and Complete</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-mistakes-5-incidents-that-mark-facebooks-record/"><u>Dissecting the Mistakes: 5 Incidents That Mark Facebook’s Record</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficient-ethernet-mastering-4-tactics-to-test-your-lan-speed-on-pc/"><u>Efficient Ethernet: Mastering 4 Tactics to Test Your LAN Speed on PC</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/expert-gaming-techniques-mastering-switch-pro-controller-on-steam-for-2024/"><u>Expert Gaming Techniques Mastering Switch Pro Controller on Steam for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-is-planning-to-prevent-intimate-images-from-spreading-online/"><u>How Meta Is Planning to Prevent Intimate Images From Spreading Online</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-infinix-note-30-vip-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Infinix Note 30 VIP Quickly? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/illuminating-facebooks-secrets-accessing-its-transparency-center/"><u>Illuminating Facebook's Secrets: Accessing Its Transparency Center</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-realme-12-proplus-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Realme 12 Pro+ 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/masterclass-picks-professional-webcam-stands/"><u>Masterclass Picks Professional Webcam Stands</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-future-apples-unique-destination/"><u>Navigating the Future: Apple’s Unique Destination</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/pourquoi-joindre-les-ranks-dabbyy-une-exploration-des-benefices-professionnels/"><u>Pourquoi Joindre Les Ranks D'ABBYY : Une Exploration Des Bénéfices Professionnels</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-social-boundaries-facebooks-update/"><u>Reimagining Social Boundaries: Facebook's Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/sidestep-fbs-2fa-loss-of-device-with-ease/"><u>Sidestep FB’s 2FA Loss of Device with Ease</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Cutting the Cord: Ending Online Friendships"
-date: 2024-08-15T18:38:32.224Z
-updated: 2024-08-16T18:38:32.224Z
+date: 2025-01-27T00:29:05.871Z
+updated: 2025-02-01T01:14:12.206Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/0cf9688fb864217953ed20bc37cbae8628a2ed0f2
 * [How to Take a Break From Someone on Facebook](#how-to-take-a-break-from-someone-on-facebook)
 * [How to Stop Taking a Break on Facebook](#how-to-stop-taking-a-break-on-facebook)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Facebook's "Take a Break" feature allows you to mute updates from a friend without unfriending them.
@@ -31,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/0cf9688fb864217953ed20bc37cbae8628a2ed0f2
 * You can stop the break by reversing the settings. The feature helps maintain connections while creating space.
 
  Feeling overwhelmed by a friend's constant updates? Facebook's "Take a Break" feature lets you temporarily mute their updates without cutting them off entirely. Here's what you need to know about the feature and how to use it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is the "Take a Break" Feature on Facebook?
 
@@ -51,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/0cf9688fb864217953ed20bc37cbae8628a2ed0f2
 * There's no limit to how long you can take a break, so you'll have to remember to manually revert the changes if you change your mind in the future.
 
  By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or [blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Take a Break From Someone on Facebook
 
@@ -95,9 +100,9 @@ Here, you'll find three options.
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Stop Taking a Break on Facebook
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
@@ -105,22 +110,24 @@ Here, you'll find three options.
 * Visit the [Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 
 * You'll find the Take a Break search bar, type the name of the friend you previously took a break from.
 * Click on the name of the friend.
 
 ![Name of freind to stop taking a break from](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/name-of-freind-to-stop-taking-a-break-from.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You'll find a menu with a list of actions you can take to stop taking a break.
 * Click**Edit** beside each action. Firstly, click on**Edit** next to**You've chosen to see less of X** .
 
 ![Reversing you've chosen to see less of a person's post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/reversing-you-ve-chosen-to-see-less-of-a-person-s-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select**See X's profile anywhere on Facebook** and click on**Save** .
 
@@ -130,30 +137,21 @@ Here, you'll find three options.
 * Select**No longer limit what X can see** and click**Save** .
 
 ![No longer limit what a profile can see](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/no-longer-limit-what-a-profile-can-see.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Click the back button in the top left corner once again, and click**Edit** next to**Edit who can see past posts.**
 * Select**Keep all posts as they are** and click**Save** . Or**Edit all of my posts and posts that I'm tagged in** to edit posts on an individual basis.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
  The Take a Break feature on Facebook provides a useful middle ground between staying friends and completely cutting someone off. It allows you to create some healthy distance and boundaries without burning bridges. By taking advantage of the feature, you can curate a more positive social media experience while still maintaining connections that matter.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +160,22 @@ Here, you'll find three options.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-optimizing-youtube-content-for-higher-visibility/"><u>[New] Optimizing YouTube Content for Higher Visibility</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-time-saving-tactics-for-saving-google-voice-speeches-for-2024/"><u>[New] Time-Saving Tactics for Saving Google Voice Speeches for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-tiktok-status-with-verified-providers/"><u>[Updated] Elevate Your TikTok Status with Verified Providers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-fresh-camera-lens-captured-analysis-with-backup-titles/"><u>2024 Approved Fresh Camera Lens Captured Analysis with Backup Titles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-innovative-ideas-to-boost-package-prelude-joy/"><u>2024 Approved Innovative Ideas to Boost Package Prelude Joy</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-privacy-and-fun-managing-teenage-fb-accounts/"><u>Balancing Privacy and Fun: Managing Teenage FB Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-the-power-of-linkedin-and-facebook-for-career-advancement/"><u>Harness the Power of LinkedIn & Facebook for Career Advancement</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-tecno-pop-8-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Tecno Pop 8 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-20-redux-a-strategic-makeover/"><u>Instagram 2.0 Redux: A Strategic Makeover?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-voice-assistant-gadgets-the-2024-market-roundup/"><u>Leading Voice Assistant Gadgets: The 2024 Market Roundup</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-media-identity/"><u>Tailoring Your Social Media Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-guide-to-creating-compelling-videos-on-facebook/"><u>The Beginner's Guide to Creating Compelling Videos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/web-woes-facebook-and-friends-unavailable-today/"><u>Web Woes: Facebook & Friends Unavailable Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+<li><a href="https://article-tips.techidaily.com/your-guide-to-selecting-a-superior-virtual-reality-headset-mobility-focused-or-connection-centric/"><u>Your Guide to Selecting a Superior Virtual Reality Headset Mobility-Focused or Connection-Centric?</u></a></li>
+</ul></div>
 

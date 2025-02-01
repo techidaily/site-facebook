@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Screen: A Year Without a New Oculus Quest"
-date: 2024-08-08T11:22:33.396Z
-updated: 2024-08-09T11:22:33.396Z
+date: 2025-01-25T01:06:23.697Z
+updated: 2025-01-31T22:54:22.426Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
  Despite the Oculus Quest 2 only releasing at the back end of 2020, gamers seem to still be expecting an Oculus 3 or Pro in 2021\. Well, don't hold your breath, because Facebook has put paid to any rumors of a new Oculus in the works.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## There Won't Be an Oculus Pro in 2021
 
  In a recent Twitter Spaces Q&A (transcribed by [Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
@@ -29,17 +30,9 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
  You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that [Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will There Ever Be an Oculus Quest 3?
 
  This is where things get interesting. Yes, Bosworth has denied that there is a Quest 3 or Quest Pro in development for a 2021 release. However, he also said:
@@ -53,27 +46,26 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
  We can expect the Oculus Quest 2 to be around for some time before we see any hint of an Oculus 3 or Pro model.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will You Be Investing in the Oculus Ecosystem?
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![person using oculus quest two in a virtual reality environment](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-oculus-quest-two-in-a-virtual-reality-environment.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You have to admit, it is a very exciting time for VR platforms, and Oculus is no exception (especially with the recent announcement that Resident Evil 4 will be coming to the platform as a first person VR exclusive title).
 
  If you're considering buying into the Oculus experience, then now is the time to do so. It is an easy-access platform, which is the perfect way for anyone to experience VR for the first time.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,6 +74,19 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-your-online-presence-a-step-by-step-guide-to-viral-youtube-shorts/"><u>[New] 2024 Approved Boosting Your Online Presence A Step-by-Step Guide to Viral YouTube Shorts</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-advanced-techniques-for-proximity-viewing-in-roblox/"><u>[New] In 2024, Advanced Techniques for Proximity Viewing in Roblox</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sculpting-speed-at-winter-olympics/"><u>[New] Sculpting Speed at Winter Olympics</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-selecting-the-best-the-top-5-fpv-goggles-list/"><u>[New] Selecting the Best The Top 5 FPV Goggles List</u></a></li>
+<li><a href="https://facebook.techidaily.com/guaranteeing-your-teens-digital-safety-on-facebook/"><u>Guaranteeing Your Teen's Digital Safety on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-leave-a-facebook-group/"><u>How to Leave a Facebook Group</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-body-movement-report-2023/"><u>In 2024, Complete Body Movement Report 2023</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-audio-plays-a-vital-role-in-every-video-shot-by-beginners-and-professionals-thus-if-you-are-a-mac-user-get-to-know-how-to-remove-background-noise-in-fin/"><u>New Audio Plays a Vital Role in Every Video Shot by Beginners and Professionals. Thus, if You Are a Mac User, Get to Know How to Remove Background Noise in Final Cut Pro X in This Article for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/signals-of-struggle-what-awaits-on-facebook/"><u>Signals of Struggle: What Awaits on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-really-useful-podcast-review-of-the-year-2022/"><u>The Really Useful Podcast Review of the Year 2022</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-your-guide-to-the-top-6-fee-free-digital-soundscape-editors-on-the-web/"><u>Updated In 2024, Your Guide to the Top 6 Fee-Free Digital Soundscape Editors on the Web</u></a></li>
+</ul></div>
 

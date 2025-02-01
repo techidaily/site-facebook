@@ -1,7 +1,7 @@
 ---
 title: Navigate Friend's Coordinates via FB Chat
-date: 2025-01-16T16:16:37.970Z
-updated: 2025-01-18T16:18:45.217Z
+date: 2025-01-28T09:28:40.075Z
+updated: 2025-02-01T07:24:26.471Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Share Your Live Location in Facebook Messenger
 
  To share your live location via Facebook Messenger, follow these steps:
@@ -38,23 +42,15 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
 
 ![Contact Open in Messenger With Whom Location Is Going to Be Shared](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/1-Contact-Open-in-Messenger-WIth-Whom-Location-Is-Going-to-Be-Shared.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Location Sharing Direction Icon In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/2-Location-Sharing-Direction-Icon-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Permitting Facebook to Access Location in Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/3-Permitting-Facebook-to-Access-Location-in-Facebook-Messenger.jpg)
 
 ![Live Location Shared In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/4-Live-Location-Shared-In-Facebook-Messenger.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -76,21 +72,25 @@ Follow these simple instructions to send a pinned location:
 
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Share Live Location or Pin It Through Facebook Messenger
 
@@ -113,24 +113,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-soundstage-excellence-critical-interface-tips-for-podcasters/"><u>[New] In 2024, Soundstage Excellence Critical Interface Tips for Podcasters</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-gamers-roadmap-navigating-a-successful-youtube-channel/"><u>[New] The Gamers' Roadmap Navigating a Successful YouTube Channel</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-expert-advice-for-saving-and-archiving-periscope-footage/"><u>[Updated] In 2024, Expert Advice for Saving and Archiving Periscope Footage</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streaming-to-profit-youtube-policy-changes/"><u>[Updated] Streaming to Profit YouTube Policy Changes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-guide-finalcut-pro-for-youtube-editing/"><u>[Updated] Ultimate Guide FinalCut Pro for YouTube Editing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/effective-strategies-for-fixing-driver-problems-with-yl-software-guidance/"><u>Effective Strategies for Fixing Driver Problems with YL Software Guidance</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effective-techniques-for-repairing-the-lg-printers-usb-driver-issues-across-multiple-windows-versions/"><u>Effective Techniques for Repairing the LG Printer's USB Driver Issues Across Multiple Windows Versions</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhance-your-data-collection-through-cookiebot-integration/"><u>Enhance Your Data Collection Through Cookiebot Integration</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-user-numbers-take-a-hit-from-tiktoks-rise/"><u>Facebook’s User Numbers Take a Hit From TikTok’s Rise</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-11-proplus-bootloader-easily-by-drfone-android/"><u>How to Unlock Realme 11 Pro+ Bootloader Easily</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/influence-or-hoax-assessing-hashtag-power-on-fb/"><u>Influence or Hoax: Assessing Hashtag Power on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/limiting-virtual-connections-a-strategy-for-productivity-enhancement/"><u>Limiting Virtual Connections: A Strategy for Productivity Enhancement</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-word-picture-multitude-of-styles-facebooks-ai/"><u>One-Word Picture, Multitude of Styles - Facebook's AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-shorthand-success-a-list-of-30-key-online-acronyms/"><u>Social Shorthand Success: A List of 30 Key Online Acronyms</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-unplugging-of-facebook-whatsapp-insta/"><u>The Great Unplugging of Facebook, WhatsApp, Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/transformative-trade-tactics-discovering-the-best-social-media/"><u>Transformative Trade Tactics: Discovering the Best Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitter-twins-spotting-imposter-accounts/"><u>Twitter Twins: Spotting Imposter Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-unseen-contacts-in-messaging-apps/"><u>Understanding Unseen Contacts in Messaging Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/onthly-income-on-youtubes-revenue-model-in-2024/"><u>[New] Monthly Income on YouTube's Revenue Model, In 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-pinnacle-av-artisans-an-exclusive-list-for-you/"><u>[Updated] In 2024, Pinnacle AV Artisans An Exclusive List for You</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-end-video-refresher-resolution-renaissance/"><u>2024 Approved Top-End Video Refresher Resolution Renaissance</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-wave-of-feed-personalization/"><u>Facebook's New Wave of Feed Personalization</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-accelerates-text-interaction-new-tools-transforming-user-experience-in-messenger-and-instagram-apps/"><u>FB Accelerates Text Interaction: New Tools Transforming User Experience in Messenger and Instagram Apps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-sony-xperia-5-v-by-drfone-android/"><u>How to Bypass FRP from Sony Xperia 5 V?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-innovative-approaches-to-tiktok-lives-from-desktop-devices/"><u>In 2024, Innovative Approaches to TikTok Lives From Desktop Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streamlined-video-tools-for-twitter-sharing/"><u>In 2024, Streamlined Video Tools for Twitter Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-facebooks-impending-name-evolution/"><u>Insights Into Facebook’s Impending Name Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/leak-exposed-decoding-the-underlying-patterns-of-facebook-data/"><u>Leak Exposed: Decoding the Underlying Patterns of Facebook Data</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/maximize-productivity-innovative-windows-10-tips/"><u>Maximize Productivity Innovative Windows 10 Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-data-protection-exploring-new-features-in-facebooks-privacy-hub/"><u>Tailored Data Protection: Exploring New Features in Facebook's Privacy Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-creating-engrossing-digital-biographies/"><u>The Essentials of Creating Engrossing Digital Biographies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-picks-for-the-modern-buyer-advanced-360cams-for-2024/"><u>Top Picks for the Modern Buyer Advanced 360Cams for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-users-excluded-from-your-fb-circle/"><u>Tracking Down Users Excluded From Your FB Circle</u></a></li>
 </ul></div>
 

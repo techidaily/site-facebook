@@ -1,7 +1,7 @@
 ---
 title: Tech Leaders to Address Scam Ad Proliferation More Effectively
-date: 2025-01-15T16:14:39.028Z
-updated: 2025-01-18T16:04:00.605Z
+date: 2025-01-27T17:50:42.602Z
+updated: 2025-02-01T00:54:07.511Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,19 +79,19 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-hasty-methods-for-mixed-up-youtube-playback-sequence/"><u>[Updated] Hasty Methods for Mixed-Up YouTube Playback Sequence</u></a></li>
-<li><a href="https://win-bits.techidaily.com/1728505491815-5/"><u>如何使用5大步骤创建系统备份，确保操作系统安全</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-personal-brand-through-engagement/"><u>Elevating Personal Brand Through Engagement</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor X50i? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-social-snapshot-an-all-encompassing-2023-vlog-collection/"><u>In 2024, Social Snapshot An All-Encompassing 2023 Vlog Collection</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-top-iphones-video-editors-face-off-cameo-vs-filmorago/"><u>In 2024, Top iPhones' Video Editors Face-Off Cameo Vs. FilmoraGo</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-2024-approved-the-best-english-voice-generator-to-convert-text-into-desired-accent/"><u>New 2024 Approved The Best English Voice Generator To Convert Text Into Desired Accent</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95713824-9781785354953-pagan-portals-animal-magic/"><u>Pagan Portals - Animal Magic | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/pro-and-con-analysis-using-facebook-as-a-hub-for-events/"><u>Pro and Con Analysis: Using Facebook as a Hub for Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/promoting-knowledge-in-social-media-facebooks-next-step/"><u>Promoting Knowledge in Social Media: Facebook's Next Step</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthening-bonds-learn-more-from-friendly-chatting-games/"><u>Strengthening Bonds: Learn More From Friendly Chatting Games</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/subtlety-savvy-sound-settings-for-garageband/"><u>Subtlety Savvy Sound Settings for Garageband</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-free-transformation-why-you-should-abandon-facebooks-online-world/"><u>Tech-Free Transformation: Why You Should Abandon Facebook's Online World</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-digital-identity-an-in-depth-study-of-your-fb-interactions/"><u>Unmasking Digital Identity: An In-Depth Study of Your FB Interactions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-identity-change-on-google-meet-via-pc-and-phone-for-2024/"><u>[New] Mastering Identity Change on Google Meet via PC & Phone for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-enhance-your-iphones-photography-top-rated-film-and-shot-accessories/"><u>[Updated] Enhance Your iPhone's Photography Top-Rated Film & Shot Accessories</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-taking-command-of-zoom-breakout-sessions/"><u>[Updated] Taking Command of Zoom Breakout Sessions</u></a></li>
+<li><a href="https://win-great.techidaily.com/1-expert-aomei-data-restoration-solutions-your-trusted-source-for-secure-file-retrieval/"><u>1. Expert AOMEI Data Restoration Solutions - Your Trusted Source for Secure File Retrieval</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assassins-vikings-and-empire-domination-the-ultimate-review-of-assassins-creed-valhalla/"><u>Assassins, Vikings, and Empire Domination: The Ultimate Review of Assassin's Creed: Valhalla</u></a></li>
+<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-infinix-zero-5g-2023-turbo-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Infinix Zero 5G 2023 Turbo to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-home-smart-hub/"><u>Maximizing Facebook's Home Smart Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-an-invalidated-facebook-login-attempt/"><u>Recovering an Invalidated Facebook Login Attempt</u></a></li>
+<li><a href="https://games-able.techidaily.com/resolving-issues-with-microsoft-controllers-on-pcs/"><u>Resolving Issues with Microsoft Controllers on PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-simplified-instagram-to-whatsapp-2fa-codes/"><u>Secure Login Simplified: Instagram to WhatsApp 2FA Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-sound-experience-spotify-on-facebook-tips/"><u>Streamline Your Sound Experience: Spotify on Facebook Tips</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-honor-magic-5-lite-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Honor Magic 5 Lite Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-suggested-for-you-content-on-facebook-and-why-cant-you-disable-it/"><u>What Is “Suggested for You” Content on Facebook, and Why Can’t You Disable It?</u></a></li>
 </ul></div>
 

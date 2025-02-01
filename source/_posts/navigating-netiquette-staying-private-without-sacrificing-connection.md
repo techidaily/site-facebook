@@ -1,7 +1,7 @@
 ---
 title: "Navigating Netiquette: Staying Private without Sacrificing Connection"
-date: 2025-01-12T16:07:39.505Z
-updated: 2025-01-18T16:16:11.267Z
+date: 2025-01-30T21:43:33.935Z
+updated: 2025-01-31T20:08:08.870Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -47,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Personally-Identifying Information
@@ -57,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -94,15 +94,15 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
  The key point is that you simply don't (and can't) know all the facts. If someone is sick or in trouble, they should seek professional help. This also applies to advice on exercise, weight loss, diet, finance, relationships, and other sensitive topics. You're not going to get the whole picture from a social post.
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Scammy Giveaways and Contests
 
@@ -115,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Privileged Inside Information
@@ -124,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -131,10 +135,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  On the internet, once something has been published, it's pretty much impossible to remove it completely. Even if you set your posts to "friends only," there's no way to know for sure who's seen your posts and photos, saved them, or shared them with someone else. Someone could always send a screenshot to another person who can't "officially" see the post, for instance.
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
 
@@ -157,15 +157,22 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-journey-to-high-definition-mastering-sdr-to-hdr-conversion/"><u>[New] Journey to High Definition Mastering SDR to HDR Conversion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-macos-sierra-switching-back-to-os-x-el-capitan/"><u>[Updated] 2024 Approved MacOS Sierra Switching Back To OS X El Capitan</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-unseen-ui-techniques-for-newcomers/"><u>2024 Approved Ultimate Unseen UI Techniques for Newcomers</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2209040-9780007348534-an-angel-held-my-hand/"><u>An Angel Held My Hand | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/employers-guide-to-online-job-listings-facebook/"><u>Employer's Guide to Online Job Listings: Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovating-leadership-sheryls-time-at-facebook-inc/"><u>Innovating Leadership: Sheryl’s Time at Facebook Inc</u></a></li>
-<li><a href="https://facebook.techidaily.com/silencing-sovereign-trumps-legal-action-against-g-f-t/"><u>Silencing Sovereign? Trump's Legal Action Against G-F-T</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>Swirling Shadows Adding Realistic Motion to Photoshop Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-to-reactivate-halted-fb-notification-system/"><u>Techniques to Reactivate Halted FB Notification System</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/transforme-sua-backup-com-o-upgrade-gratis-do-aomei-backupper-estandarte-versao-profissional/"><u>Transforme Sua Backup Com O Upgrade Grátis Do AOMEI Backupper - Estandarte Versão Profissional!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-maximize-convenience-with-these-advanced-whatsapp-features/"><u>[New] In 2024, Maximize Convenience with These Advanced WhatsApp Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-gear-up-for-glory-your-top-5-pick-of-racing-titles/"><u>[Updated] 2024 Approved Gear Up for Glory Your Top 5 Pick of Racing Titles</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-picart-hack-keep-identities-unseen/"><u>2024 Approved PicArt Hack Keep Identities Unseen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/avoiding-camera-induced-image-disruption/"><u>Avoiding Camera-Induced Image Disruption</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-board-delays-decision-on-trumps-suspension/"><u>Facebook's Oversight Board Delays Decision on Trump's Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-links-for-facebook-profiles-pages-and-groups/"><u>How to Find Links for Facebook Profiles, Pages, and Groups</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrusion-warning-keep-an-eye-out-for-facebook-anomalies/"><u>Intrusion Warning: Keep an Eye Out for Facebook Anomalies</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-the-unchallenged-online-kingpin/"><u>Meta: The Unchallenged Online Kingpin</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-sharing-strategies-for-online-clubs/"><u>Secret Sharing Strategies for Online Clubs</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-d3dx939dll-errors-a-comprehensive-guide/"><u>Solving d3dx9_39.dll Errors: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-alert-stay-safe-9-tips-for-secure-social-commerce/"><u>Stay Alert, Stay Safe: 9 Tips for Secure Social Commerce</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/swift-channels-growth-optimizing-viewership-with-collaborative-videos-for-2024/"><u>Swift Channels Growth Optimizing Viewership with Collaborative Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iques-for-emptying-youtubes-keep-queue/"><u>Techniques for Emptying YouTube's Keep Queue</u></a></li>
+<li><a href="https://facebook.techidaily.com/testing-ground-for-digital-art-meta-drops-on-insta-and-fb/"><u>Testing Ground for Digital Art: Meta Drops on Insta & FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tv-and-gadgets-android-screensharing-explained/"><u>TV & Gadgets: Android Screensharing Explained</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/zero-cost-strategies-for-engaging-youtube-intros-for-2024/"><u>Zero-Cost Strategies for Engaging YouTube Intros for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2025-01-19T19:25:41.123Z
-updated: 2025-01-24T23:28:20.101Z
+date: 2025-01-31T06:04:34.964Z
+updated: 2025-01-31T19:48:34.901Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,20 +61,15 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-distinctive-video-stream-names-tips-for-filmora-users-for-2024/"><u>[New] Crafting Distinctive Video Stream Names Tips for Filmora Users for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-capture-and-share-your-digital-world-effortlessly-for-2024/"><u>[Updated] Capture and Share Your Digital World Effortlessly for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-mastering-the-art-of-fb-instream-ad-configurations-a-step-by-step-approach/"><u>[Updated] In 2024, Mastering the Art of FB Instream Ad Configurations A Step-by-Step Approach</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ideal-slide-show-tools-for-iphone-series-10-13-upgrades/"><u>2024 Approved Ideal Slide Show Tools For iPhone Series 10-13 Upgrades</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-news-feed-curation-by-fb/"><u>Behind-the-Scenes of News Feed Curation by FB</u></a></li>
-<li><a href="https://article-posts.techidaily.com/echoai-creatives-harmonizing-image-edits-for-2024/"><u>EchoAI Creatives Harmonizing Image Edits for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/effectively-tapping-into-facebook-on-this-day/"><u>Effectively Tapping Into Facebook On This Day</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-picture-to-persona-integrating-an-avatar-into-your-fb-cover/"><u>From Picture to Persona: Integrating an Avatar Into Your FB Cover</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacking-occurrences-on-digital-platforms/"><u>Hacking Occurrences on Digital Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-strategic-posts-private-establishing-a-customized-fb-visibility-list/"><u>Keep Strategic Posts Private: Establishing a Customized FB Visibility List</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-free-video-editing-solutions-for-32-bit-windows-our-top-picks-for-2024/"><u>New Free Video Editing Solutions for 32-Bit Windows Our Top Picks for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcome-grayed-extended-volume-options-in-windows/"><u>Overcome Grayed Extended Volume Options in Windows</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/phantom-replay-masterclass-for-2024/"><u>Phantom Replay Masterclass for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tapping-into-resources-from-facebooks-help-center/"><u>Tapping Into Resources From Facebook's Help Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/wind-sun-and-social-media-fbs-energy-makeover/"><u>Wind, Sun, and Social Media: FB's Energy Makeover</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-djd-snaps-adding-tracks-to-enhance-videos/"><u>[New] 2024 Approved DJ'd Snaps Adding Tracks to Enhance Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-auditory-options-for-iphones/"><u>[Updated] Premier Auditory Options for iPhones</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/come-recuperare-informazioni-da-un-ssd-che-rifiuta-lavvio-passaggi-chiave-per-il-successo/"><u>Come Recuperare Informazioni Da Un SSD Che Rifiuta L'avvio: Passaggi Chiave per Il Successo</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-fbs-prying-eyes-with-off-facebook-settings/"><u>Defeating Fb's Prying Eyes with Off-Facebook Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/disassembling-your-online-congregation-with-ease/"><u>Disassembling Your Online Congregation with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreetly-dialing-up-likes-on-social-platforms/"><u>Discreetly Dialing Up Likes on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-newsfeed-filtering-say-no-to-fb-reels/"><u>Efficient Newsfeed Filtering - Say No to FB Reels</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Lava Blaze Pro 5G?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-transcending-huge-video-sizes-iphone-mac-connection-for-2024/"><u>Mastering the Art of Transcending Huge Video Sizes IPhone-Mac Connection for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-distinct-roles-of-siri-and-chatgpt-in-ai-assistance/"><u>The Distinct Roles of Siri and ChatGPT in AI Assistance</u></a></li>
 </ul></div>
 

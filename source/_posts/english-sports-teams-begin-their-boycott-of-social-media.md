@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2025-01-23T23:22:51.618Z
-updated: 2025-01-24T18:12:16.747Z
+date: 2025-01-29T03:33:14.748Z
+updated: 2025-02-01T03:51:03.850Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## England Sports' Social Media Blackout Has Begun
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -81,18 +81,21 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-perfection-an-essential-guide-to-hdr-imaging/"><u>2024 Approved Crafting Perfection An Essential Guide to HDR Imaging</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/boost-your-mac-with-a-macos-sierra-installation/"><u>Boost Your Mac with a macOS Sierra Installation</u></a></li>
-<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-innovates-with-subscription-links-apple-comparison-explained/"><u>Facebook Innovates With Subscription Links: Apple Comparison Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-down-or-up-quick-ways-to-confirm/"><u>FB Down or Up: Quick Ways to Confirm</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
-<li><a href="https://fox-where.techidaily.com/resolving-non-functional-sound-cards-a-guide-yl-computing/"><u>Resolving Non-Functional Sound Cards: A Guide - YL Computing</u></a></li>
-<li><a href="https://facebook.techidaily.com/root-access-granted-what-does-this-mean-for-oculus-go-users/"><u>Root Access Granted: What Does This Mean for Oculus Go Users?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/step-by-step-guide-to-record-online-video-calls-for-2024/"><u>Step-by-Step Guide to Record Online Video Calls for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultimate-destinations-for-pursuing-freelance-work/"><u>Ultimate Destinations for Pursuing Freelance Work</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-unbiased-review-is-videopad-video-editor-the-right-fit-for-you/"><u>Updated In 2024, Unbiased Review Is Videopad Video Editor the Right Fit for You ?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/win-over-venetians-master-20plus-italian-language-essentials/"><u>Win Over Venetians: Master 20+ Italian Language Essentials</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/winxvideo-ai-3/"><u>WinxVideo AIを使った高度な動画加工技術集: カット・結合・トリミング・音声分離 - 第3章解説</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-essential-tips-for-hosting-a-successful-facebook-live-event/"><u>[New] 2024 Approved Essential Tips for Hosting a Successful Facebook Live Event</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-facebook-copyright-what-if-my-videos-removed-immediately-due-to-copyright-in-2024/"><u>[New] Facebook Copyright | What If My Videos Removed Immediately Due to Copyright, In 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-enhancing-your-snapchat-experience-mobile-recordings/"><u>[Updated] In 2024, Enhancing Your Snapchat Experience Mobile Recordings</u></a></li>
+<li><a href="https://win-popular.techidaily.com/1728472092796-usbdvd/"><u>「コンピュータ修復用USBまたはDVDを簡単に作る方法 -ステップバイステップ」</u></a></li>
+<li><a href="https://win-help.techidaily.com/boucle-infinie-de-suppression-automatique-des-telechargements-sous-windows-10-trouver-les-4-correctifs-essentiels/"><u>Boucle Infinie De Suppression Automatique Des Téléchargements Sous Windows 10 : Trouver Les 4 Correctifs Essentiels</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-page-participation-with-fb-polls/"><u>Enhancing Page Participation with FB Polls</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-chatgpt-navigating-the-realm-of-ai-generated-content/"><u>Exploring ChatGPT: Navigating the Realm of AI-Generated Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-banned-from-whatsapp-user-data-in-germany/"><u>Facebook Banned From WhatsApp User Data in Germany</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/facebooks-rivalry-with-social-media-comparing-tiktok-and-snap-for-2024/"><u>Facebook's Rivalry with Social Media Comparing TikTok & Snap for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-facebook-to-meta-saga/"><u>Revolutionizing Relationships: Facebook to Meta Saga</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-(securityfbcom)-is-it-real-fb-safety-email/"><u>Scrutinizing @<security@fb.com>: Is It Real FB Safety Email?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-phenomenon-elevate-your-virtual-forum/"><u>The Popularity Phenomenon: Elevate Your Virtual Forum</u></a></li>
+<li><a href="https://media-tips.techidaily.com/transforming-mpeg-files-into-mp4-5-must-try-simple-methods/"><u>Transforming MPEG Files Into MP4: 5 Must-Try Simple Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrading-your-social-media-security-measurement-on-facebook/"><u>Upgrading Your Social Media Security Measurement on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-choose-a-facebook-company-profile-examining-8-essential-reasons/"><u>Why Choose a Facebook Company Profile - Examining 8 Essential Reasons</u></a></li>
 </ul></div>
 

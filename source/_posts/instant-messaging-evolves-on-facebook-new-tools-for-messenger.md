@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2025-01-18T20:32:05.632Z
-updated: 2025-01-24T16:55:54.977Z
+date: 2025-01-25T06:41:45.702Z
+updated: 2025-02-01T05:37:11.524Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,15 +83,17 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-speed-dial-for-vimeo-video-loading-for-2024/"><u>[New] Speed Dial for Vimeo Video Loading for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-understanding-and-executing-photo-gender-modification-online-for-2024/"><u>[New] Understanding and Executing Photo Gender Modification Online for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-maximize-your-tiktok-pro-editors-playbook/"><u>[Updated] In 2024, Maximize Your TikTok Pro Editor's Playbook</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-streamlining-audio-interpretation-a-comprehensive-guide-for-google-for-2024/"><u>[Updated] Streamlining Audio Interpretation A Comprehensive Guide for Google for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-yourself-from-facebook-shared-pics/"><u>Eliminate Yourself From Facebook Shared Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-new-front-in-the-war-against-misinformation/"><u>FB's New Front in the War Against Misinformation</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-facebook-today-memories/"><u>Harnessing the Power of Facebook Today Memories</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-explore-creativity-top-8-innovative-editing-tools-for-iphone-android/"><u>In 2024, Explore Creativity Top 8 Innovative Editing Tools for iPhone, Android</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-srt-a-thorough-exploration-of-its-essence/"><u>In 2024, Mastering SRT A Thorough Exploration of Its Essence</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-social-media-renewing-your-facebook-password/"><u>Secure Your Social Media - Renewing Your Facebook Password</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elevate-your-intellect-with-top-11-general-knowledge-quiz-networks/"><u>[New] 2024 Approved Elevate Your Intellect with Top 11 General Knowledge Quiz Networks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-blending-images-into-a-masterpiece-of-mosaics/"><u>[Updated] Blending Images Into a Masterpiece of Mosaics</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/discover-the-leading-8-web-resources-for-free-3d-text-psdfiles/"><u>Discover the Leading 8 Web Resources for Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-pixels-to-perfection-the-advantages-of-srgb-over-rgb/"><u>From Pixels to Perfection The Advantages of Srgb over Rgb</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-future-web-decoding-facebooks-metaverse-concepts/"><u>Inside The Future Web: Decoding Facebook’s Metaverse Concepts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-insights-how-to-make-your-videos-a-hit-for-2024/"><u>Instagram Insights How to Make Your Videos a Hit for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-audio-fade-ins-and-outs-made-easy-2-fcp-techniques/"><u>New Audio Fade Ins and Outs Made Easy 2 FCP Techniques</u></a></li>
+<li><a href="https://discover-community.techidaily.com/optimierung-der-videobearbeitung-von-sd-zu-hd4k-auf-pcs-und-mac-computern/"><u>Optimierung Der Videobearbeitung Von SD Zu HD/4K Auf PCs Und Mac-Computern</u></a></li>
+<li><a href="https://facebook.techidaily.com/predictive-more-cryptos-more-social-ads/"><u>Predictive: More Cryptos, More Social Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/remain-vigilant-hidden-messages-on-facebook-app/"><u>Remain Vigilant: Hidden Messages on Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-image-ownership-on-web-platforms/"><u>Understanding Image Ownership on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-exposed-the-shadow-behind-fb-written-code/"><u>Who Exposed the Shadow Behind FB’ Written Code</u></a></li>
 </ul></div>
 

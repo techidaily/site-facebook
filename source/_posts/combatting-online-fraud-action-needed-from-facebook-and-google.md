@@ -1,7 +1,7 @@
 ---
 title: "Combatting Online Fraud: Action Needed From Facebook & Google"
-date: 2024-08-15T18:41:33.426Z
-updated: 2024-08-16T18:41:33.426Z
+date: 2025-01-26T01:50:18.380Z
+updated: 2025-01-31T18:14:01.611Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/5c5beff306decd9e31c3216a57ffb320c5012e171
 ## Combatting Online Fraud: Action Needed From Facebook & Google
 
  According to a report by consumer watchdog Which?, big tech companies such as Facebook and Google aren't doing enough to prevent scam advertisements on their platforms.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
@@ -34,8 +38,9 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -54,14 +59,11 @@ Facebook further stated:
 
  While Facebook and Google claim to be doing their part to battle bad ads, the report by Which? suggests that the opposite is true.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,6 +72,20 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-adobe-cloud-essential-storage-insights-and-top-alternatives/"><u>[Updated] Mastering Adobe Cloud Essential Storage Insights & Top Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/advanced-messaging-typography-sculpting-your-text/"><u>Advanced Messaging Typography: Sculpting Your Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-unseen-by-facebooks-monitoring-tech/"><u>Be Unseen by Facebook's Monitoring Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/celebrating-all-inclusive-groups-on-facebook-statuses/"><u>Celebrating All: Inclusive Groups on Facebook Statuses</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-custom-face-for-facebook-profile/"><u>Crafting a Custom Face for Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-content-with-care-social-media-ethics-revealed/"><u>Crafting Content with Care: Social Media Ethics Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-goodwill-during-your-group-disassociation-journey/"><u>Cultivating Goodwill During Your Group Disassociation Journey</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/generate-10-official-travel-ready-passport-images-no-money-down-for-2024/"><u>Generate 10 Official Travel-Ready Passport Images, No Money Down for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-capture-the-crash-top-surf-cameras-of-2023/"><u>In 2024, Capture the Crash Top Surf Cameras of 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-child-prodigy-ryan-kaji-dominates-youtube-revenue-race/"><u>In 2024, Child Prodigy Ryan Kaji Dominates YouTube Revenue Race</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-vivo-t2-pro-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Vivo T2 Pro 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/solving-display-card-glitches/"><u>Solving Display Card Glitches</u></a></li>
+</ul></div>
 

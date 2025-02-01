@@ -1,7 +1,7 @@
 ---
 title: Chats on FB & IG Remain Unencrypted - Wait Until 2022
-date: 2024-08-08T11:22:45.704Z
-updated: 2024-08-09T11:22:45.704Z
+date: 2025-01-24T16:49:03.168Z
+updated: 2025-01-31T17:17:00.945Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
  Facebook has now promised that it will roll out end-to-end encryption for Messenger and Instagram Direct "in 2022 at the earliest."
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Been Slow in Adding Default Chat Encryption
 
  Facebook first promised to add end-to-end encryption to Instagram Direct and Messenger in 2019\. However, it has been taking its own sweet time for this, and it is even testing various Messenger features that won't work with end-to-end encryption.
@@ -37,14 +38,16 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
  Related: [What Is End-to-End Encryption?](https://www.makeuseof.com/what-is-end-to-end-encryption/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Messaging Apps With End-to-End Encryption Have Soared in Popularity
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/messenger-on-a-phone.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Messaging services with end-to-end encryption have surged in popularity in recent times. WhatsApp, iMessage, and Signal are among the major messaging platforms with end-to-end encryption support.
 
@@ -56,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
 
  If you value your privacy or want a more secure platform for your conversations, check out [the best Facebook Messenger alternatives for private chats](https://www.makeuseof.com/tag/facebook-messenger-alternatives/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,6 +72,20 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-10-proven-steps-to-skyrocket-traffic-via-facebook-videos-for-2024/"><u>[New] 10 Proven Steps to Skyrocket Traffic via Facebook Videos for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-music-management-made-simple-in-inshot/"><u>[New] Music Management Made Simple in InShot</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/outube-stardom-made-easy-essential-editing-strategies-explored/"><u>[New] YouTube Stardom Made Easy Essential Editing Strategies Explored</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-undisclosed-browsing-of-fb-stories/"><u>[Updated] 2024 Approved Undisclosed Browsing of FB Stories</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-effectively-convert-iphone-photos-jpeg-png-into-pdfs/"><u>2024 Approved How to Effectively Convert iPhone Photos (JPEG, PNG) Into PDFs</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/downloadable-free-pdf-converter-effortlessly-convert-images-into-pdfs/"><u>Downloadable Free PDF Converter: Effortlessly Convert Images Into PDFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-wearable-experiment-could-include-two-detachable-cameras/"><u>FB's Wearable Experiment: Could Include Two Detachable Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-economics-growth-and-gold-in-social-space/"><u>Network Economics: Growth & Gold in Social Space</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-windows-code-19-error-a-step-by-step-guide/"><u>Resolving Windows Code 19 Error: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-made-simple-add-new-people-on-facebook-messenger/"><u>Socializing Made Simple: Add New People on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bitter-truth-unraveling-five-key-failures-in-facebooks-user-journey/"><u>The Bitter Truth: Unraveling Five Key Failures in Facebook’s User Journey</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/webm-to-mp4-online-free-converter-mpg-video-editing/"><u>WebM to MP4 Online Free Converter - MPG Video Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-the-social-media-titans-temporarily-tremble/"><u>Why Did the Social Media Titans Temporarily Tremble?</u></a></li>
+</ul></div>
 

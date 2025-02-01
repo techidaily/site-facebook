@@ -1,7 +1,7 @@
 ---
 title: "Social Stealth: Evasion of Friendlists"
-date: 2025-01-13T16:30:47.007Z
-updated: 2025-01-18T16:18:00.397Z
+date: 2025-01-30T09:08:18.154Z
+updated: 2025-01-31T21:09:22.925Z
 tags:
   - facebook
 categories:
@@ -24,15 +24,15 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Who Can See Your Facebook Friends?
 
  At the moment, there are two likely scenarios: either everyone can see your friends list or only your friends can see your friends list. No matter who can or can't see your full friends list, though, anyone can see if they have mutual friends with you and also see who they are. This is possible even if they're not your friends. In the example below, you can see we have 23 mutual friends in the grey text under the profile name.
 
 ![facebook mutual followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-mutual-followers.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
@@ -54,23 +54,23 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hiding Your Friends List on Desktop
 
@@ -82,20 +82,20 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3\. From the left sidebar, click**Privacy** .
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
@@ -125,18 +125,24 @@ The steps are similar on Facebook's desktop website.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-taking-command-with-custom-character-sounds-in-free-fire-no-expense-involved/"><u>[Updated] In 2024, Taking Command with Custom Character Sounds in Free Fire - No Expense Involved</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-a-step-by-step-premiere-pro-for-softening-soundtracks/"><u>2024 Approved A Step-by-Step Premiere Pro for Softening Soundtracks</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/etapes-pour-recuperer-avec-succes-le-systeme-image-dun-autre-pc-une-approche-sure-et-fiable/"><u>Étapes Pour Récupérer Avec Succès Le Système Image D'un Autre PC : Une Approche Sûre Et Fiable</u></a></li>
-<li><a href="https://facebook.techidaily.com/explore-the-elegance-sony-ps-lx310bt-turntable/"><u>Explore the Elegance: Sony PS-LX310BT Turntable</u></a></li>
-<li><a href="https://some-tips.techidaily.com/icloud-update-brings-major-upgrades-to-windows-users-latest-developments-from-apple-unveiled-gadgetpundit/"><u>ICloud Update Brings Major Upgrades to Windows Users - Latest Developments From Apple Unveiled | GadgetPundit</u></a></li>
-<li><a href="https://facebook.techidaily.com/imagery-as-language-catalyst-for-facebooks-artific-cookie/"><u>Imagery as Language Catalyst for Facebook’s Artific Cookie</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-personal-social-data-retrieval/"><u>Mastering the Art of Personal Social Data Retrieval</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebooks-revised-guide-to-page-titles-and-their-significance/"><u>Navigating Facebook's Revised Guide to Page Titles & Their Significance</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/navigating-youtube-and-instagram-sharing-video-content-without-limits-for-2024/"><u>Navigating YouTube and Instagram Sharing Video Content without Limits for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamping-kids-online-details-with-parental-oversight-on-messenger/"><u>Revamping Kid’s Online Details with Parental Oversight on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-early-relationships-a-fb-adventure/"><u>Revisiting Early Relationships: A FB Adventure</u></a></li>
-<li><a href="https://video-capture.techidaily.com/skype-to-mp3-capturing-calls-at-no-charge/"><u>Skype to MP3 Capturing Calls at No Charge</u></a></li>
-<li><a href="https://games-able.techidaily.com/value-in-gaming-top-economical-motherboards-listed/"><u>Value in Gaming: Top Economical Motherboards Listed</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-scratch-to-screen-video-editing-with-youtube-and-others/"><u>[New] 2024 Approved From Scratch to Screen Video Editing with YouTube & Others</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-essential-steps-for-embedding-social-network-live-videos/"><u>[Updated] In 2024, Essential Steps for Embedding Social Network Live Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-grasping-the-metaverse-a-look-at-6-in-depth-illustrations/"><u>2024 Approved Grasping the Metaverse A Look at 6 In-Depth Illustrations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-aid-platform-what-it-provides-you-with/"><u>Facebook's Aid Platform: What It Provides You With</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-and-set-up-the-latest-hp-universal-printer-drivers-with-ease-windows/"><u>Get & Set Up the Latest HP Universal Printer Drivers with Ease (Windows)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-subdued-visuals-for-facebook/"><u>How to Activate Subdued Visuals for Facebook</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-14-pro-max-to-the-previous-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 14 Pro Max to the Previous iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-top-11-kid-friendly-waterproof-vlog-cameras-for-newbies/"><u>In 2024, Top 11 Kid-Friendly Waterproof Vlog Cameras for Newbies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-to-origins-the-step-by-step-image-trackback/"><u>Instagram to Origins The Step-by-Step Image Trackback</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-preference-shifts-against-tracking/"><u>IPhone User Preference Shifts Against Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-key-meta-tools-to-succeed-in-your-business/"><u>Leverage Key META Tools to Succeed in Your Business</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/melody-matters-10-must-hear-sources-for-podcast-beginnings-for-2024/"><u>Melody Matters 10 Must-Hear Sources for Podcast Beginnings for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-add-font-effect/"><u>New In 2024, How to Add Font Effect</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-comprehensive-analysis-of-the-cambridge-auditory-experience-cxu-device-for-2024/"><u>New The Comprehensive Analysis of the Cambridge Auditory Experience CXU Device for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/retracing-steps-my-initial-leap-into-social-media/"><u>Retracing Steps: My Initial Leap Into Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-facebooks-new-approach-to-business-marketing/"><u>Social Media Evolution: Facebook's New Approach to Business Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unveiling-of-metaverse-risks-and-realities/"><u>The Unveiling of Metaverse - Risks and Realities</u></a></li>
+<li><a href="https://facebook.techidaily.com/update-alert-simplify-how-you-engage-on-facebook-feed/"><u>Update Alert! Simplify How You Engage on Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-moving-away-from-biometrics-in-fb/"><u>Why Is Meta Moving Away From Biometrics in FB?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Crafting Effective Bilingual/Multilingual Social Media Messages
-date: 2024-08-15T18:41:04.273Z
-updated: 2024-08-16T18:41:04.273Z
+date: 2025-01-27T07:18:50.077Z
+updated: 2025-02-01T03:18:52.077Z
 tags:
   - facebook
 categories:
@@ -36,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/de7c313fd07e2524cf8d55d82a6066b369ed71aad
 **Download:** Facebook for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU50502/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en%5FIN&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Web](https://www.facebook.com/) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make Multilingual Posts on Facebook Using the Post Editor
 
  To get started posting to Facebook in multiple languages, you'll need to enable multilingual posts in your account settings first. Here's how to do this:
@@ -48,14 +49,14 @@ thumbnail: https://thmb.techidaily.com/de7c313fd07e2524cf8d55d82a6066b369ed71aad
 ![Language and region settings in Facebook for multilingual posts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-14-13-41-17-1.jpg)
 4. Tap**Save Changes.** That's all there is to it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You may choose to write a Facebook post in a different language using its post composer. However, this option can be seen in the mobile version only. You can choose the language of your choice from the options available. Tap the**alphabet icon** to start translating or directly posting in the said language.
 
  You could rely on Facebook's built-in translation feature to communicate with those people, but as with any [online translation service](https://www.makeuseof.com/tag/forget-google-translate-3-ways-get-accurate-quick-translation/) , you're not going to get great results all of the time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## How to Create a Facebook Post From Your Page in Multiple Languages
 
  If you have a Facebook Page, you can post to your audience in multiple languages using the platform's built-in publishing tools. However, you'll need to be an admin of the Page you're posting to.
@@ -70,10 +71,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 4. You'll need to select**Ads Manager** . Your page's Business Manager panel will show up.  
 ![Facebook Ads manager tool](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-14-10-36-39-1.png)
 5. Hit the**three-line** menu panel on the left menu to bring up another sub-menu. Scroll down to**Page posts** under the**Engage customers** section.  
-![Posting to Facebook in multiple languages in FB Pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-14-10-29-50.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Posting to Facebook in multiple languages in FB Pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-14-10-29-50.jpg)
 6. You'll get a history of the posts published so far. Make sure you have selected the proper page, or you can change the option from the drop-down menu.
 7. Tap Create post. You'll see the options to**Write in another language** .
 
@@ -82,8 +85,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Now, when someone sees your post, they'll be given the option to select a dropdown menu and view the post in any language that you've made available.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Post on Facebook Using the Multilingual Keyboard on Your Phone
 
  This is always a useful workaround. You can always use your phone's built-in multilingual keyboard or GBoard or other [Android keyboard apps](https://www.makeuseof.com/android-apps-keyboard-themes-change-fonts/) to type out your message in different languages. We used this on a Samsung Galaxy device. Here's how to access the feature:
@@ -94,17 +98,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 4. The translated text will appear in the post editor. Complete your post, add your images, and click**Save** .
 
 ![Posting to Facebook using Samsung Keyboard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/samsung-keyboard3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Samsung keyboard textbox](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/samsung-keyboard34.jpg)
 
-![Multilingual keyboard functionality Samsung](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/samsung-keyboard346.jpg)
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Multilingual keyboard functionality Samsung](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/samsung-keyboard346.jpg)
 
 Close
 
@@ -114,14 +115,11 @@ Close
 
  Of course, you'll have to make sure that you're using good translations—don't rely on an online translation service (even Google Translate). Make sure a native or near-native speaker is helping you out with your translations to make sure you benefit from this feature or find a freelance translator to do it for you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,6 +128,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-essential-list-for-game-sharing-and-streaming/"><u>[Updated] In 2024, Essential List for Game Sharing and Streaming</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-8-must-play-virtual-reality-titles-for-now/"><u>[Updated] Top 8 Must-Play Virtual Reality Titles for Now</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-master-the-art-of-time-extension-creating-stunningly-slow-mo-video-online/"><u>2024 Approved Master the Art of Time Extension Creating Stunningly Slow-Mo Video Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-infinix-smart-8-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Infinix Smart 8 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquire-verified-mark-via-purchased-status/"><u>Acquire Verified Mark via Purchased Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-iphone-users-unite/"><u>App Tracking Decline: IPhone Users Unite</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-innovation-essential-unseen-tech-news/"><u>Behind the Scenes of Innovation: Essential, Unseen Tech News</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-hype-towards-clarity-new-perspective-on-the-social-media-scandal/"><u>Beyond Hype, Towards Clarity: New Perspective on The Social Media Scandal</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-brands-with-a-precise-facebook-recommendation-system/"><u>Boosting Brands with a Precise Facebook Recommendation System</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-up-with-spotify-on-facebook-procedure-here/"><u>Breaking Up with Spotify on Facebook: Procedure Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-future-of-online-communities-on-fb/"><u>Charting the Future of Online Communities on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/darkening-skies-predicted-bad-press-for-fb/"><u>Darkening Skies: Predicted Bad Press for FB</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realme-c51withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realme C51with/without a PC</u></a></li>
+<li><a href="https://discover-help.techidaily.com/kopieren-von-festplatteninhalten-auf-windows-7-ohne-neukonfiguration-einfache-anleitung-mit-4-schritten/"><u>Kopieren Von Festplatteninhalten Auf Windows 7 Ohne Neukonfiguration: Einfache Anleitung Mit 4 Schritten</u></a></li>
+<li><a href="https://article-helps.techidaily.com/pixels-musical-ensemble-unveiled-online/"><u>Pixel's Musical Ensemble Unveiled Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/seamless-sound-synthesis-inshots-audio-guide-for-2024/"><u>Seamless Sound Synthesis InShot's Audio Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/spiritual-soundtracks-finding-and-tuning-for-ringtones-for-2024/"><u>Spiritual Soundtracks Finding & Tuning for Ringtones for 2024</u></a></li>
+</ul></div>
 

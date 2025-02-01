@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2025-01-22T18:45:12.749Z
-updated: 2025-01-24T17:01:43.093Z
+date: 2025-01-28T07:34:58.857Z
+updated: 2025-02-01T06:38:24.123Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## US Adults Use Social Media Despite Believing It Divides People
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -67,13 +67,13 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -99,18 +99,22 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-effortless-fb-movie-access-top-8-tools-of-23/"><u>2024 Approved Effortless FB Movie Access Top #8 Tools of '23</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-syncopating-sounds-how-to-edit-music-effectively-in-canva/"><u>2024 Approved Syncopating Sounds How to Edit Music Effectively in Canva</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-samsung-galaxy-z-fold-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-archived-social-networks-on-fb/"><u>Accessing Archived Social Networks on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-affirmed-sign-up-for-us-meta-verified-account/"><u>Authenticity Affirmed: Sign up for US Meta Verified Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-list-of-approved-content/"><u>Decoding Facebook's List of Approved Content</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fast-track-communication-with-snapchat-tips-on-accessing-customer-service-quickly/"><u>Fast Track Communication with Snapchat: Tips on Accessing Customer Service Quickly</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-smoothly-quitting-facebook-groups/"><u>Guide to Smoothly Quitting Facebook Groups</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-nokia-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Nokia ?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-elite-circle-of-digital-titling-top-5-revealed/"><u>In 2024, The Elite Circle of Digital Titling Top 5 Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-behind-the-mask-the-psychology-behind-vague-blogging/"><u>What's Behind the Mask? The Psychology Behind Vague Blogging</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/zeroing-in-on-the-cause-of-hp-printers-white-sheets/"><u>Zeroing In on the Cause of HP Printer’s White Sheets</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-revolutionary-videography-toolset-for-vimeo-users/"><u>[New] 2024 Approved Revolutionary Videography Toolset for Vimeo Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-enhancing-virtual-communication-applying-zoom-filter-features-for-2024/"><u>[New] Enhancing Virtual Communication Applying Zoom Filter Features for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-premium-twelve-full-frame-video-tech-lists/"><u>[New] Premium Twelve Full Frame Video Tech Lists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-playlists-reconfigured-step-by-step-instructions-for-2024/"><u>[New] YouTube Playlists Reconfigured Step-by-Step Instructions for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-quick-fix-for-disabled-photo-viewer-back-on-win-11/"><u>2024 Approved Quick Fix for Disabled Photo Viewer Back on Win 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/crafting-professional-edits-including-sounds-in-premiere-projects/"><u>Crafting Professional Edits Including Sounds in Premiere Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-on-trump-account-shelved-by-facebook-watchdog/"><u>Decision on Trump Account Shelved by Facebook Watchdog</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-most-frequent-facebook-hurdles-and-fixes/"><u>Decoding the Most Frequent Facebook Hurdles & Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-doves-cooing-for-unity-7-online-methods-to-bind/"><u>Digital Doves Cooing for Unity: 7 Online Methods to Bind</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-on-instanfts/"><u>Digital Identity on InstaNFTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-dominant-digital-outlets-for-corporates/"><u>Discovering the Dominant Digital Outlets for Corporates</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-updated-language-within-facebook-pages-labels/"><u>Discovering Updated Language Within Facebook Pages Labels</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-verified-status-through-metas-investment/"><u>Earn Verified Status Through Metas Investment</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-management-assign-a-page-administrator/"><u>Elevate Management: Assign a Page Administrator</u></a></li>
+<li><a href="https://win-blog.techidaily.com/free-online-flv-to-mjpeg-convertor-with-movavi-your-gateway-to-smooth-video-graphics/"><u>Free Online FLV to MJPEG Convertor with Movavi: Your Gateway to Smooth Video Graphics!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-add-motion-blur-to-face-with-picsart/"><u>In 2024, How to Add Motion Blur to Face with Picsart</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723012841855-perform-the-multiplication-on-both-sides/"><u>Perform the Multiplication on Both Sides</u></a></li>
 </ul></div>
 

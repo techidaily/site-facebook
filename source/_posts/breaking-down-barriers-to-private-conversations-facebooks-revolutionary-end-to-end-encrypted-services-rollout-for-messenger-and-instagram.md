@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram"
-date: 2024-08-08T11:22:40.039Z
-updated: 2024-08-09T11:22:40.039Z
+date: 2025-01-24T16:35:16.032Z
+updated: 2025-01-31T21:14:17.113Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
  Facebook is expanding end-to-end encryption to Messenger voice and video calls, as well as direct messages (DMs) on Instagram. Turning on the feature will let users communicate securely, whether over calls or text messages.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Brings End-to-End Encryption to More Services
 
  A post on [Messenger News](https://messengernews.fb.com/2021/08/13/messenger-updates-end-to-end-encrypted-chats-with-new-features/) revealed that Facebook is amping up security on both Messenger and Instagram.[Facebook started offering encrypted messaging on Messenger in 2016](https://www.makeuseof.com/tag/enjoy-secret-facebook-messenger-conversations/) , and now that same protection is offered for voice and video calls.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -47,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,6 +62,21 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-critical-review-best-bargain-video-call-apps-ios-and-android/"><u>[Updated] 2024 Approved Critical Review Best Bargain Video Call Apps - iOS & Android</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-humorhub-easy-login-easy-signup/"><u>[Updated] HumorHub Easy Login, Easy Signup</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-monitor-matters-how-to-opt-for-the-best-visual-experience-with-4k-displays/"><u>[Updated] In 2024, Monitor Matters How to Opt for the Best Visual Experience with 4K Displays</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-jumpstart-your-day-top-10-motivational-feel-good-flicks/"><u>[Updated] Jumpstart Your Day Top 10 Motivational Feel-Good Flicks</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-latest-dell-tb16-thunderbolt-hub-firmware-update-for-enhanced-performance/"><u>Download Latest Dell TB16 Thunderbolt Hub Firmware Update for Enhanced Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-gaming-experience-with-social-integration-on-xbox/"><u>Enhancing Your Gaming Experience with Social Integration on Xbox</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/explore-the-top-7-online-fax-options-that-wont-cost-you-a-penny/"><u>Explore the Top 7 Online Fax Options That Won't Cost You a Penny</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-oneplus-12-by-drfone-android/"><u>In 2024, How to Bypass FRP from OnePlus 12?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-warrior-spirits-rising-comparable-game-suggestions/"><u>In 2024, Warrior Spirits Rising Comparable Game Suggestions</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-illusion-fake-account-detection/"><u>Online Illusion: Fake Account Detection</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151110559-revolutionize-content-sharing-facebook-storages-adaptable-across-services/"><u>Revolutionize Content Sharing: Facebook Storages Adaptable Across Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-explorers-compendium-for-fb-activity-tracking-and-reporting/"><u>The Complete Explorer's Compendium for FB Activity Tracking and Reporting</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-sues-indian-government-against-new-it-rules-that-threaten-users-privacy/"><u>WhatsApp Sues Indian Government Against New IT Rules That Threaten Users' Privacy</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/zdnet-presents-your-perfect-match-a-comprehensive-guide-to-the-best-free-note-taking-for-mac-users/"><u>ZDNet Presents: Your Perfect Match - A Comprehensive Guide to the Best Free Note-Taking for Mac Users</u></a></li>
+</ul></div>
 

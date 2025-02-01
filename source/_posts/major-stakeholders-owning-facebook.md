@@ -1,7 +1,7 @@
 ---
 title: Major Stakeholders Owning Facebook
-date: 2025-01-22T19:53:04.363Z
-updated: 2025-01-24T22:49:32.642Z
+date: 2025-01-27T05:01:13.826Z
+updated: 2025-02-01T06:27:25.264Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From The Facebook To Meta
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Who Owns Facebook Now?
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Did Facebook Rebrand to Meta?
@@ -73,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -97,22 +97,20 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-insiders-guide-to-excellent-ppt-video-creation/"><u>[New] 2024 Approved The Insider's Guide to Excellent PPT Video Creation</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-your-video-game-top-10-keyword-strategy-resources-for-2024/"><u>[New] Elevate Your Video Game Top 10 Keyword Strategy Resources for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/battlefield-2042-fixes-implemented-fps-and-stuttering-problems-addressed-for-pc-gamers/"><u>Battlefield 2042 - Fixes Implemented: FPS and Stuttering Problems Addressed for PC Gamers</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
-<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discovering-the-benefits-of-the-propella-7s-40-the-best-blend-of-lightness-and-affordability/"><u>Discovering the Benefits of the Propella 7S 4.0 - The Best Blend of Lightness & Affordability</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-illusion-to-immersion-deciphering-metaverse-and-vr-differences/"><u>From Illusion to Immersion: Deciphering Metaverse and VR Differences</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-a78-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo A78 to New Android? | Dr.fone</u></a></li>
-<li><a href="https://app-tips.techidaily.com/lipsync-the-groundbreaking-new-challenger-in-the-ms-teams-and-zoom-arena-revolutionizing-communication-for-the-hearing-impaired/"><u>LipSync: The Groundbreaking New Challenger in the MS Teams & Zoom Arena - Revolutionizing Communication for the Hearing Impaired</u></a></li>
-<li><a href="https://facebook.techidaily.com/rights-and-rules-in-image-hosting-services/"><u>Rights and Rules in Image Hosting Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-nightmares-8-disturbing-realities-explored/"><u>Social Network Nightmares: 8 Disturbing Realities Explored</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/superior-sites-for-selecting-storied-soundtracks/"><u>Superior Sites for Selecting Storied Soundtracks</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-comeback-story-understanding-why-openstack-and-kata-containers-are-winning-over-tech-enthusiasts-again-zdnet/"><u>The Comeback Story: Understanding Why OpenStack and Kata Containers Are Winning Over Tech Enthusiasts Again | ZDNET</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-realme-11-proplus-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Realme 11 Pro+ Android SIM Unlock APK</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-hide-your-like-counts-on-facebook-and-instagram/"><u>You Can Now Hide Your Like Counts on Facebook and Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-charting-new-territory-after-magixs-acid-pro-for-2024/"><u>[New] Charting New Territory After Magix's ACID Pro for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ree-youtube-intro-steps-and-template-guide-for-2024/"><u>[New] Free YouTube Intro Steps and Template Guide for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-strategies-for-capturing-webinars-effectively/"><u>2024 Approved Top Strategies for Capturing Webinars Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-social-media-giant-persists-unraveling-the-facebook-phenomenon/"><u>A Social Media Giant Persists - Unraveling the 'Facebook Phenomenon'</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-reasoning-why-multiple-profiles-are-accepted-under-a-single-account-id/"><u>Analyzing the Reasoning: Why Multiple Profiles Are Accepted Under a Single Account ID</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/avoiding-objections-to-autoplay-videos-on-fb-for-2024/"><u>Avoiding Objections to Autoplay Videos on FB for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-facebook-messenger-dependency/"><u>Breaking Free From Facebook Messenger Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-unique-representation-photo-for-fb/"><u>Crafting a Unique Representation Photo for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-digital-display-a-guide-to-photo-collage-making/"><u>Crafting Digital Display: A Guide to Photo Collage Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-facebooks-reels-consumption/"><u>Cutting Down on Facebook's Reels Consumption</u></a></li>
+<li><a href="https://techtrends.techidaily.com/demystifying-ai-at-meta-insights-and-perspectives/"><u>Demystifying AI at Meta: Insights and Perspectives</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153995431-enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixes-and-solutions-how-to-repair-unresponsive-counter-strike-go-microphone/"><u>Fixes & Solutions: How to Repair Unresponsive Counter-Strike Go Microphone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-12-pro-max-drfone-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oute-to-revenue-crafting-content-around-consumer-commodities/"><u>The Route to Revenue Crafting Content Around Consumer Commodities</u></a></li>
 </ul></div>
 

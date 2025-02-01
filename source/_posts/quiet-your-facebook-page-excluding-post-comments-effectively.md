@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2025-01-23T23:01:28.892Z
-updated: 2025-01-24T21:57:34.577Z
+date: 2025-01-25T09:39:33.164Z
+updated: 2025-02-01T09:47:06.722Z
 tags:
   - facebook
 categories:
@@ -34,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Manage Comments on the Facebook App
 
  Here's how to manage comments on your posts using the Facebook mobile app:
@@ -45,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
@@ -57,6 +53,10 @@ Close
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Manage Comments Using Facebook Web
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
@@ -65,6 +65,10 @@ Close
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
@@ -84,13 +88,13 @@ Close
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -102,10 +106,6 @@ Close
  Using the web version, the steps are the same. Just make sure to look out for the three dots in the top-right corner of the post.
 
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
 
@@ -128,22 +128,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-iphone-camera-savvy-image-optimization-secrets-for-2024/"><u>[New] IPhone Camera Savvy Image Optimization Secrets for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-revolutionize-your-iphone-shots-free-swift-red-eye-elimination-techniques/"><u>[Updated] Revolutionize Your iPhone Shots Free, Swift Red-Eye Elimination Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-humor-hierarchy-ranking-10-memes-in-order-of-delight/"><u>2024 Approved Humor Hierarchy Ranking #10 Memes in Order of Delight</u></a></li>
-<li><a href="https://facebook.techidaily.com/controversial-titans-in-technology/"><u>Controversial Titans in Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detective-work-finding-profile-connections-in-fb/"><u>Digital Detective Work: Finding Profile Connections in FB</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/diy-guide-effortless-methods-for-burning-music-videos-onto-a-dvd/"><u>DIY Guide: Effortless Methods for Burning Music Videos Onto a DVD</u></a></li>
-<li><a href="https://common-error.techidaily.com/error-code-224003-no-more-unblock-your-videos-for-seamless-viewing/"><u>Error Code 224003 No More! Unblock Your Videos for Seamless Viewing</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-online-groups-the-dichotomy-of-personal-and-professional/"><u>Exploring Online Groups: The Dichotomy of Personal and Professional</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-faces-pressure-to-part-with-giphy-possibly/"><u>Facebook Faces Pressure to Part With Giphy Possibly</u></a></li>
-<li><a href="https://facebook.techidaily.com/fostering-tech-growth-facebook-and-rust-team-up-for-code-language-expansion/"><u>Fostering Tech Growth: Facebook & Rust Team Up for Code Language Expansion</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-successfully-update-your-windows-10-pc-with-the-idt-hd-audio-codec-driver/"><u>How to Successfully Update Your Windows 10 PC with the IDT HD Audio Codec Driver</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-realme-10t-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Realme 10T 5G Phone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-polity-playground-quintessential-politic-simulators-review/"><u>In 2024, Polity Playground Quintessential Politic Simulators Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-non-facebook-direct-message-apps/"><u>Mastering Non-Facebook Direct Message Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/start-a-secure-digital-footprint-meta-usa/"><u>Start a Secure Digital Footprint – Meta USA</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722986517068-the-perfect-mix-of-elegance-and-technology-in-the-withings-move-reviewed-here/"><u>The Perfect Mix of Elegance and Technology in the Withings Move Reviewed Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-and-resolving-common-facebook-confusions/"><u>Unraveling & Resolving Common FaceBook Confusions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-list-of-superior-real-time-streaming-networks/"><u>[New] In 2024, The Ultimate List of Superior Real-Time Streaming Networks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-outstanding-10-screenshot-and-recording-titles-for-gamers-for-2024/"><u>[Updated] Outstanding 10 Screenshot and Recording Titles for Gamers for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-journey-to-freedom-with-free-movie-player-os-x-and-windows/"><u>2024 Approved Journey to Freedom with FREE MOVIE PLAYER (OS X & Windows)</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-chatgpt/"><u>2024 Approved What Is ChatGPT?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/digital-dominance-top-youtube-watch-count-chronicles/"><u>Digital Dominance Top YouTube Watch Count Chronicles</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-into-a-new-identity-meta-announces-its-emergence-from-facebook/"><u>Evolving Into a New Identity - Meta Announces Its Emergence From Facebook</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-iphone-6-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from iPhone 6</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-changes-not-accepted-unchanged-whatsapp-features/"><u>Privacy Changes Not Accepted: Unchanged WhatsApp Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-your-fb-experience-addremove-links/"><u>Revolutionize Your FB Experience: Add/Remove Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-major-tech-blunders-of-last-year-a-roundup/"><u>The Major Tech Blunders of Last Year: A Roundup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-tiktok-eclipsing-facebooks-growth-and-profits/"><u>The Rise of TikTok Eclipsing Facebook's Growth and Profits</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-os-x-mavericks-video-editing-tutorial-mastering-the-basics/"><u>Updated OS X Mavericks Video Editing Tutorial Mastering the Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-blueprint/"><u>What Is Facebook Blueprint?</u></a></li>
 </ul></div>
 

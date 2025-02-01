@@ -1,7 +1,7 @@
 ---
 title: Reinforcing Online Safety Measures with Effective 2FA for Email Services
-date: 2025-01-19T19:56:32.880Z
-updated: 2025-01-24T22:30:45.995Z
+date: 2025-01-29T21:25:53.236Z
+updated: 2025-01-31T17:01:35.223Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does 2FA Work?
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  Check out our article on the[pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your[Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
@@ -51,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Authenticator App
 
@@ -72,13 +76,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Microsoft Outlook
 
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
@@ -107,16 +111,12 @@ Locking your Facebook account is as important as your email address.
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Twitter
 
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
@@ -141,7 +141,7 @@ Locking your Facebook account is as important as your email address.
  Head to your **Amazon Account Settings > Login & Security > Two-Step Verification (2SV) Settings.** Under Two-Step Verification (2SV) Settings, select**Edit > Get Started** . You can use SMS or an authenticator app. If you choose the latter, scan the QR code using the Authenticator app and follow the Amazon instructions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Switching On Two-Factor Authentication Is Worth It
@@ -163,21 +163,24 @@ Locking your Facebook account is as important as your email address.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-lullaby-vids-a-critical-look-at-bedtime-narrative-videos/"><u>[New] 2024 Approved Lullaby Vids A Critical Look at Bedtime Narrative Videos</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-a-detailed-walkthrough-embedding-online-video-into-ms-presentations/"><u>[New] In 2024, A Detailed Walkthrough Embedding Online Video Into MS Presentations</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-elevate-visuals-with-these-top-pixlr-tips/"><u>[New] In 2024, Elevate Visuals with These Top Pixlr Tips</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-getting-started-with-your-youtube-channel-essentials/"><u>[Updated] 2024 Approved Getting Started with Your YouTube Channel – Essentials</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721267608849-stellar-repair/"><u>今こそ、Stellar Repair フォトアプリを手に入れて!</u></a></li>
-<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-secure-social-media-options/"><u>Exploring Secure Social Media Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/friends-across-platforms-embodying-your-social-media-self-on-whatsapp/"><u>Friends Across Platforms: Embodying Your Social Media Self on WhatsApp</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-sketch-serious-snickers/"><u>In 2024, Sketch Serious Snickers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/insights-into-the-reliability-and-functionality-of-viber-out-apps/"><u>Insights Into the Reliability and Functionality of Viber Out Apps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/navigating-through-the-excellent-5-virtual-title-experts/"><u>Navigating Through the Excellent 5 Virtual Title Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-photodna-a-tool-against-piracy/"><u>Understanding PhotoDNA: A Tool Against Piracy</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150126533-unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-ultimate-digital-hangout-vote-here/"><u>Your Ultimate Digital Hangout - Vote Here</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-from-social-media-to-high-definition-free-conversion-of-fb-videos-to-mp4/"><u>[New] From Social Media to High Definition Free Conversion of FB Videos to MP4</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-easy-paths-to-profitable-youtube-business-channels-top-10-list-in-2024/"><u>[Updated] Easy Paths to Profitable YouTube Business Channels, Top 10 List, In 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-the-virtual-age-present-and-future-challenges/"><u>[Updated] Unveiling the Virtual Age Present and Future Challenges</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2020-guide-ultimate-comparison-of-ebook-drm-stripping-tools/"><u>2020 Guide: Ultimate Comparison of Ebook DRM Stripping Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/begin-your-editing-journey-adopting-movie-maker-for-w11/"><u>Begin Your Editing Journey Adopting Movie Maker for W11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/crafting-perfect-images-with-ios-size-modification-skills/"><u>Crafting Perfect Images with iOS Size Modification Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-visibility-and-impact-8-key-differences-between-pages-and-profiles/"><u>Enhancing Visibility and Impact: 8 Key Differences Between Pages & Profiles</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-logitech-mouse-driver-downloads-compatible-with-windows-os/"><u>Free Logitech Mouse Driver Downloads Compatible with Windows OS</u></a></li>
+<li><a href="https://os-tips.techidaily.com/guide-transferring-your-android-messages-to-pc-or-mac-effortlessly/"><u>Guide: Transferring Your Android Messages to PC or Mac Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-musicians-can-monetize-songs-with-facebooks-innovative-approach/"><u>How Musicians Can Monetize Songs with Facebook's Innovative Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-peer-communication-chamber-mastery-for-rookies/"><u>Pioneering Peer Communication: Chamber Mastery for Rookies</u></a></li>
+<li><a href="https://facebook.techidaily.com/preparation-tips-what-to-think-about-before-sweeping-accounts/"><u>Preparation Tips: What to Think About Before Sweeping Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/protocols-for-identifying-and-reporting-underage-users-on-fb/"><u>Protocols for Identifying and Reporting Underage Users on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-timing-guidelines/"><u>Social Media Timing Guidelines</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-editors-edge-boost-your-tiktok-impact-for-2024/"><u>The Editor's Edge Boost Your TikTok Impact for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-safety-net-what-you-mustnt-disclose-digitally/"><u>The Social Safety Net: What You Mustn't Disclose Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-to-delete-your-online-posts/"><u>Unveiling Secrets to Delete Your Online Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-user-information-effortlessly-on-facebook/"><u>Updating User Information Effortlessly on Facebook</u></a></li>
 </ul></div>
 

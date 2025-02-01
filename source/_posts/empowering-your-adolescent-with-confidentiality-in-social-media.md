@@ -1,7 +1,7 @@
 ---
 title: Empowering Your Adolescent with Confidentiality in Social Media
-date: 2025-01-14T16:16:26.468Z
-updated: 2025-01-18T16:00:15.568Z
+date: 2025-01-26T06:15:42.076Z
+updated: 2025-02-01T02:13:44.337Z
 tags:
   - facebook
 categories:
@@ -24,21 +24,21 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -55,10 +55,6 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -87,7 +83,7 @@ Close
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Check Ad Settings
@@ -103,6 +99,10 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -125,19 +125,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/updated-clearer-view-deeper-insight-zoom-techniques-in-videoleap/"><u>[Updated] Clearer View, Deeper Insight Zoom Techniques in Videoleap</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-leading-9-movie-extractors-for-fb-for-2024/"><u>[Updated] Leading 9 Movie Extractors for FB for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-heard-words-spoken-ideas-no-price/"><u>2024 Approved Heard Words, Spoken Ideas – No Price</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/all-about-the-next-gen-playstation-portal-availability-dates-cost-estimates-and-hardware-details/"><u>All About the Next-Gen PlayStation Portal: Availability Dates, Cost Estimates & Hardware Details</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/discover-5-proven-ways-to-improve-windows-11-search-success/"><u>Discover 5 Proven Ways to Improve Windows 11 Search Success</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/effortless-conversion-techniques-for-dall-e-3-webp-to-jpegpng-formats/"><u>Effortless Conversion Techniques for DALL-E 3 WebP to JPEG/PNG Formats</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-life-offline-end-your-facebook-addiction/"><u>Embrace Life Offline: End Your Facebook Addiction</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-friends-forever-growing-your-online-band/"><u>Facebook Friends Forever: Growing Your Online Band</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-spot-a-shadowy-facebook-profile-creator/"><u>How to Spot a Shadowy Facebook Profile Creator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/identifying-key-differences-between-amazons-echo-pop-and-echo-dot/"><u>Identifying Key Differences Between Amazon's Echo Pop and Echo Dot</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-misleading-online-experiences/"><u>Navigating the Maze of Misleading Online Experiences</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-digital-workspace-the-ultimate-ar-laptop-arrives-with-an-astounding-100-inch-display-say-goodbye-to-external-monitors/"><u>Revolutionize Your Digital Workspace - The Ultimate AR Laptop Arrives With an Astounding 100-Inch Display, Say Goodbye to External Monitors!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-7-best-content-scheduling-aids-for-frequent-updates/"><u>The 7 Best Content Scheduling Aids for Frequent Updates</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unleashing-the-power-of-time-lapse-photography-using-gopro/"><u>Unleashing the Power of Time-Lapse Photography Using GoPro</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-top-tools-for-capturing-call-of-duty-warzone/"><u>[New] 2024 Approved Top Tools for Capturing Call of Duty Warzone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-viewers-to-vips-ajays-strategy-for-sustainable-income-streams/"><u>[New] In 2024, From Viewers to VIPs Ajay's Strategy for Sustainable Income Streams</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-can-i-view-all-shared-videos-and-photos-on-messenger-in-2024/"><u>[Updated] Can I View All Shared Videos And Photos on Messenger, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/breathing-life-into-your-phone-the-complete-guide-to-android-audio-customization/"><u>Breathing Life Into Your Phone The Complete Guide to Android Audio Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-self-representation-rename-your-facebook-identity/"><u>Elevating Self-Representation: Rename Your Facebook Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-5m-investment-seeks-to-outshine-substack-amongst-authors/"><u>FB's $5M Investment Seeks to Outshine Substack Amongst Authors</u></a></li>
+<li><a href="https://games-able.techidaily.com/foremost-joypads-for-the-switch-reviews/"><u>Foremost Joypads for the Switch Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-and-focus-the-dual-benefits-of-fb-groups/"><u>Friendship & Focus: The Dual Benefits of FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-briskly-bounce-back-from-a-fb-pass-lock/"><u>How to Briskly Bounce Back From a FB Pass-Lock</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-quickly-address-a-disappearing-d3dxt939dll-file-comprehensive-solutions-and-guidelines/"><u>How to Quickly Address a Disappearing d3dxt9_39.dll File: Comprehensive Solutions and Guidelines</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-repair-boot-configuration-data-errors-causing-blue-screen-of-death-due-to-pfn-mismatches-on-windows-11/"><u>How to Repair Boot Configuration Data Errors Causing Blue Screen of Death Due to PFN Mismatches on Windows 11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-se-without-passcode-drfone-by-drfone-ios/"><u>How to Unlock iPhone SE Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-how-to-start-participating-in-google-webinars/"><u>In 2024, How To Start Participating in Google Webinars</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-bidens-anti-covid-social-media-movement-explained/"><u>Joe Biden's Anti-COVID Social Media Movement Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/recharge-methodically-incorporating-facebooks-daily-break-cues/"><u>Recharge Methodically: Incorporating Facebook's Daily Break Cues</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-faces-why-meta-kills-off-fbs-biometrics/"><u>Rethinking Faces: Why Meta Kills Off FB’s Biometrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-oversights-in-tech-news-you-need-to-know-about-now/"><u>The Biggest Oversights in Tech News You Need to Know About Now</u></a></li>
 </ul></div>
 

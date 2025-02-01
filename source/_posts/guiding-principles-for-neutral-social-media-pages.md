@@ -1,7 +1,7 @@
 ---
 title: Guiding Principles for Neutral Social Media Pages
-date: 2025-01-13T16:27:21.316Z
-updated: 2025-01-18T16:12:49.788Z
+date: 2025-01-26T01:48:22.771Z
+updated: 2025-02-01T01:31:21.866Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Remove Sensitive Information
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -75,18 +75,16 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-advanced-hdr-creation-in-photoshop-workflows/"><u>[Updated] 2024 Approved Advanced HDR Creation in Photoshop Workflows</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-photodna-thwart-digital-image-theft/"><u>How Does PhotoDNA Thwart Digital Image Theft?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-realme-narzo-n55-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Realme Narzo N55 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-resolve-hitman-n-connection-errors-for-a-smooth-gaming-experience/"><u>How to Resolve Hitman N Connection Errors for a Smooth Gaming Experience</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-90-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 90 by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-transformation-for-a-new-online-moniker/"><u>Step-by-Step Transformation for a New Online Moniker</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-to-clearly-define-social-media-images/"><u>Techniques to Clearly Define Social Media Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-end-of-the-line-for-trump-on-fb/"><u>The End of the Line for Trump on FB?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-group-policy-client-service-failed-the-logon-solved/"><u>The Group Policy Client Service Failed the Logon [SOLVED]</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-social-media-battlefield-tiktoks-top-10-twitters/"><u>The Social Media Battlefield TikTok's Top 10 Twitters</u></a></li>
-<li><a href="https://facebook.techidaily.com/verifying-users-on-the-digital-landscape/"><u>Verifying Users on the Digital Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/vpns-a-security-overhaul-chronicle/"><u>VPNs: A Security Overhaul Chronicle</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-quick-methods-saving-your-google-voice-dialogues/"><u>[New] In 2024, Quick Methods Saving Your Google Voice Dialogues</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-6-best-nft-services-for-creative-geniuses-for-2024/"><u>[New] The Ultimate Guide to 6 Best NFT Services for Creative Geniuses for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-premium-virtual-meetup-software-titles/"><u>[Updated] Premium Virtual Meetup Software Titles</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-streamlined-methods-for-saving-videos-on-desktops-tablets-and-phones-for-2024/"><u>[Updated] Streamlined Methods for Saving Videos on Desktops, Tablets & Phones for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-meta-a-revolution-in-social-media-branding/"><u>Facebook Unveils Meta: A Revolution in Social Media Branding</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-ray-ban-stories-details-and-price/"><u>Facebook's New Ray-Ban Stories - Details and Price?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/snapshot-salvage-by-stellar-the-new-era-begins/"><u>Snapshot Salvage by Stellar: The New Era Begins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anatomy-of-a-fake-facebook-profile/"><u>The Anatomy of a Fake Facebook Profile</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/which-is-better-the-galaxy-s10plus-or-the-new-galaxy-s20-expert-review/"><u>Which Is Better: The Galaxy S10+ or the New Galaxy S20? Expert Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnba-unleashed-on-two-social-titans-this-season/"><u>WNBA Unleashed on Two Social Titans This Season</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-voice-matters-how-will-facebook-revamp-its-news-experience/"><u>Your Voice Matters: How Will Facebook Revamp Its News Experience?</u></a></li>
 </ul></div>
 

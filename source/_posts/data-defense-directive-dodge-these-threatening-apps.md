@@ -1,7 +1,7 @@
 ---
 title: "Data Defense Directive: Dodge These Threatening Apps"
-date: 2024-08-15T18:40:51.038Z
-updated: 2024-08-16T18:40:51.038Z
+date: 2025-01-25T05:32:00.408Z
+updated: 2025-01-31T22:20:43.826Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/a4dc30780e032f6d710992cf5481b7eec2d5a6380
 
  When it comes to many popular apps, the product is indeed you, or rather your data: in other words, your privacy. Though not all apps are monetized via personal data collection and therefore invasive, it's certainly good to know which ones are the worst offenders. Here are some apps you should avoid if you're worried about your data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook (and Associated Apps)
 
 ![Facebook messenger, Facebook, and Instagram logos are seen on a yellow background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-messenger-facebook-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Since its launch in 2004, Facebook has faced intense criticism over how it treats user privacy, suffered multiple large breaches, and found itself embroiled in more controversies than arguably any other Silicon Valley giant.
 
@@ -35,15 +43,12 @@ thumbnail: https://thmb.techidaily.com/a4dc30780e032f6d710992cf5481b7eec2d5a6380
 
  To put it simply, if you care about privacy in any capacity, you should not be using Facebook and associated apps.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Weather Apps
 
 ![A graphic of a smartphone showing the weather is seen among clouds](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/weather-apps-privacy.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  There's an app for everything nowadays, but few have proven as useful and reliable as weather apps. It's cloudy outside and you're wondering whether to bring an umbrella with you? Just check your weather app and you'll know what to do. Seems simple and straightforward enough.
@@ -58,14 +63,12 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  So, what else does AccuWeather know about you? According to its [privacy statement](https://www.accuweather.com/en/privacy#:~:text=ACCUWEATHER%20SITES%2C%20AND%20THE%20PRODUCTS,under%2018%20years%20of%20age.) , as long as your location services are on, the app knows your exact GPS coordinates. However, the statement notes that even if you turn off location services, your phone "may automatically send or receive this other information as long as you have these other communications types enabled."
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## 3\. Dating Apps
 
 ![Tinder logo is seen on a green background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/dating-apps-privacy.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One [Stanford](https://web.stanford.edu/~mrosenfe/Rosenfeld%5Fet%5Fal%5FDisintermediating%5FFriends.pdf) study found that 39 percent of couples that got together in the United States in 2017 met online. It's safe to assume that number has only gone up since then, with [dating apps](https://www.makeuseof.com/tag/tired-of-tinder-seven-free-alternative-dating-apps/) such as Tinder, Hinge, eHarmony, and Bumble becoming more popular than ever.
@@ -83,8 +86,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  In conclusion, you may stick out like a sore thumb among your friends if you choose to steer clear of dating apps, but at least you'll have your privacy.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Protecting Your Privacy in the Digital Space
 
  Though it has granted us some anonymity, the internet has also made us the most surveilled population in history. As dystopian as that sounds, there are still steps the average person can take to protect their privacy online.
@@ -93,14 +97,11 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  In general, it is always a good idea to limit what you share with other people online, double-check any link or file before clicking it, use strong passwords, and enable privacy settings on any app or device you use.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,6 +110,22 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-elite-twitters-shortlist-of-top-tiktok-hits/"><u>[New] 2024 Approved The Elite Twitter's Shortlist of Top TikTok Hits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-sell-your-brand-through-innovative-youtuber-collaborations/"><u>[New] How To Sell Your Brand Through Innovative YouTuber Collaborations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-swap-genders-on-snapchat-facebook-or-instagram-photos/"><u>[Updated] How to Swap Genders on Snapchat, Facebook or Instagram Photos</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-making-magic-with-mac-techniques-for-exceptional-tiktok-videos/"><u>2024 Approved Making Magic with Mac Techniques for Exceptional TikTok Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-every-layer-of-your-facebook-experience/"><u>Accessing Every Layer of Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/addressing-inoperative-fb-postmessage-indicators/"><u>Addressing Inoperative FB Post/Message Indicators</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-connotations-of-single-word-via-photos/"><u>Capturing Connotations of Single Word via Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/claim-prestige-metas-verified-status-stamp/"><u>Claim Prestige: Meta’s Verified Status Stamp</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-understanding-and-evading-online-shadowbans/"><u>Comprehensively Understanding and Evading Online Shadowbans</u></a></li>
+<li><a href="https://facebook.techidaily.com/daily-retrospection-made-simple-with-facebooks-feature/"><u>Daily Retrospection Made Simple with Facebook's Feature</u></a></li>
+<li><a href="https://win11.techidaily.com/focus-on-sharpness-nine-tactics-to-clear-up-blurry-pc-screens/"><u>Focus on Sharpness: Nine Tactics to Clear Up Blurry PC Screens</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-zte-axon-40-lite-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For ZTE Axon 40 Lite</u></a></li>
+<li><a href="https://extra-support.techidaily.com/masterpieces-14-animated-textual-works-for-2024/"><u>Masterpieces 14 Animated Textual Works for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-the-last-epochs-pc-launch-challenges-a-step-by-step-guide-to-the-2024-patch/"><u>Overcoming The Last Epoch's PC Launch Challenges: A Step-by-Step Guide to the 2024 Patch</u></a></li>
+</ul></div>
 

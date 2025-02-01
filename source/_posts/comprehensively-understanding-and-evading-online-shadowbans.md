@@ -1,7 +1,7 @@
 ---
 title: Comprehensively Understanding and Evading Online Shadowbans
-date: 2024-08-15T18:39:04.200Z
-updated: 2024-08-16T18:39:04.200Z
+date: 2025-01-24T19:49:31.239Z
+updated: 2025-02-01T08:10:12.911Z
 tags:
   - facebook
 categories:
@@ -28,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
 ## What Is Shadowbanning?
 
 ![Self portrait of a man with shadows cast across his face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/creative-self-portraits-shadows.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Social media platforms can ban users in a few different ways. You can lose access to your account for a short period of time or indefinitely. They can also ban you from making a new account if the offense is serious enough for an IP ban, which is when the platform shuts you out based on your IP address.
@@ -44,18 +45,16 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
 
  However, the mystery is whether the practice actually really exists in a tangible form, or if people just cry "Shadowbanned!" when their content just doesn't get a lot of views.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Are People Really Getting Shadowbanned?
 
 ![Angry woman holding smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/angry-woman-smartphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  There have been numerous claims of shadowbanning across different social media platforms. With the politically charged environment making it harder than ever to distinguish genuine news from fake news, social media platforms have been accused of having a bias and using shadowbanning to silence the opinions they dislike.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Shadowbanning on X
 
  Some users have claimed that X (formerly Twitter) had shadowbanned them. The claims began in 2016, with accusations that Twitter was shadowbanning people that supported the Republican Party in the US.
@@ -68,9 +67,6 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
 
  Even after Twitter's switch to X, talk about shadowbanning was still prominent. X addressed shadowbanning, explaining that some posts will have their reach limited if they go against the platform's rules.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Shadowbanning on Instagram
 
  Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to [check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
@@ -80,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
  However, this did not convince everyone. If you follow some smaller accounts on Instagram with a few thousand followers, you might have seen them complain about low reach all of a sudden.
 
  It could have happened to you, too, where an Instagram story posted by you had fewer views than you expected. This might not necessarily be shadowbanning. It could be up to algorithmic decisions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Shadowbanning on Facebook
 
@@ -96,17 +96,15 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
 ### Shadowbanning on TikTok
 
 ![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  TikTok also doesn't explicitly shadowban, but its rules state that it may reduce visibility on content that violates its community guidelines. This includes content containing nudity, drugs, hate speech, or other prohibited content. Many TikTok creators feel like they have been shadowbanned at least temporarily.
 
  TikTok users notice they might have been shadowbanned when their TikToks rapidly lose engagement, like views and likes, from the For You Page. Posts may not even upload correctly or at all, and their fans have a hard time seeing their videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Avoid Getting Shadowbanned
 
  Every platform has a set of rules to follow, usually referred to as community guidelines. Most of the guidelines are common sense at this point. However, there is a small chance one could accidentally violate these guidelines without realizing it.
@@ -115,20 +113,21 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
 
  Social networks can also flag you for suspicious activity. That means you need to have your account details up to date, and your email verified. You also have to ensure that you aren't posting in a manner that makes you look like a spammer or bot. Using banned hashtags is also a bad idea if you want to avoid being shadowbanned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Shadowbanning Will Stay Controversial
 
  There is no real way to determine if social media networks are really trying to shut down opinions they don't like, or just trying to ensure that the content users are putting out is safe for everyone.
 
  Either way, the onus is on us as users to be careful and stick to the rules or risk the consequences. There will always be talk about whether shadowbanning is good, bad, or even necessary, but if you want to stay active on your favorite platforms, then it is best to just avoid the risk.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,6 +136,19 @@ thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>[Updated] 2024 Approved Craft Proficient Content for Short-Form Video Best Edits Reviewed</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-chuckle-cache-the-ultimate-free-meme-compendium/"><u>[Updated] Chuckle Cache The Ultimate Free Meme Compendium</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-innovating-for-impact-your-profile-video-guide/"><u>[Updated] In 2024, Innovating for Impact Your Profile Video Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-outshine-regular-chatbot-systems/"><u>Can MetaAI Outshine Regular Chatbot Systems?</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/creer-une-image-iso-a-partir-dun-support-de-type-c-en-telechargement-direct-guide-pour-windows/"><u>Créer Une Image ISO À Partir D'un Support De Type C en Téléchargement Direct : Guide Pour Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-virtual-societal-divisions-with-facebook/"><u>Exploring Virtual Societal Divisions with Facebook</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-tutorials-on-how-to-transfer-photos-from-apple-iphone-13-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Tutorials on How to Transfer Photos From Apple iPhone 13 to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-the-path-to-perfect-presence-on-zoom-platforms/"><u>In 2024, The Path to Perfect Presence on Zoom Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-success-top-4-metadata-and-business-insights/"><u>Navigating Success: Top 4 Metadata & Business Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-wisdom-teens-heeding-the-call-to-unplug-from-instagram/"><u>New Age Wisdom: Teens Heeding the Call to Unplug From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcome-the-obstructive-oddities-of-a-stopped-up-facebook-page/"><u>Overcome the Obstructive Oddities of a Stopped-Up Facebook Page</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/trasforma-i-tuoi-file-wav-in-mp3-senza-costi-usando-leditor-di-video-e-audio-online-di-movavi/"><u>Trasforma I Tuoi File WAV in MP3 Senza Costi Usando L'editor Di Video E Audio Online Di Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2025-01-19T21:26:44.176Z
-updated: 2025-01-24T20:00:50.556Z
+date: 2025-01-26T23:36:52.301Z
+updated: 2025-02-01T00:22:26.906Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Launches New Admin Tools to Moderate Groups
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -83,16 +83,21 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-epic-tales-of-filmmaking-8-distinct-categories/"><u>[Updated] 2024 Approved Epic Tales of Filmmaking 8 Distinct Categories</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-full-disclosure-on-the-t5-cameras-action-features/"><u>[Updated] 2024 Approved Full Disclosure on the T5 Camera's Action Features</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-premium-winpodcast-solutions-roundup/"><u>2024 Approved Premium WinPodcast Solutions Roundup</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-effective-cost-saving-methods-for-fb-post-timing-optimization/"><u>5 Effective, Cost-Saving Methods for FB Post Timing Optimization</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/dialogue-design-dexterity-constructing-custom-ai/"><u>Dialogue Design Dexterity: Constructing Custom AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-subtle-shifts-leading-to-user-decline-on-fb/"><u>Exploring the Subtle Shifts Leading to User Decline on FB</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-apple-iphone-13-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On Apple iPhone 13 in the Best Ways</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-control-removing-browsing-history-on-facebook/"><u>Privacy Control: Removing Browsing History on Facebook</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/securing-your-emails-with-two-effective-methods-on-windows-11/"><u>Securing Your Emails with Two Effective Methods on Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-your-account-the-friendly-facebook-fixerup/"><u>Unlock Your Account - The Friendly Facebook Fixerup</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-mystery-why-users-are-fading-away-on-fb/"><u>Unraveling the Mystery: Why Users Are Fading Away on FB</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-seamless-instagram-video-mp4-conversion-pro-strategies-unlocked/"><u>[New] 2024 Approved Seamless Instagram Video-MP4 Conversion - Pro Strategies Unlocked</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-enhance-your-watchlist-using-double-display-with-netflix/"><u>[New] In 2024, Enhance Your Watchlist Using Double Display with Netflix</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-live-video-logging-on-mac-free-for-2024/"><u>[New] Live Video Logging on Mac, Free for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-free-guide-to-transforming-your-iphone-x7-selfies/"><u>[New] The Ultimate FREE Guide to Transforming Your iPhone X/7 Selfies</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-next-gen-key-smartwatch-opens-your-mac/"><u>[Updated] In 2024, Next-Gen Key Smartwatch Opens Your Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-critical-benefits-of-using-a-professional-facebook-profile-for-brands/"><u>8 Critical Benefits of Using a Professional Facebook Profile for Brands</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-facebook-relationship-archives/"><u>Accessing Your Facebook Relationship Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/avatars-and-spaces-crafting-the-perfect-facebook-profile-picture/"><u>Avatars and Spaces: Crafting the Perfect Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-images-to-life-sharing-stereoscopic-content-with-fb/"><u>Bringing Images to Life: Sharing Stereoscopic Content with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-brands-through-thoughtful-facebook-engagement/"><u>Building Brands Through Thoughtful Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-the-social-life-you-want-customize-your-news-feed-today/"><u>Building the Social Life You Want: Customize Your News Feed Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/code-revolution-with-facebook-and-rust-partnership/"><u>Code Revolution with Facebook & Rust Partnership</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/delve-into-the-superiority-of-hc-wxf991/"><u>Delve Into the Superiority of HC-WXF991</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exploring-key-players-driving-metaverse-innovation-a-zdnet-analysis/"><u>Exploring Key Players Driving Metaverse Innovation: A ZDNet Analysis</u></a></li>
+<li><a href="https://win-answers.techidaily.com/frostpunk-stability-improvements-addressing-and-fixing-critical-errors/"><u>Frostpunk Stability Improvements: Addressing and Fixing Critical Errors</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-apple-iphone-14-pro-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock Apple iPhone 14 Pro in Lost Mode</u></a></li>
 </ul></div>
 

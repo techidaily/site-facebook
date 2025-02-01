@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2025-01-23T21:27:22.951Z
-updated: 2025-01-24T21:10:17.904Z
+date: 2025-01-29T18:59:05.709Z
+updated: 2025-01-31T18:52:50.933Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,17 +61,21 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-instagrams-sponsorship-jungle-for-affluent-creators/"><u>[New] In 2024, Navigating Instagram's Sponsorship Jungle for Affluent Creators</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-prime-tools-turning-youtube-videos-into-text-for-2024/"><u>[Updated] Prime Tools Turning YouTube Videos Into Text for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/accusations-facebook-targets-honest-commerce-promotion/"><u>Accusations: Facebook Targets Honest Commerce Promotion</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-pristine-profile-7-strategies/"><u>Achieve Pristine Profile: 7 Strategies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-muted-slack-notifications-on-windows-11/"><u>Addressing Muted Slack Notifications on Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-romance-in-the-social-media-era-facebooks-fresh-take-on-dating/"><u>Crafting Romance in the Social Media Era: Facebook's Fresh Take on Dating</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope.</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-oppo-find-n3-flip-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Oppo Find N3 Flip for Free? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/manage-custom-recommendations-for-better-privacy-online/"><u>Manage Custom Recommendations for Better Privacy Online</u></a></li>
-<li><a href="https://some-tips.techidaily.com/missing-pieces-in-apples-latest-ai-showcase-are-upgrades-coming-soon/"><u>Missing Pieces in Apple's Latest AI Showcase – Are Upgrades Coming Soon?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-12-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme 12 5G</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-insiders-secrets-of-screencastify-recording-for-2024/"><u>The Insider’s Secrets of Screencastify Recording for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-unleashing-the-power-of-screen-capture-with-hp-notebooks/"><u>[New] Unleashing the Power of Screen Capture with HP Notebooks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-amass-1000-visionary-supporters-fast-track-style/"><u>[Updated] 2024 Approved Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-revolutionizing-adventure-recording-with-garmin-ultra-30/"><u>[Updated] 2024 Approved Revolutionizing Adventure Recording with Garmin Ultra 30</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-an-impactful-waterway-teaser/"><u>[Updated] Crafting an Impactful Waterway Teaser</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-tailored-sound-solutions-ideal-mics-for-educational-gaming-and-blogging-channels/"><u>[Updated] Tailored Sound Solutions Ideal Mics For Educational, Gaming & Blogging Channels</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/assemble-mp3-files-with-powerpoint-narratives/"><u>Assemble MP3 Files with PowerPoint Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-change-from-a-narrative-perspective/"><u>Decoding Facebook's Change From a Narrative Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-decision-to-quit-face-recognition-on-facebook/"><u>Decoding Meta's Decision to Quit Face Recognition on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-age-shift-facebooks-social-influence/"><u>Digital Age Shift: Facebook’s Social Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-goodbye-rituals-facebook-post-mortem-options/"><u>Digital Goodbye Rituals: Facebook Post-Mortem Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-world-of-virtual-mall-on-fb-fridays/"><u>Discover the World of Virtual Mall on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-non-facebook-messenger-platforms/"><u>Discovering Non-Facebook Messenger Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-fb-profile-with-impactful-covers/"><u>Elevate Your Fb Profile With Impactful Covers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/keep-your-pc-running-smoothly-essential-guide-to-modifying-motherboard-drivers-on-windows-os/"><u>Keep Your PC Running Smoothly: Essential Guide to Modifying Motherboard Drivers on Windows OS</u></a></li>
+<li><a href="https://some-tips.techidaily.com/leading-macbook-and-imac-models-a-comprehensive-guide-from-zdnet/"><u>Leading MacBook and iMac Models : A Comprehensive Guide From ZDNet</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-fixes-to-get-the-scroll-wheel-working-again-on-your-logitech-mouse/"><u>Quick Fixes to Get the Scroll Wheel Working Again on Your Logitech Mouse</u></a></li>
 </ul></div>
 

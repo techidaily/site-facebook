@@ -1,7 +1,7 @@
 ---
 title: "The Cessation Chronicle: How to Erase Your Account for Ever"
-date: 2025-01-20T22:28:50.832Z
-updated: 2025-01-24T18:16:32.593Z
+date: 2025-01-26T05:46:54.305Z
+updated: 2025-01-31T23:54:12.291Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What It Means to Delete a Facebook Account
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Once the cooling-off period passes, Facebook promises to remove all traces of your profile from its servers within 90 days. But don't worry; during the 90 days, your data is unavailable to other Facebook users.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Delete Your Facebook Account
@@ -76,16 +76,12 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
 ![Apps and website section of Facebook settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/apps-and-website-section-of-facebook-settings.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can see which apps have access to your Facebook account by clicking your profile picture and going to **Settings & privacy > Settings > Apps and Websites** .
 
  You may need to approach the third-party app developer directly; you cannot make the necessary changes through Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Tell People You're Leaving Facebook
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Clearly, you can't post the same "I'm leaving" message day after day, so why not[change your Facebook profile picture](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to an image of your username on Instagram, Snapchat, or any other network you plan to keep using?
 
  By doing so, you won't be pestering people with spam, but they'll learn that you're planning to delete your Facebook account every time you pop up on their news feed. You can even crop your friends list back before posting your new details to prevent them from spreading too widely.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete a Facebook Account
 
@@ -106,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 4. Choose**Account ownership and control** .  
 ![Personal details section of the Accounts Center in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/personal-details-section-of-the-accounts-center-in-facebook.jpeg)
 5. On the next screen, select**Deactivation or deletion** and choose the profile you want to delete.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6. Confirm you want to delete your account by choosing the**Delete account** toggle on the next screen.
 
@@ -134,6 +130,10 @@ Here's how to deactivate your Facebook account:
 5. On the next screen, enter your password and follow the instructions.
 
 ![Facebook account deactivation prompt in the account center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-account-deactivation-prompt-in-the-account-center.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You will be asked to confirm your decision. Once you do that, your account will be deactivated.
 
@@ -164,15 +164,22 @@ Here's how to deactivate your Facebook account:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-the-full-scale-of-precision-a-review-of-asus-pa32us-capabilities-for-2024/"><u>[New] The Full Scale of Precision A Review of Asus PA32U's Capabilities for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-streamlining-your-method-for-erasing-youtube-post-comments/"><u>2024 Approved Streamlining Your Method for Erasing YouTube Post-Comments</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/every-revealed-title-for-the-new-playstation-vr-a-comprehensive-list/"><u>Every Revealed Title for the New PlayStation VR²: A Comprehensive List</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-itel-p55plus-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Itel P55+ Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/lack-of-faith-in-major-platforms-spikes-for-facebook/"><u>Lack of Faith in Major Platforms Spikes for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-verdict-yet-facebook-board-postpones-judgment/"><u>No Verdict Yet: Facebook Board Postpones Judgment</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-essential-smarts-for-social-media-users/"><u>The Language of Likes and Shares: Essential SMARTs for Social Media Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-facebook-tags-efficiently/"><u>The Ultimate Guide to Removing Facebook Tags Efficiently</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-the-art-of-dvd-creation-tips-and-tricks-for-amateur-filmmakers/"><u>Updated 2024 Approved The Art of DVD Creation Tips and Tricks for Amateur Filmmakers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1722995429371-why-is-metro-exodius-keeping-you-out-of-the-game-fix-those-pc-crashes-now/"><u>Why Is Metro Exodius Keeping You Out of the Game? Fix Those PC Crashes Now</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nhance-engagement-top-tools-and-tips-for-properly-tagged-videos/"><u>[New] Enhance Engagement Top Tools and Tips for Properly Tagged Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-quick-guide-to-alter-username-in-google-meet-sessions/"><u>[Updated] In 2024, Quick Guide to Alter Username in Google Meet Sessions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-vsdc-capture-expert-analysis-and-top-replacements/"><u>[Updated] In 2024, VSDC Capture Expert Analysis & Top Replacements</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-winning-film-tech-comprerantes-top-5-windows-editing-tools-for-2024/"><u>[Updated] Winning Film Tech Comprerante's Top 5 Windows Editing Tools for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-empowering-remote-teams-with-google-meets-whiteboard-features-on-various-devices/"><u>2024 Approved Empowering Remote Teams with Google Meet's Whiteboard Features on Various Devices</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-iphone-6-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to iPhone 6 Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusations-social-media-fights-false-advertising/"><u>Accusations: Social Media Fights False Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/audit-of-followers-on-fb/"><u>Audit of Followers on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-marketing-traps-on-facebook-simple-steps-to-follow/"><u>Avoiding Marketing Traps on Facebook: Simple Steps to Follow</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-journey-from-tweets-to-snaps-in-vaccine-drive/"><u>Biden's Journey: From Tweets to Snaps in Vaccine Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/bold-personalities-setting-the-tech-stage-on-fire/"><u>Bold Personalities Setting the Tech Stage on Fire</u></a></li>
+<li><a href="https://facebook.techidaily.com/collective-recognition-crafting-group-wide-facebook-messages/"><u>Collective Recognition: Crafting Group-Wide Facebook Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-understanding-photodnas-functionality/"><u>Comprehensively Understanding PhotoDNA's Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152998849-flip-the-script-on-sharing-seamless-transfer-of-fb-content-available/"><u>Flip the Script on Sharing: Seamless Transfer of FB Content Available</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-rich-archive-of-cost-effective-superior-vector-graphics-websites/"><u>In 2024, Rich Archive of Cost-Effective, Superior Vector Graphics Websites</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/r-the-art-of-editing-on-zero-budget-discover-these-apps-for-2024/"><u>Master the Art of Editing on Zero Budget Discover These Apps for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-solutions-for-resolving-sos-call-issues-on-your-iphone/"><u>Top Solutions for Resolving 'SOS Call' Issues on Your iPhone</u></a></li>
 </ul></div>
 

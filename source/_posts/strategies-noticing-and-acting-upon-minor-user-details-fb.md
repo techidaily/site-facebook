@@ -1,7 +1,7 @@
 ---
 title: "Strategies: Noticing and Acting upon Minor User Details, FB"
-date: 2025-01-22T16:59:13.009Z
-updated: 2025-01-24T23:14:18.160Z
+date: 2025-01-29T07:51:54.061Z
+updated: 2025-01-31T23:15:01.429Z
 tags:
   - facebook
 categories:
@@ -39,13 +39,17 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
 6. Tap**Send** to submit the report for review.
 
  Facebook might need your help or verification proof to proceed with the report. For recovery, the underage account must submit details like official documents or evidence of identity. Failure to do so will result in the account being permanently disabled.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Request Data of Your Underage Child's Facebook Account From Facebook
@@ -57,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 1. Open the[Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
  Successful verification will process the request and make you eligible for the data featuring your underage child's activities on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Should You Report an Underage Facebook Account?
@@ -86,13 +86,13 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
  Children should use Facebook under a restricted and balanced schedule at the recommended age to avoid addiction. Engage kids in creative activities and sports that boost their physical and mental capacity, leaving them with less time for social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It Might Lead to Cyberbullying
 
@@ -100,15 +100,15 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It Might Expose Your Child to Inappropriate Content
 
@@ -139,21 +139,18 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-ensuring-accurate-earnings-tracking-for-creators/"><u>[New] 2024 Approved Ensuring Accurate Earnings Tracking for Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-driving-income-from-views-on-youtube/"><u>[New] In 2024, Driving Income From Views on YouTube</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-moons-magic-dos-and-donts-of-immersive-night-photography/"><u>[Updated] Moon's Magic Do's & Don'ts of Immersive Night Photography</u></a></li>
-<li><a href="https://os-tips.techidaily.com/anubis/"><u>Anubis -</u></a></li>
-<li><a href="https://facebook.techidaily.com/diversifying-outreach-with-deft-multi-group-social-media-techniques/"><u>Diversifying Outreach with Deft Multi-Group Social Media Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rate-spotify-and-youtube-top-5-playlist-to-channel-converters-available/"><u>Integrate Spotify and YouTube Top 5 Playlist-to-Channel Converters Available</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-privacy-from-facebook-surveillance/"><u>Protect Your Privacy From Facebook Surveillance</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/quicktime-player-tutorial-fast-forward-your-videos-for-2024/"><u>QuickTime Player Tutorial Fast Forward Your Videos for 2024</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/resolving-memory-malfunctions-a-guide-to-identifying-and-repairing-ram-problems-with-expert-advice-from-yl-computing/"><u>Resolving Memory Malfunctions: A Guide to Identifying & Repairing RAM Problems with Expert Advice From YL Computing</u></a></li>
-<li><a href="https://facebook.techidaily.com/shattered-in-silence-post-fb-information/"><u>Shattered in Silence: Post-FB Information</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-activating-two-factor-authentication-in-fb/"><u>Step-by-Step: Activating Two-Factor Authentication in FB</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-vision-tech-top-5-for-slow-motion/"><u>Ultimate Vision Tech Top 5 for Slow Motion</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-updated-privacy-center-strategies/"><u>Unveiling Facebook’s Updated Privacy Center Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-transparency-of-fbcta/"><u>Unveiling the Transparency of FBCTA</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-copyright-recordings-and-their-permissibility/"><u>YouTube Copyright Recordings and Their Permissibility</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-premier-mac-tools-beyond-bandicam/"><u>[New] In 2024, Premier Mac Tools Beyond Bandicam</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-troubleshooting-iphone-and-android-fb-messenger-stuck-on-videos/"><u>[New] Troubleshooting iPhone & Android FB Messenger Stuck on Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlocking-creativity-mastering-ios-screen-capture-for-youtube/"><u>[New] Unlocking Creativity Mastering iOS Screen Capture for YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-integrating-whatsapp-into-your-twitter-video-sharing-routine/"><u>[Updated] Integrating WhatsApp Into Your Twitter Video Sharing Routine</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-altering-who-can-access-your-youtube-videos/"><u>2024 Approved Altering Who Can Access Your YouTube Videos</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/aomeissdusb/"><u>使用AOMEI拷贝器将SSD备份到USB设备—详解</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comparing-cloud-space-charges-methods-and-results-for-2024/"><u>Comparing Cloud Space Charges Methods and Results for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/direct-pathway-iphone-files-on-your-desktop/"><u>Direct Pathway IPhone Files on Your Desktop</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-frontiers-in-social-commerce-on-facebook/"><u>Exploring New Frontiers in Social Commerce on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-findings-social-platforms-detrimental/"><u>National Survey Findings: Social Platforms Detrimental</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/selecting-the-ideal-screen-recording-application-obs-vs-fraps-showdown-for-2024/"><u>Selecting the Ideal Screen Recording Application OBS vs Fraps Showdown for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/shadowban-explained-and-tactics-for-evasion/"><u>Shadowban Explained & Tactics for Evasion</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anchor-of-asset-allocation-delving-into-cryptocurrencys-stablecoins/"><u>The Anchor of Asset Allocation: Delving Into Cryptocurrency's Stablecoins</u></a></li>
 </ul></div>
 

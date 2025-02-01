@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2025-01-17T21:24:21.862Z
-updated: 2025-01-24T21:14:46.369Z
+date: 2025-01-25T17:30:34.725Z
+updated: 2025-02-01T05:52:56.016Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Facebook Beacon Tracking
 
  Facebook Beacon was launched to show targeted ads to users from third-party websites. It also encouraged people to share their activities with friends as well. Facebook Beacon saved the data of users' spending habits to[show targeted ads on Facebook](http://www.makeuseof.com/why-are-you-seeing-certain-ads-on-facebook/) —nothing different from what happens now.
@@ -38,15 +34,19 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
 
-![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
 
 Close
 
@@ -64,6 +64,10 @@ Close
 
 ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
 
  These games are created by third-party developers and come with catchy lines to attract their target audience. Once you click or log in with Facebook, they can access your data.
@@ -75,22 +79,22 @@ Close
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. The Spread of Fake News
 
 ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 
  This can directly relate to Facebook's ability to promote a particular post in users' feeds. Unsurprisingly, many authoritative figures use this failure to meet their political and personal ambitions.
 
  Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Failure to Moderate in Developing Countries
 
@@ -103,10 +107,6 @@ Close
  There are still dozens of languages not sufficiently covered by Facebook's algorithmic moderation. This causes difficulties in interpreting and moderating content on Facebook.
 
  Since many social media experts are highlighting this issue, let’s hope that Facebook can provide equality in content moderation for people around the globe.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Failed Many Times but Let's Not Lose Hope
 
@@ -131,21 +131,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-6-ways-to-increase-audience-retention-on-youtube-filmora/"><u>[New] In 2024, 6 Ways To Increase Audience Retention on YouTube - Filmora</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-elevate-your-media-presentation-text-and-captions-application-in-microsoft-photos/"><u>[Updated] 2024 Approved Elevate Your Media Presentation Text & Captions Application in Microsoft Photos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-quick-video-wins-essential-ideas-for-vloggers/"><u>[Updated] In 2024, Quick Video Wins Essential Ideas for Vloggers</u></a></li>
-<li><a href="https://facebook.techidaily.com/ai-mimics-style-through-image-based-text-recognition/"><u>AI Mimics Style Through Image-Based Text Recognition</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/backgroundannihilator-professional-erase-software-for-2024/"><u>BackgroundAnnihilator Professional Erase Software for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-comprehensive-guide-to-social-account-linking-for-xbox/"><u>Crafting a Comprehensive Guide to Social Account Linking for Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-legacy-memorializing-vs-removing-deceaseds-facebook-profile/"><u>Digital Legacy: Memorializing Vs. Removing Deceased's Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-telegrams-rise-during-a-day-without-facebook/"><u>Dissecting Telegram’s Rise During a Day Without Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-most-impactful-press-stories-of-google/"><u>Dissecting the Most Impactful Press Stories of Google</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dive-into-toms-hardware-wisdom-for-cutting-edge-devices/"><u>Dive Into Tom's Hardware Wisdom for Cutting-Edge Devices</u></a></li>
-<li><a href="https://win-community.techidaily.com/explore-serene-peaks-with-our-exclusive-wallpaper-and-imagery-collection-crafted-by-yl-software-designers/"><u>Explore Serene Peaks with Our Exclusive Wallpaper and Imagery Collection - Crafted by YL Software Designers</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-s-top-animation-software-10-best-2d-tools-for-beginners-and-pros/"><u>New 2024 Approved S Top Animation Software 10 Best 2D Tools for Beginners and Pros</u></a></li>
-<li><a href="https://facebook.techidaily.com/polo-clubs-resist-social-platforming/"><u>Polo Clubs Resist Social Platforming</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ting-from-gaming-channels-for-2024/"><u>Profiting From Gaming Channels for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-the-not-initialized-issue-a-guide-for-valorant-players/"><u>Solving the Not Initialized Issue - A Guide for Valorant Players</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-to-flip-the-friend-switch-on-facebook-insights-and-strategies/"><u>When to Flip the Friend Switch on Facebook: Insights and Strategies</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-screencast-guide-to-flawless-presentations-and-demos/"><u>[New] 2024 Approved The Screencast Guide to Flawless Presentations and Demos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-photography-with-nikon-d7500-for-2024/"><u>[New] Mastering Photography with Nikon D7500 for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-broadcast-iptv-across-platforms-for-2024/"><u>[Updated] Broadcast IPTV Across Platforms for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quintessential-scores-in-8-distinct-movie-spheres/"><u>2024 Approved Quintessential Scores in 8 Distinct Movie Spheres</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/amplify-clarity-in-cloud-calls-zooming-out-distortion-for-2024/"><u>Amplify Clarity in Cloud Calls Zooming Out Distortion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipated-facebook-features-emphasizing-stories-with-reels-and-rooms/"><u>Anticipated Facebook Features: Emphasizing Stories with Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-the-true-face-of-metaverse/"><u>Beyond Likes and Shares: The True Face of Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-complexity-insights-from-facebooks-openness-center/"><u>Breaking Down Complexity: Insights From Facebook's Openness Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-news-essential-insights-from-leaked-fb-data/"><u>Breaking News: Essential Insights From Leaked FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-3d-photo-presence-on-facebook-platform/"><u>Building a 3D Photo Presence on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-llife-thrive-in-the-dawn-of-the-metaverse/"><u>Can LLife Thrive in the Dawn of The Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-with-melodies-enjoy-spotifys-mini-panel-on-facebook/"><u>Connect with Melodies: Enjoy Spotify's Mini-Panel on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/customize-and-control-revolutionizing-how-you-see-on-facebook/"><u>Customize & Control: Revolutionizing How You See on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149103040-discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc.</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/h264-vs-h265/"><u>H.264 Vs. H.265: ビデオファイルの違いを見極めるための基本情報</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-approaches-for-large-media-file-transfers-from-iphones-to-macs/"><u>In 2024, Proven Approaches for Large Media File Transfers From iPhones to Macs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/kinemaster-pro-guide-crafting-uninterrupted-storytelling-for-2024/"><u>Kinemaster Pro Guide Crafting Uninterrupted Storytelling for 2024</u></a></li>
+<li><a href="https://fox-within.techidaily.com/ultimate-review-disk-drill-vs-wondershare-recoverit-for-data-restoration-solutions/"><u>Ultimate Review: Disk Drill Vs. Wondershare Recoverit for Data Restoration Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726030068921-youtubeitunes/"><u>YouTubeのミュージックビデオがiTunesフォルダに保存する方法</u></a></li>
 </ul></div>
 

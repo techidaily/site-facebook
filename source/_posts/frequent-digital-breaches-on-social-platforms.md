@@ -1,7 +1,7 @@
 ---
 title: Frequent Digital Breaches on Social Platforms
-date: 2025-01-18T16:24:55.485Z
-updated: 2025-01-24T16:08:16.990Z
+date: 2025-01-30T22:03:27.006Z
+updated: 2025-02-01T05:35:06.009Z
 tags:
   - facebook
 categories:
@@ -27,12 +27,16 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Common Are Social Media Hacks?
 
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
 
@@ -47,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Increases the Chances of a Social Media Hack?
@@ -64,13 +68,13 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Risks Associated With a Social Media Hack?
 
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
 
@@ -82,13 +86,13 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Handle a Social Media Hack
 
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -121,20 +121,18 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-master-your-search-securing-cool-images-at-pexels/"><u>[New] Master Your Search Securing Cool Images at Pexels</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ioneering-proficiency-the-complete-guide-to-music-and-media-fusion-on-youtube-for-2024/"><u>[New] Pioneering Proficiency The Complete Guide to Music & Media Fusion on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elite-visionaries-video-realm/"><u>[Updated] 2024 Approved Elite Visionaries Video Realm</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-maximizing-your-android-game-adventure-with-kinemaster-review/"><u>[Updated] 2024 Approved Maximizing Your Android Game Adventure with KineMaster Review</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-maximizing-engagement-in-post-facebook-algorithm-world/"><u>[Updated] Maximizing Engagement in Post-Facebook Algorithm World</u></a></li>
-<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-htc-u23-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your HTC U23</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-arena-vying-for-the-top-in-verified-metas-and-blue-ticks/"><u>Authenticity Arena: Vying for the Top in Verified Metas and Blue Ticks</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-sheryls-contributions-to-facebook/"><u>Behind the Scenes: Sheryl's Contributions to Facebook</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/eliminating-barriers-in-nvidia-deployment/"><u>Eliminating Barriers in NVIDIA Deployment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/key-points-pre-shopping-considerations-for-tvs/"><u>Key Points: Pre-Shopping Considerations for TVs</u></a></li>
-<li><a href="https://facebook.techidaily.com/latest-watches-on-facebook-unveiled/"><u>Latest Watches on Facebook Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/this-years-key-technology-mishaps-revealed/"><u>This Year's Key Technology Mishaps Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/where-to-avoid-facebook-websites-top-3-places/"><u>Where to Avoid Facebook Websites: Top 3 Places</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-metas-full-implementation-of-e2e-encryption-delayed-to-next-year/"><u>Why Meta's Full Implementation of E2E Encryption Delayed to Next Year</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/zdnet-exclusive-apples-venture-into-ar-glasses-and-cost-effective-visual-aids-on-the-horizon/"><u>ZDNet Exclusive: Apple's Venture Into AR Glasses and Cost-Effective Visual Aids on the Horizon</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-strategies-for-downloading-twitter-video-content-to-mp3/"><u>[Updated] Strategies for Downloading Twitter Video Content to MP3</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-simple-tips-to-protect-your-privacy-on-facebook/"><u>7 Simple Tips to Protect Your Privacy on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-robust-online-community-with-ripl-techniques/"><u>Building a Robust Online Community with Ripl Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/collaborative-content-strategy-sharing-instagram-reels-across-platforms/"><u>Collaborative Content Strategy: Sharing Instagram Reels Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructing-an-individualized-facebook-emblem/"><u>Constructing an Individualized Facebook Emblem</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147619522-facebook-orders-judgment-for-trumps-prohibition/"><u>Facebook Orders Judgment for Trump's Prohibition</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-online-conversion-mod-to-avi-using-moveavi/"><u>Free Online Conversion: MOD to AVI Using Move.AVI</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-igtv-presence-with-edited-titles-and-descriptions/"><u>In 2024, Elevate Your IGTV Presence with Edited Titles and Descriptions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-narrow-your-focus-on-elite-hdr-camera-systems/"><u>In 2024, Narrow Your Focus on Elite HDR Camera Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/insiders-look-at-macos-11-big-sur-journey-for-2024/"><u>Insider's Look at macOS 11 Big Sur Journey for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/the-spectrum-of-perfection-creating-stunning-hdrs-in-lightroom-for-2024/"><u>The Spectrum of Perfection Creating Stunning HDRs in Lightroom for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/top-16-strategies-for-archiving-online-tunes-and-talks-for-2024/"><u>Top 16 Strategies for Archiving Online Tunes and Talks for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-zodiac-inspired-whatsapp-bios-enhancing-personal-connections/"><u>Top Zodiac-Inspired WhatsApp Bios Enhancing Personal Connections</u></a></li>
 </ul></div>
 

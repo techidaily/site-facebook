@@ -1,7 +1,7 @@
 ---
 title: "Crafting a New Social Persona: Changing Name on Facebook Platform"
-date: 2024-08-15T18:41:20.029Z
-updated: 2024-08-16T18:41:20.029Z
+date: 2025-01-29T22:23:13.449Z
+updated: 2025-01-31T23:55:14.625Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,19 @@ thumbnail: https://thmb.techidaily.com/4ef2c771bab22f6200bc44d813f92a02921f5f21b
 
  In this article, we'll show you how to change your name on Facebook. Additionally, we'll also inform you of Facebook's policies around names.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Your Facebook Name
 
  Changing your name on Facebook isn't such a tough thing to crack. You can do this through the settings section in your account, and it doesn't take time to show the changes if all goes well.
 
 The process differs slightly on the website versus the app.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### On the Web
 
@@ -35,26 +43,25 @@ To change your name on the Facebook website, do the following:
 4. Under**General Account Settings** \>**Name** , click**Edit** .
 5. Enter what you want to use for first name, optional middle name, and last name, and click **Review Change.**  
 **![Changing your Facebook name on web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/change-facebook-name-on-web.png)**
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 6. Facebook will prompt you to choose how you want your name to appear.
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### On the Facebook App
 
 ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
 ![facebook name change page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-name-change-page-ios.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -84,15 +91,8 @@ Close
  To do this, follow the procedure highlighted above and on the name change page, tap**Add other names** or**Add a nickname, a birth name etc.,** under**Other names** .
 
 ![creating additional names facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/01-creating-additional-names-facebook-mobile.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 
 ![enter additional name facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/02-creating-additional-names-facebook-mobile.jpg)
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -101,6 +101,10 @@ Close
  Remember that the additional name will still be visible to others under the**About** section of your profile and search engines.
 
  Read More:[How to Untag Yourself From Facebook Photos](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Restrictions on Changing Your Facebook Name
 
@@ -120,23 +124,17 @@ Close
 
  However, Facebook also accepts other non-government IDs like a bank statement, health insurance, credit card, and so on as long as it shows your official names.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## More Things To Try on Facebook
 
  After you change your name on Facebook, you might also want to try a few other Facebook tools and features.
 
  Consider trying out Facebook's privacy tools to do an overhaul of your account settings.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,6 +143,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-get-laughter-in-minutes-install-and-revel-in-ifunnys-meme-world/"><u>[New] Get Laughter in Minutes Install and Revel in iFunny's Meme World</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-audacitys-professional-tracking/"><u>[New] The Ultimate Guide to Audacity's Professional Tracking</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-elite-screen-recording-the-top-5-android-capturing-apps/"><u>[Updated] 2024 Approved Elite Screen Recording The Top 5 Android Capturing Apps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ultimate-list-ps2-games-on-android-devices/"><u>[Updated] In 2024, Ultimate List PS2 Games on Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-loses-ground-among-iphone-fans/"><u>App Tracking Loses Ground Among iPhone Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-safe-from-personal-data-leakage-via-fb-apps/"><u>Are You Safe From Personal Data Leakage Via FB Apps?</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-dates-on-facebooks-nostalgic-moments/"><u>Blocking Dates on Facebook's Nostalgic Moments</u></a></li>
+<li><a href="https://facebook.techidaily.com/bold-leaders-in-technology-clashing-over-visions/"><u>Bold Leaders in Technology Clashing Over Visions</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-securityfacebookmailcom-be-trusted-for-fb-safety/"><u>Can Security@facebookmail.com Be Trusted for FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectors-guide-to-facebooks-emerging-zones/"><u>Connectors' Guide to Facebook’s Emerging Zones</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-private-visual-footprint-on-facebook/"><u>Crafting a Private Visual Footprint on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153364524-expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152839748-heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-10-best-podcast-recording-software/"><u>New 10 Best Podcast Recording Software</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/punchline-creator-suite/"><u>Punchline Creator Suite</u></a></li>
+<li><a href="https://win-answers.techidaily.com/quick-solutions-repairing-your-madden-nfl-22-game-when-it-stops-responding/"><u>Quick Solutions: Repairing Your Madden NFL 22 Game When It Stops Responding</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/retrieve-whats-gone-expert-tips-on-reclaiming-deleted-chatgpt-exchange-records/"><u>Retrieve What's Gone: Expert Tips on Reclaiming Deleted ChatGPT Exchange Records</u></a></li>
+</ul></div>
 

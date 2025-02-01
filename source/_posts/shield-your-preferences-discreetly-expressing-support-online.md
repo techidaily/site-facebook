@@ -1,7 +1,7 @@
 ---
 title: "Shield Your Preferences: Discreetly Expressing Support Online"
-date: 2025-01-23T16:33:54.814Z
-updated: 2025-01-24T19:10:12.289Z
+date: 2025-01-27T20:24:36.490Z
+updated: 2025-01-31T17:36:44.225Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,21 +58,18 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-best-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[New] In 2024, Best 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-perfecting-video-focus-videoleap-guide-for-2024/"><u>[Updated] Perfecting Video Focus Videoleap Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-revenue-revolution-leveraging-the-youtube-premium-opportunity/"><u>[Updated] Revenue Revolution Leveraging the YouTube Premium Opportunity</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-leading-apps-top-10-choices-for-seamless-vimeo-file-extraction/"><u>2024 Approved Leading Apps Top 10 Choices for Seamless Vimeo File Extraction</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/windowsiphone/"><u>详解：为何以及如何从Windows电脑与iPhone中解决'位置不可用'错误</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-online-reputation-the-best-free-tools-for-social-management/"><u>Boost Your Online Reputation - The Best FREE Tools for Social Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-updated-navigation-and-tabs-concept/"><u>Decoding Facebook’s Updated Navigation and Tabs Concept</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-digital-presence-sharing-hd-media-mobilely/"><u>Elevate Your Digital Presence: Sharing HD Media Mobilely</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/elevate-your-lifestyle-using-chatgpt-innovative-strategies-revealed/"><u>Elevate Your Lifestyle Using ChatGPT: Innovative Strategies Revealed</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-mastering-profit-on-facebook-essential-insights-and-hacks/"><u>In 2024, Mastering Profit on Facebook Essential Insights & Hacks</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-premium-templates-for-panzoid-introduction/"><u>In 2024, Premium Templates for Panzoid Introduction</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-evolution-facebooks-transformation-into-meta/"><u>Interactive Evolution: Facebook's Transformation Into Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/reels-and-royalties-the-role-of-meta-in-content-creator-earnings/"><u>Reels & Royalties: The Role of Meta in Content Creator Earnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-debate-over-digital-dissatisfaction-tools/"><u>The Debate Over Digital Dissatisfaction Tools</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-fixing-issues-with-your-non-responsive-corsair-keyboard/"><u>Troubleshooting: Fixing Issues with Your Non-Responsive Corsair Keyboard</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-updated-significance-behind-facebook-pages-tags/"><u>Decoding The Updated Significance Behind Facebook Pages' Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-dynamics-of-online-romance-via-facebook/"><u>Delving Into the Dynamics of Online Romance via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-metaverse-who-really-holds-power/"><u>Demystifying the Metaverse: Who Really Holds Power?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deny-new-friend-recommendations-in-fb/"><u>Deny New Friend Recommendations in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-war-against-covid-1ranking-through-social-media/"><u>Digital War Against COVID-1ranking Through Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-internal-design-philosophy/"><u>Dissecting Facebook's Internal Design Philosophy</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-poco-x5-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-spotifys-top-10-viral-songs/"><u>In 2024, Spotify’s Top 10 Viral Songs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/maximizing-chatgpt-in-remote-team-discussions/"><u>Maximizing ChatGPT in Remote Team Discussions</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/monetization-mastery-guide-choosing-the-right-platform-for-2024/"><u>Monetization Mastery Guide Choosing the Right Platform for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/repairing-flickering-lcd-issues-on-computers/"><u>Repairing Flickering LCD Issues on Computers</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolving-image-clarity-issues-in-ubisofts-new-island/"><u>Resolving Image Clarity Issues in Ubisoft's New Island</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/understanding-how-ai-enhances-paperclip-arrangement-techniques/"><u>Understanding How AI Enhances Paperclip Arrangement Techniques</u></a></li>
 </ul></div>
 

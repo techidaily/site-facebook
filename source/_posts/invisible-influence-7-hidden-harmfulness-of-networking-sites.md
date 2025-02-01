@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2025-01-19T20:47:12.822Z
-updated: 2025-01-24T23:04:11.820Z
+date: 2025-01-28T18:12:44.085Z
+updated: 2025-02-01T05:59:12.050Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Social Media Is Bad for You
 
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
@@ -40,17 +44,9 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. FOMO (Fear of Missing Out)
@@ -78,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
  As most people are probably aware, social media forms unrealistic expectations of life and friendships in our minds.
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Negative Body Image
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Unhealthy Sleep Patterns
@@ -153,20 +153,22 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-2023-roundup-premier-professionals-360-cameras/"><u>[New] In 2024, 2023 Roundup Premier Professionals’ 360 Cameras</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-textual-transformation-in-adobe-after-effects/"><u>[Updated] In 2024, Textual Transformation in Adobe After Effects</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/asus-revolutionizes-portable-computing-with-its-new-laptop-the-expertbook-pp5405httpswwwnotebookchecknetasusexpertbookp5p5405-6382197html/"><u>ASUS Revolutionizes Portable Computing with Its New Laptop: The ExpertBook P^[P5405](https://www.notebookcheck.net/Asus_Expertbook_P5_P5405-6382197.html)</u></a></li>
-<li><a href="https://games-able.techidaily.com/bg3-system-guide-specs-and-download-tips/"><u>BG3 System Guide - Specs & Download Tips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/designing-robust-tech-forward-growth-initiatives-for-tomorrows-landscape/"><u>Designing Robust Tech-Forward Growth Initiatives for Tomorrow's Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-oculus-sales-boom-amidst-cybersecurity-crisis/"><u>Facebook Oculus Sales Boom Amidst Cybersecurity Crisis</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-trust-dilemmas-a-close-look-at-the-top-5-user-disappointments/"><u>Facebook’s Trust Dilemmas: A Close Look at the Top 5 User Disappointments</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-infinix-note-30-vip-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Infinix Note 30 VIP Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-prime-moments-to-share/"><u>Identifying Prime Moments to Share</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-honor-80-pro-straight-screen-edition-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Honor 80 Pro Straight Screen Edition to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/profile-update-procedures-for-your-childs-messengers/"><u>Profile Update Procedures for Your Child’s Messengers</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-previous-social-interactions-in-fb/"><u>Revisiting Previous Social Interactions in FB</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-xiaomi-redmi-note-13-pro-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Xiaomi Redmi Note 13 Pro 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-facebooks-day-on-day-tool/"><u>Unveiling the Secrets to Facebook's Day-on-Day Tool</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-8-best-open-source-videoconference-systems-for-enterprises-today/"><u>[New] The 8 Best Open Source Videoconference Systems for Enterprises Today</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-exiting-with-impact-mastering-podcast-conclusions-beyond-the-basics/"><u>[Updated] 2024 Approved Exiting with Impact Mastering Podcast Conclusions Beyond the Basics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-guide-to-overcoming-mobile-video-sending-problems-in-fb-chat/"><u>[Updated] 2024 Approved Guide to Overcoming Mobile Video Sending Problems in FB Chat</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fast-and-free-fb-video-conversion-tools-for-mp3-files/"><u>[Updated] Fast and Free FB Video Conversion Tools for MP3 Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-eco-journey-entirely-powered-by-sustainable-energy/"><u>FB's Eco-Journey: Entirely Powered by Sustainable Energy</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-secure-is-my-info-on-social-media-platforms-like-fb/"><u>How Secure Is My Info on Social Media Platforms Like FB?</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-unresponsive-usb-connections-in-windows-operating-systems/"><u>How to Fix Unresponsive USB Connections in Windows Operating Systems</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unleash-the-power-of-pixels-expert-tips-on-live-tv-recording-with-windows-pc/"><u>In 2024, Unleash the Power of Pixels Expert Tips on Live TV Recording with Windows PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/rank-your-social-sites-today/"><u>Rank Your Social Sites Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelations-of-a-digital-watchmaker-facebooks-undisclosed-device/"><u>Revelations of a Digital Watchmaker: Facebook's Undisclosed Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-your-social-space-with-fb-restrictions/"><u>Simplifying Your Social Space with Fb Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-fabric-revised-exploring-the-top-4-platform-induced-metamorphoses/"><u>Social Fabric Revised: Exploring the Top 4 Platform-Induced Metamorphoses</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-xiaomi-redmi-note-12-proplus-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Xiaomi Redmi Note 12 Pro+ 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-ranked-reddit-discussions-top-10-edition-for-2024/"><u>The Ultimate Ranked Reddit Discussions – Top 10 Edition for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-display-problems-on-your-favorite-sites/"><u>Troubleshooting Display Problems on Your Favorite Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-unscheduled-sign-off-on-networking-sites/"><u>Troubleshooting Unscheduled Sign-Off on Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-imposters-tips-for-true-facebook-detectives/"><u>Unveiling Internet Imposters: Tips for True-Facebook Detectives</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2025-01-19T20:31:49.677Z
-updated: 2025-01-24T18:13:01.140Z
+date: 2025-01-25T17:16:53.626Z
+updated: 2025-01-31T21:41:58.671Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,24 +67,22 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-craft-your-vision-essential-windows-10-tips-for-future-directors/"><u>[New] Craft Your Vision Essential Windows 10 Tips for Future Directors</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-ranking-the-most-effortlessly-successful-youtube-content/"><u>[Updated] Ranking the Most Effortlessly Successful YouTube Content</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unshakeable-video-quality-best-stabilizers/"><u>[Updated] Unshakeable Video Quality - Best Stabilizers</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-job-prospects-with-these-6-facebook-tactics/"><u>Boost Your Job Prospects with These 6 Facebook Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/converting-visual-images-into-stylistic-textual-reproduction-with-ai/"><u>Converting Visual Images Into Stylistic Textual Reproduction with AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-disclaimer-know-what-to-share-what-not-to-on-social/"><u>Digital Disclaimer: Know What to Share, What Not to on Social</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-personal-brand-on-social-media/"><u>Elevating Personal Brand on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/enabling-blacked-out-interface-for-facebook-use/"><u>Enabling Blacked-Out Interface for Facebook Use</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/essential-tips-how-to-choose-the-best-laptop-or-desktop-for-your-academic-needs/"><u>Essential Tips: How to Choose the Best Laptop or Desktop for Your Academic Needs</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-find-n3withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo Find N3with/without a PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-matrix-of-multiple-social-media-connections-on-xbox/"><u>Mastering the Matrix of Multiple Social Media Connections on Xbox</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2212465-9780007536924-pisces-2014-your-personal-horoscope/"><u>Pisces 2014: Your Personal Horoscope | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/shielded-social-circle-fb-privacy-guide/"><u>Shielded Social Circle: FB Privacy Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-9-imitation-viruses-mimicking-chatgpt-protect-your-information-now/"><u>Top 9 Imitation Viruses Mimicking ChatGPT: Protect Your Information Now</u></a></li>
-<li><a href="https://video-capture.techidaily.com/transform-your-audio-experience-expert-tips-on-using-desktop-tools-for-superior-m4a-editing/"><u>Transform Your Audio Experience: Expert Tips on Using Desktop Tools for Superior M4A Editing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unveiling-youtubes-features-adding-images-to-videos/"><u>Unveiling YouTube's Features Adding Images to Videos</u></a></li>
-<li><a href="https://win-web3.techidaily.com/wie-sie-neue-arbeitskontakte-schnell-und-einfach-uber-das-outlook-postfach-ihres-kollegen-hinzufugen-konnen-eine-umfassende-anleitung/"><u>Wie Sie Neue Arbeitskontakte Schnell Und Einfach Über Das Outlook-Postfach Ihres Kollegen Hinzufügen Können: Eine Umfassende Anleitung</u></a></li>
-<li><a href="https://facebook.techidaily.com/without-friends-online-where-does-one-go-next/"><u>Without Friends Online, Where Does One Go Next?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mirthful-media-youtubes-top-20-for-a-chuckle/"><u>[New] 2024 Approved Mirthful Media YouTube's Top 20 for a Chuckle</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-closer-look-easy-methods-to-zoom-in-minecraft/"><u>[New] Closer Look Easy Methods to Zoom in Minecraft</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-capturing-the-joy-of-lol-gameplay-three-effective-methods/"><u>[New] In 2024, Capturing the Joy of LOL Gameplay - Three Effective Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[Updated] In 2024, Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fast-fixes-syncing-iphone-photos-with-computer/"><u>2024 Approved Fast Fixes Syncing iPhone Photos with Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-top-social-planners-for-timely-posting/"><u>7 Top Social Planners for Timely Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-in-digital-socialization-with-facebook-updates/"><u>Bridging Gaps in Digital Socialization with Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-a-social-media-platform-shape-our-local-commerce-landscape/"><u>Can a Social Media Platform Shape Our Local Commerce Landscape?</u></a></li>
+<li><a href="https://facebook.techidaily.com/clear-out-your-social-presence-delete-business-page-protocols/"><u>Clear Out Your Social Presence: Delete Business Page Protocols</u></a></li>
+<li><a href="https://facebook.techidaily.com/commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-audiences-the-functionality-of-hashtags-in-online-networks-on-fb/"><u>Connecting Audiences: The Functionality of Hashtags in Online Networks on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-online-presence-hiding-fb-pages-via-archives/"><u>Covert Online Presence: Hiding FB Pages via Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-executive-leadership-of-facebook/"><u>Current Executive Leadership of Facebook</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-your-apple-iphone-6s-plus-from-your-apple-id-by-drfone-ios/"><u>In 2024, How To Unlink Your Apple iPhone 6s Plus From Your Apple ID</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/revolutionizing-game-soundscapes-with-ps-console-tweaks/"><u>Revolutionizing Game Soundscapes with PS Console Tweaks</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138568889-9780595831678-too-soon-old-too-late-smart/"><u>Too Soon Old-Too Late Smart | Free Book</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-3-essential-iphone-13-gadgets-for-maintaining-a-flawless-appearance-insights/"><u>Top 3 Essential iPhone 13 Gadgets for Maintaining a Flawless Appearance - Insights</u></a></li>
 </ul></div>
 

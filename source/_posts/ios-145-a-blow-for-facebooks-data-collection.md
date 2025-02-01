@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2025-01-19T19:32:50.896Z
-updated: 2025-01-24T18:01:14.297Z
+date: 2025-01-28T23:33:25.103Z
+updated: 2025-02-01T05:27:15.009Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The iOS 14.5 Update: What Does It Do Exactly?
@@ -42,13 +42,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -68,13 +68,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -127,17 +127,24 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-preserve-the-illusion-professional-tactics-for-vr-gaming-logging/"><u>[New] Preserve the Illusion Professional Tactics for VR Gaming Logging</u></a></li>
-<li><a href="https://win-forum.techidaily.com/a-comprehensive-guide-to-deleting-user-accounts-from-windows-10-systems/"><u>A Comprehensive Guide to Deleting User Accounts From Windows 10 Systems</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/comando-essencial-esxcli-para-gestao-eficaz-de-virtual-machines-em-vmware-cli/"><u>Comando Essencial ESXCLI Para Gestão Eficaz De Virtual Machines Em VMWare CLI</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/como-convertir-archivos-mov-a-formato-m4v-online-sin-costo-con-herramientas-de-conversion-seguras/"><u>Cómo Convertir Archivos MOV a Formato M4V Online Sin Costo Con Herramientas De Conversión Seguras</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-responsibility-curbing-covid-19-unverified-claims/"><u>Digital Responsibility: Curbing COVID-19 Unverified Claims</u></a></li>
-<li><a href="https://win-able.techidaily.com/effective-techniques-for-integrating-data-tables-into-microsoft-excel-charts/"><u>Effective Techniques for Integrating Data Tables Into Microsoft Excel Charts</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-build-a-memorable-facebook-timeline/"><u>How to Build a Memorable Facebook Timeline</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-oppo-reno-9a-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Oppo Reno 9A Unlock Without Password</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/like-count-anonymity-the-new-standard-for-fbig-users/"><u>Like Count Anonymity: The New Standard for FB/IG Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeking-truth-in-hate-for-global-network-engagement-tools/"><u>Seeking Truth in Hate for Global Network Engagement Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/truth-in-ai-is-chatgpt-reliable/"><u>Truth in AI: Is ChatGPT Reliable?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-ace-the-art-of-digital-photography-with-lunapic/"><u>[Updated] Ace the Art of Digital Photography with LunaPic</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-posting-videos-on-instagram-easy/"><u>[Updated] In 2024, Posting Videos on Instagram Easy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-craft-your-vision-essential-windows-10-tips-for-future-directors/"><u>2024 Approved Craft Your Vision Essential Windows 10 Tips for Future Directors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/7-pulse-pounding-workouts-that-gain-traction-on-social-media-for-2024/"><u>7 Pulse-Pounding Workouts That Gain Traction on Social Media for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/a-comprehensive-look-at-vlc-recorder/"><u>A Comprehensive Look at VLC Recorder</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-duplicitous-online-barter-schemes-on-facebook/"><u>Deciphering Duplicitous Online Barter Schemes on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-fbcta-implications-for-internet-use/"><u>Deciphering FBCTA: Implications for Internet Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-public-antipathy-towards-social-media-ecosystems/"><u>Deciphering Public Antipathy Towards Social Media Ecosystems</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-revenue-plan-with-song-royalties/"><u>Decoding Facebook's Revenue Plan with Song Royalties</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-use-ceiling-for-facebooks-neighborhood-users/"><u>Decoding the Use Ceiling for Facebook's Neighborhood Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-downtime-social-networking-havoc-strikes/"><u>Digital Downtime: Social Networking Havoc Strikes</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-e-commerce-algos-know-you-better-than-friends/"><u>Do E-Commerce Algos Know You Better Than Friends?</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-results-with-key-business-meta-tools-and-strategies/"><u>Driving Results with Key Business Meta Tools and Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-traffic-and-interaction-post-tactics-via-ripl/"><u>Driving Traffic and Interaction: Post Tactics via Ripl</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/eyelaughs-funny-image-generator-for-2024/"><u>EyeLaughs Funny Image Generator for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-nokia-c110-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nokia C110 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solution-guide-how-to-restore-your-utorrents-ability-to-connect-and-download-torrents-correctly/"><u>Solution Guide: How to Restore Your uTorrent's Ability to Connect & Download Torrents Correctly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-watching-dvds-on-your-samsung-galaxy-s4/"><u>Step-by-Step Guide: Watching DVDs on Your Samsung Galaxy S4</u></a></li>
 </ul></div>
 

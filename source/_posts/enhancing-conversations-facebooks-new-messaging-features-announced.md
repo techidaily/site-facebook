@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Conversations: Facebook's New Messaging Features Announced"
-date: 2025-01-23T22:12:26.016Z
-updated: 2025-01-24T23:24:23.099Z
+date: 2025-01-30T06:17:20.489Z
+updated: 2025-02-01T06:26:26.142Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,18 +83,18 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-cheapest-alternatives-to-androids-facetime/"><u>[New] Cheapest Alternatives to Android's FaceTime</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-unwanted-statuses-8-top-removal-techniques/"><u>Banishing Unwanted Statuses: 8 Top Removal Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-cryptic-signals-facebooks-re-branding/"><u>Deciphering the Cryptic Signals: Facebook’s Re-Branding?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ensuring-persistence-in-chatgpt-discussions/"><u>Ensuring Persistence in ChatGPT Discussions</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-find-recently-watched-videos-on-facebook/"><u>How to Find Recently Watched Videos on Facebook</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-oneplus-11-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For OnePlus 11 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-chats-end-in-december-what-to-expect/"><u>Instagram Chats End in December: What to Expect</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-the-merits-and-demerits-of-social-logins-via-facebook-network/"><u>Investigating the Merits & Demerits of Social Logins via Facebook Network</u></a></li>
-<li><a href="https://driver-download.techidaily.com/microsofts-official-guide-updating-and-downloading-bluetooth-drivers-for-windows-operating-systems/"><u>Microsoft's Official Guide: Updating and Downloading Bluetooth Drivers for Windows Operating Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-profiles-vs-twitter-ids-essential-guide/"><u>Navigating Facebook Profiles vs Twitter IDs: Essential Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723008322996-no-more-frustration-resolving-persistent-dirt-5-crashes-on-windows-machines/"><u>No More Frustration: Resolving Persistent Dirt 5 Crashes on Windows Machines</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/perfecting-sound-levels-in-recordings-step-by-step-guide/"><u>Perfecting Sound Levels in Recordings Step-by-Step Guide</u></a></li>
-<li><a href="https://win-premium.techidaily.com/uncovering-the-reasons-behind-your-sound-cards-distortion-and-crackling-issues-a-deep-dive-by-yl-computing/"><u>Uncovering the Reasons Behind Your Sound Card's Distortion and Crackling Issues: A Deep Dive by YL Computing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-revive-the-unseen-watch-video-icon-on-fb/"><u>[New] 2024 Approved Revive the Unseen Watch Video Icon on FB</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-list-15-must-watch-unboxing-channels/"><u>[New] Ultimate List 15 Must-Watch Unboxing Channels</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-skyrocketing-revenue-mastering-video-monetization-everywhere-for-2024/"><u>[Updated] Skyrocketing Revenue Mastering Video Monetization Everywhere for 2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/automatische-sicherungsmethode-wahrend-der-neustarts-in-windows-111087-professionelle-losungen-erklart/"><u>Automatische Sicherungsmethode Während Der Neustarts in Windows 11/10/8/7 – Professionelle Lösungen Erklärt</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixed-top-10-tips-for-restoring-cellular-data-on-your-iphone/"><u>Fixed! Top 10 Tips For Restoring Cellular Data On Your iPhone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-google-pixel-7a-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Google Pixel 7a Face Lock?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-delete-icloud-account-with-or-without-password-from-your-iphone-se-2020windowsmac-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account with or without Password from your iPhone SE (2020)/Windows/Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-personal-inbox-a-guide-to-minimizing-contacts/"><u>Limiting Personal Inbox: A Guide to Minimizing Contacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-avoiding-shadowbanned-content/"><u>Mastering the Art of Avoiding Shadowbanned Content</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-top-glitch-video-editing-software-for-windows-and-mac-free-and-paid-options-for-2024/"><u>New Top Glitch Video Editing Software for Windows and Mac Free and Paid Options for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/owning-facebook-the-current-face/"><u>Owning Facebook: The Current Face</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-the-hate-layers-of-social-media-networks/"><u>Peeling Back the Hate Layers of Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-secrets-the-privacy-paradox-of-fb/"><u>Unlocking Secrets: The Privacy Paradox of FB</u></a></li>
 </ul></div>
 

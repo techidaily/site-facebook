@@ -1,7 +1,7 @@
 ---
 title: Carolyn Everson Announces Her Stepping Down From FB
-date: 2024-08-15T18:39:40.887Z
-updated: 2024-08-16T18:39:40.887Z
+date: 2025-01-30T00:42:29.082Z
+updated: 2025-02-01T07:45:59.935Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8
 
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Loses Its Top Ad Executive
 
  Carolyn Everson, now former vice president of Facebook's Global Business Group, has [posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8
  "I am extremely proud of what we set out to accomplish but way more proud of my team and the support we showed each other, especially in difficult times," Everson writes. "I am very much looking forward to starting a new chapter."
 
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
@@ -44,13 +52,15 @@ thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
@@ -59,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8
 
  It's a role with a lot of responsibilities, and thus, a lot of stress. We'll have to wait and see whether this'll cause any major changes to the company's operations.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,6 +82,24 @@ thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-bring-laughter-to-life-with-adobe-meme-tools/"><u>[Updated] Bring Laughter to Life with Adobe Meme Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-leveraging-famebit-strategies-for-effective-youtube-sponsors/"><u>[Updated] In 2024, Leveraging FameBit Strategies for Effective YouTube Sponsors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-making-a-lasting-impression-with-profile-clips/"><u>[Updated] Making a Lasting Impression with Profile Clips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-win10-screen-grabbing-top-quality-captures/"><u>[Updated] Win10 Screen Grabbing - Top Quality Captures</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/anticipated-launch-of-apples-residential-bot-updates-on-cost-availability-specifications-and-latest-gossip/"><u>Anticipated Launch of Apple's Residential Bot: Updates on Cost, Availability, Specifications & Latest Gossip</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145823817-bitcoin-named-as-zucks-unconventional-goat-companion/"><u>Bitcoin Named as Zuck's Unconventional Goat Companion</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-guide-to-clearing-facebooks-notification-cache/"><u>Effortless Guide to Clearing Facebook's Notification Cache</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/embellish-videos-and-stories-with-charts-notes-and-more/"><u>Embellish Videos & Stories with Charts, Notes & More</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-our-favorite-online-spaces/"><u>Explore Our Favorite Online Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cmo-resignation-new-chapter-ahead/"><u>Facebook CMO Resignation: New Chapter Ahead</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-x-fold-2-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo X Fold 2 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-audience-interaction-on-fb/"><u>Maximizing Audience Interaction on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinvigorating-your-fb-profiles-digital-space/"><u>Reinvigorating Your FB Profile's Digital Space</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ess-transition-transferring-exclusive-youtube-content-to-gmail-for-2024/"><u>Seamless Transition Transferring Exclusive YouTube Content to Gmail for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-excising-extraneous-comments-in-fb-groups/"><u>Strategies for Excising Extraneous Comments in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-mechanics-behind-music-royalties-on-facebook/"><u>Unpacking the Mechanics Behind Music Royalties on Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/zoom-optimization-techniques-for-windows-11-users/"><u>Zoom Optimization Techniques for Windows 11 Users</u></a></li>
+</ul></div>
 

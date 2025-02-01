@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2025-01-20T20:21:52.790Z
-updated: 2025-01-24T18:35:40.445Z
+date: 2025-01-31T05:04:29.492Z
+updated: 2025-01-31T18:25:22.427Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -101,20 +101,19 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-lessons-in-motion-mastering-classroom-editing/"><u>[New] 2024 Approved Lessons in Motion Mastering Classroom Editing</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-leading-tech-for-group-virtual-engagement-for-2024/"><u>[New] Leading Tech for Group Virtual Engagement for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-oneclickfreeze-easy-screen-recording-quit-for-2024/"><u>[Updated] OneClickFreeze Easy Screen Recording Quit for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/audiophiles-pathway-starting-with-the-fade-in-functionality-for-2024/"><u>Audiophile's Pathway Starting with the Fade-In Functionality for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-income-with-effective-youtube-short-strategies/"><u>Boosting Income with Effective Youtube Short Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-back-to-when-i-embarked-on-social-medias-vast-sea-facebook/"><u>Charting Back to When I Embarked on Social Media's Vast Sea - Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/chat-chiselwork-shaping-styles-with-typography-tweaks/"><u>Chat Chiselwork: Shaping Styles with Typography Tweaks</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-3-ways-to-export-contacts-from-apple-iphone-7-plus-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 3 Ways to Export Contacts from Apple iPhone 7 Plus to Excel CSV & vCard Easily | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a24-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A24 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-digital-connections-the-premier-20-networking-platforms/"><u>Leading Digital Connections: The Premier 20 Networking Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-age-of-romance-insights-from-facebooks-update/"><u>Navigating the Digital Age of Romance: Insights From Facebook’s Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-quests-account-privacy-meta-or-fb/"><u>Oculus Quest's Account Privacy: Meta or FB?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/pros-and-cons-of-investing-in-a-ps5-console-is-it-a-smart-choice/"><u>Pros and Cons of Investing in a PS5 Console: Is It a Smart Choice?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211181674-9798889840657-psychedelics-and-the-soul/"><u>Psychedelics and the Soul | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/simple-steps-for-adding-contacts-in-fb-messaging/"><u>Simple Steps for Adding Contacts in FB Messaging</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-triumph-over-tiktoks-unseen-ban-barriers/"><u>[New] 2024 Approved Triumph Over TikTok's Unseen Ban Barriers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unseen-underpinnings-of-user-interface-craftsmanship/"><u>[New] Unseen Underpinnings of User Interface Craftsmanship</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-5-mac-videography-tools-unleashed-in-sierra-os/"><u>[Updated] In 2024, Top 5 Mac Videography Tools Unleashed in Sierra OS</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exclusive-look-at-apples-latest-upgrades-for-all-airpods-lineup-reveal-the-top-four-must-have-improvements/"><u>Exclusive Look at Apple's Latest Upgrades for All AirPods Lineup – Reveal the Top Four Must-Have Improvements</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fb-events-as-a-key-tool-for-organizing-activities/"><u>Exploring FB Events as a Key Tool for Organizing Activities</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-(securityfacebookmailcom)-legitimate/"><u>Is the Facebook Protect Email From <Security@facebookmail.com> Legitimate?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/leading-mobile-and-desktop-photography-sync-tools-apple-ecosystem-edition/"><u>Leading Mobile & Desktop Photography Sync Tools: Apple Ecosystem Edition</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/obtain-your-startech-usb-video-graphics-adapter-drivers-included/"><u>Obtain Your StarTech USB Video Graphics Adapter - Drivers Included!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-club-rollout-in-status-updates-on-social-media/"><u>The Complete Club Rollout in Status Updates on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-behind-snapchat-messenger-and-instagram-outages/"><u>The Mystery Behind Snapchat, Messenger & Instagram Outages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-new-intel-kingpin-core-i7-14700k-shines-with-a-7-single-core-supremacy-over-competitor-core-ultra-7-arrow-lake-chip-dominates-benchmarks/"><u>The New Intel Kingpin: Core I7-14700K Shines with a 7% Single-Core Supremacy over Competitor Core Ultra 7 - Arrow Lake Chip Dominates Benchmarks!</u></a></li>
+<li><a href="https://win11.techidaily.com/ultimate-savings-612-annual-windows-10-lifetime/"><u>Ultimate Savings: $6.12 Annual Windows 10 Lifetime</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-crypto-stablecoins-definitions-and-dynamics/"><u>Unveiling Crypto Stablecoins: Definitions and Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-oversight-committee-powers/"><u>Unveiling Facebook’s Oversight Committee Powers</u></a></li>
 </ul></div>
 

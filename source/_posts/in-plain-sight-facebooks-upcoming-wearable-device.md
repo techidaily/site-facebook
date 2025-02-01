@@ -1,7 +1,7 @@
 ---
 title: "In Plain Sight: Facebook's Upcoming Wearable Device"
-date: 2025-01-21T17:42:01.307Z
-updated: 2025-01-24T23:04:57.856Z
+date: 2025-01-27T00:21:09.091Z
+updated: 2025-01-31T18:49:16.662Z
 tags:
   - facebook
 categories:
@@ -31,12 +31,16 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### A Dual-Camera System
 
  The Facebook smartwatch will likely have two cameras. The front camera allows users to make video calls. While the other camera, on the back, can be detached from the steel frame and used for capturing images and videos. The rear 1080p camera with autofocus allows you to capture high-quality images.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Integration with Facebook Apps
 
@@ -44,28 +48,24 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### LTE Connectivity
 
  Facebook wants its watch to work without the need of pairing it with any smartphone. To that end, Facebook is partnering up with US-based wireless service providers to provide LTE connectivity to its new smartwatch. That partnership means that you’d be able to buy the watch from a wireless carrier's store.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fitness Tracking
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
  Rumors also suggest that the watch allows integration with apps and devices from fitness companies like Peloton. As the device will have LTE connectivity, you would be able to leave your phone behind when working out or jogging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price, Launch Date, and News
@@ -78,13 +78,13 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
  These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the[AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Competition and Concerns
 
 ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
 
@@ -113,22 +113,18 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-capturing-clarity-a-look-at-screensnapelite/"><u>[New] Capturing Clarity A Look at 'ScreenSnapElite'</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-essential-websites-to-drive-youtube-engagement/"><u>[New] Essential Websites to Drive YouTube Engagement</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-vs-dailymotion-key-platform-distinctions/"><u>[Updated] In 2024, YouTube Vs. Dailymotion Key Platform Distinctions</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-tools-that-simplify-your-content-publishing-cycle/"><u>10 Tools That Simplify Your Content Publishing Cycle</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-worrying-aspects-of-the-metaverse-on-facebook/"><u>3 Worrying Aspects of the Metaverse on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/defining-artificial-intelligence-power-and-potential/"><u>Defining Artificial Intelligence: Power & Potential</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-payment-plan-paves-way-for-artists-financial-freedom/"><u>Facebook’s Payment Plan Paves Way for Artists’ Financial Freedom</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-add-contacts-to-facebook-messenger/"><u>How to Add Contacts to Facebook Messenger</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-15-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 15 Without iTunes</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-event-creation-on-facebook-with-ease/"><u>Navigating Event Creation on Facebook with Ease</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/no-sound-troubleshooting-guide-for-windows-users-by-yl-software-experts/"><u>No Sound Troubleshooting Guide for Windows Users by YL Software Experts</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/recovering-nikons-damaged-video-recordings/"><u>Recovering Nikon's Damaged Video Recordings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-evolution-of-music-revenue-sharing-on-facebook/"><u>The Evolution of Music Revenue Sharing on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-invisible-layers-etiquette-and-norms-in-fb-connections/"><u>The Invisible Layers: Etiquette and Norms in FB Connections</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/yearly-review-how-sourav-joshi-achieved-success-on-youtube-by-2024/"><u>Yearly Review How Sourav Joshi Achieved Success on YouTube by 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-raw-footage-to-professionals-finest-a-gopro-journey/"><u>[New] In 2024, From Raw Footage to Professionals' Finest A Gopro Journey</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-swiftly-remove-live-videos-on-social-platforms/"><u>[New] In 2024, Swiftly Remove Live Videos on Social Platforms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-bridging-social-platforms-a-guide-for-linktree-on-tiktok-profiles-for-2024/"><u>[Updated] Bridging Social Platforms A Guide for Linktree on TikTok Profiles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-your-voice-in-the-social-sphere-using-ripl/"><u>Amplifying Your Voice in the Social Sphere Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-outcome-when-will-fbs-ruling-on-trump-be-revealed/"><u>Anticipating the Outcome: When Will FB's Ruling on Trump Be Revealed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-decides-its-path-no-mimicking-of-facebooks-metaverse/"><u>Apple Decides Its Path, No Mimicking of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-virtual-vendetta-precautionary-tips-against-social-media-swindles/"><u>Avoiding Virtual Vendetta: Precautionary Tips Against Social Media Swindles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/8-youtube-thumbnail-grabbers-you-should-know/"><u>Best 8 YouTube Thumbnail Grabbers You Should Know</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/blurring-techniques-for-cleaner-image-edits/"><u>Blurring Techniques for Cleaner Image Edits</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-tailored-online-avatar-scope/"><u>Crafting a Tailored Online Avatar Scope</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-apple-iphone-13-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile Apple iPhone 13 online without SIM Card?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essence-of-podcast-marketing-creating-effective-feeds-for-2024/"><u>The Essence of Podcast Marketing Creating Effective Feeds for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-choosing-home-energy-backup-systems-for-2ebr2024-in-depth-analysis-and-ratings-zdnet/"><u>Ultimate Guide to Choosing Home Energy Backup Systems for 2Ebr2024: In-Depth Analysis and Ratings | ZDNET</u></a></li>
 </ul></div>
 

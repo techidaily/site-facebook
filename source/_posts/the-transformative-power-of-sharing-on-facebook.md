@@ -1,7 +1,7 @@
 ---
 title: The Transformative Power of 'Sharing' On Facebook
-date: 2025-01-14T16:28:10.467Z
-updated: 2025-01-18T16:12:06.080Z
+date: 2025-01-25T07:19:54.600Z
+updated: 2025-01-31T22:52:51.987Z
 tags:
   - facebook
 categories:
@@ -41,12 +41,16 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
 [Social media brings us closer to each other](https://www.makeuseof.com/ways-social-media-brings-people-together/) —and Facebook is the best example of this phenomenon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Connecting Our Past and Present
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
@@ -56,15 +60,15 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
  Some of these tools are free, like Facebook Pages and Groups, while others are paid, like Facebook Ads. But even with just the free tools, many entrepreneurs found success through the social media platform.
 
  Again, this tool was crucial during the pandemic, when many who've lost their jobs turned to online entrepreneurship to get them through the global lockdowns.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ways Facebook Has Worsened Our Lives
 
@@ -72,33 +76,29 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
 
 So, what are some of the biggest things that affected us negatively?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Increased Polarization
 
@@ -131,16 +131,18 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-ensuring-data-privacy-while-transforming-youtube-video-audio-to-mp3/"><u>[New] 2024 Approved Ensuring Data Privacy While Transforming YouTube Video Audio to MP3</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-fact-vs-fiction-decoding-the-world-of-instagram-reels/"><u>[New] In 2024, Fact vs Fiction Decoding the World of Instagram Reels</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-the-moments-reel-slomo-app-analysis-2024/"><u>[Updated] Mastering the Moment's Reel SloMo App Analysis, 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-the-top-10-ways-to-improve-fb-page-rankings/"><u>2024 Approved Navigating the Top 10 Ways to Improve FB Page Rankings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-youtube-to-igtv-migration-step-by-step-guide/"><u>2024 Approved YouTube-to-IGTV Migration Step-by-Step Guide</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210965013-9781685623067-a-seagull-named-papa/"><u>A Seagull Named Papa | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/global-spots-off-limits-no-facebook-access-here/"><u>Global Spots Off-Limits: No Facebook Access Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-get-clients-on-facebook-for-work/"><u>How to Get Clients on Facebook for Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-content-timing-on-the-web/"><u>Mastering Content Timing on the Web</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nokia-lumia-7-plus-evaluation-outshining-competitors-in-the-budget-segment/"><u>Nokia Lumia 7 Plus Evaluation: Outshining Competitors in the Budget Segment</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-silent-departure-4-compelling-reasons-for-less-visitors-on-fb/"><u>The Silent Departure: 4 Compelling Reasons for Less Visitors on FB</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722978938347-easy-get-your-xbox-wireless-adapter-drivers-installed-in-minutes/"><u>[EASY] Get Your Xbox Wireless Adapter Drivers Installed in Minutes!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-ultimate-guide-fbx-free-gametime-tracking/"><u>[New] 2024 Approved The Ultimate Guide FBX-Free Gametime Tracking</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-fix-lonely-beats-airpod-solution/"><u>[Updated] In 2024, Fix Lonely Beats Airpod Solution</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-through-youtube-shorts-knowledge/"><u>2024 Approved Navigating Through YouTube Shorts Knowledge</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-journey-through-the-metaverse-landscape/"><u>Facebook's Journey Through the Metaverse Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-challenge-in-the-wake-of-ios-145/"><u>Facebook's New Challenge in the Wake of iOS 14.5</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-13-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 13 Pro Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209704925-9781632658203-kitchen-witchs-guide-to-divination/"><u>Kitchen Witch's Guide to Divination | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-learning-with-poll-based-questions/"><u>Maximizing Social Learning with Poll-Based Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-pledges-support-against-global-virus-threat/"><u>Social Media Pledges Support Against Global Virus Threat</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-disclosures-in-facebook-papers-released/"><u>The Essential Disclosures in Facebook Papers Released</u></a></li>
+<li><a href="https://win-able.techidaily.com/transform-your-photos-into-masterpieces-with-office-2010s-design-tools/"><u>Transform Your Photos Into Masterpieces with Office 2010'S Design Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-quality-comparison-mirrorless-or-dslr-cameras-in-2024/"><u>Video Quality Comparison Mirrorless or DSLR Cameras, In 2024</u></a></li>
 </ul></div>
 

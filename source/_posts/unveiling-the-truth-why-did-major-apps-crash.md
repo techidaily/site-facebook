@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Truth: Why Did Major Apps Crash?"
-date: 2025-01-17T16:25:32.005Z
-updated: 2025-01-18T16:18:09.695Z
+date: 2025-01-27T23:14:27.070Z
+updated: 2025-01-31T22:56:24.213Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/035705869a176d12c457c62dcd5ac8433382a242d
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,18 +51,20 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/harting-your-course-through-youtube-compliance-for-2024/"><u>[New] Charting Your Course Through YouTube Compliance for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-cyberlink-vs-alternatives-the-ultimate-recording-showdown/"><u>[New] Cyberlink Vs. Alternatives The Ultimate Recording Showdown</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-14-interesting-text-animation-examples-you-can-try/"><u>[New] In 2024, 14 Interesting Text Animation Examples You Can Try</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/copyright-rules-for-screenshotting-and-archiving-youtube-videos-for-2024/"><u>Copyright Rules for Screenshotting and Archiving YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/guardians-against-gimmicks-recognizing-counterfeit-profiles/"><u>Guardians Against Gimmicks: Recognizing Counterfeit Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/guidelines-to-recover-from-deactivated-facebook-accounts/"><u>Guidelines to Recover From Deactivated Facebook Accounts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-take-a-break-from-being-facebook-friends-with-someone/"><u>How to Take a Break From Being Facebook Friends With Someone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premium-5-filters-boosting-oceanic-imaging/"><u>Premium 5 Filters Boosting Oceanic Imaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/sailing-societies-turn-off-digital-masts/"><u>Sailing Societies Turn Off Digital Masts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-warfare-against-covid-19-through-fb-and-twitter/"><u>Social Warfare Against COVID-19 Through FB & Twitter</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/visionary-graphs-on-upcoming-23-trends/"><u>Visionary Graphs on Upcoming '23 Trends</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-resolving-partial-muting-in-facebook-video-chats-updated-guide-for-2024/"><u>[New] Resolving Partial Muting in Facebook Video Chats (Updated Guide) for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-photo-grandeur-with-our-best-grid-apps-list/"><u>2024 Approved Photo Grandeur with Our Best Grid Apps List</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/deciphering-and-addressing-error-0x80004005-a-troubleshooting-blueprint/"><u>Deciphering and Addressing Error 0X80004005 – A Troubleshooting Blueprint</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/decoding-the-differences-between-iphone-15-pro-max-vs-samsung-s24-ultra-smartphone-showdown/"><u>Decoding the Differences Between iPhone 15 Pro Max Vs. Samsung S24 Ultra Smartphone Showdown</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/does-ai-solve-advanced-mathematics/"><u>Does AI Solve Advanced Mathematics?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-seamlessly-share-media-files-between-whatsapp-youtube-and-mobile-devices/"><u>How to Seamlessly Share Media Files Between WhatsApp, YouTube, and Mobile Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/modern-techniques-to-tackle-non-responsive-rust-applications-pro-tips/"><u>Modern Techniques to Tackle Non-Responsive Rust Applications - Pro Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-path-to-compromised-data-security/"><u>The Veiled Path to Compromised Data Security</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-and-managing-your-online-bandwidth-expenditure/"><u>Understanding & Managing Your Online Bandwidth Expenditure</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-birthday-reminders-in-your-fb-timeline/"><u>Unearthing Birthday Reminders in Your FB Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocked-facebook-offers-complete-control-of-oculus-go-to-devices/"><u>Unlocked: Facebook Offers Complete Control of Oculus Go to Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-connections-start-with-facebook-dating/"><u>Unlocking Social Connections: Start with Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-latest-facebook-interface-overhaul/"><u>Unpacking the Latest Facebook Interface Overhaul</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-legality-of-upload-photographs/"><u>Unraveling the Legality of Upload Photographs</u></a></li>
 </ul></div>
 

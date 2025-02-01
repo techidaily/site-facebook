@@ -1,7 +1,7 @@
 ---
 title: Navigating to a Safer Online Experience Without Facebook History
-date: 2025-01-17T16:54:19.520Z
-updated: 2025-01-24T18:08:27.135Z
+date: 2025-01-27T16:50:26.177Z
+updated: 2025-02-01T09:46:14.813Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/80b6560d97681f28de9031de7e7f0da06668db1bd
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -46,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/80b6560d97681f28de9031de7e7f0da06668db1bd
  Enabling Link History allows Meta to track the sites you visited through the Facebook app in the last 30 days. And by doing so, it's able to deliver targeted ads across its apps and services, including Instagram and Threads (both owned by Meta).
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
 
@@ -63,17 +55,29 @@ thumbnail: https://thmb.techidaily.com/80b6560d97681f28de9031de7e7f0da06668db1bd
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -86,16 +90,12 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
@@ -121,14 +121,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-public-melodies-for-calmness-for-2024/"><u>[Updated] Public Melodies for Calmness for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-survey-diverse-categories-in-visual-media-tech/"><u>[Updated] Survey Diverse Categories in Visual Media Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-tech-under-scrutiny-new-anti-monopoly-laws-explained/"><u>Big Tech Under Scrutiny: New Anti-Monopoly Laws Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-the-shadowing-on-your-profile/"><u>Demystifying the Shadowing on Your Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-role-in-the-global-expat-experience-a-dual-perspective/"><u>Facebook's Role in the Global Expat Experience – A Dual Perspective</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/improved-camera-features-the-s21-fe-offers-an-upgraded-camera-system-compared-to-the-original-fan-edition-models-with-better-image-processing-and-additional155/"><u>Improved Camera Features: The S21 FE Offers an Upgraded Camera System Compared to the Original Fan Edition Models, with Better Image Processing and Additional Features Like 4K Video Recording at Higher Frame Rates.</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-understanding-youtubes-revenue-streams/"><u>In 2024, Understanding YouTube's Revenue Streams</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-your-online-presence-for-richer-whatsapp-interactions/"><u>Leveraging Your Online Presence for Richer WhatsApp Interactions</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-the-problem-of-cs-go-failure-to-start/"><u>Solving the Problem of CS: GO Failure to Start</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-privacy-downloading-facebook-status-videos-for-2024/"><u>[New] Navigating Privacy Downloading Facebook Status Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-simplify-screen-views-transforming-fb-content-for-televisions/"><u>[New] Simplify Screen Views Transforming FB Content for Televisions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-obs-studio-for-ps4-step-by-step-screen-capture-for-2024/"><u>[Updated] Obs Studio for PS4 Step-by-Step Screen Capture for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-2023-shoppers-guide-to-innovative-360-cameras-and-systems/"><u>[Updated] The 2023 Shopper’s Guide to Innovative 360 Cameras & Systems</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ive-content-strategies-for-optimal-youtube-performance-for-2024/"><u>Adaptive Content Strategies for Optimal YouTube Performance for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-fbs-algorithms-for-content-selection/"><u>Deciphering Fb's Algorithms for Content Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/deepen-connections-with-interest-based-chat-games/"><u>Deepen Connections with Interest-Based Chat Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-delight-top-9-uplifting-aspects-of-your-screen-time/"><u>Digital Delight: Top 9 Uplifting Aspects of Your Screen Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-essentials-6-reasons-to-remove-facebook/"><u>Digital Detox Essentials – 6 Reasons to Remove Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-unexpected-connection-proposals-in-facebook/"><u>Disable Unexpected Connection Proposals in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-intentions-unfriending-a-personality-page/"><u>Disconnect Intentions: Unfriending a Personality Page</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-se-2020-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone SE (2020) Storage Not Loading/Showing | Stellar</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-a-comprehensive-compilation-of-top-10-affordable-browser-based-daws/"><u>New 2024 Approved A Comprehensive Compilation of Top 10 Affordable Browser-Based DAWs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-the-new-m1-powered-macbook-pro-16-inch-apples-finest-in-2-cufflinks/"><u>The Definitive Guide to the New M1 Powered MacBook Pro 16 Inch - Apple's Finest in 2 Cufflinks</u></a></li>
 </ul></div>
 

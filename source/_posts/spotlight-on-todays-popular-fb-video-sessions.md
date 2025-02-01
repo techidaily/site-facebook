@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2025-01-22T19:21:39.263Z
-updated: 2025-01-24T18:06:34.006Z
+date: 2025-01-26T02:21:08.943Z
+updated: 2025-02-01T08:08:45.400Z
 tags:
   - facebook
 categories:
@@ -38,17 +38,21 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
 
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -60,7 +64,7 @@ That's it. Here you will find all the recently watched videos.
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
@@ -75,11 +79,11 @@ That's it. Here you will find all the recently watched videos.
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -99,7 +103,7 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
@@ -110,10 +114,6 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -134,22 +134,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-decode-the-mysteries-in-depth-guide-to-stardews-ginger-island/"><u>[New] In 2024, Decode the Mysteries In-Depth Guide to Stardew's Ginger Island</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unlocking-the-full-screen-potential-of-premiere-pro-for-2024/"><u>[Updated] Unlocking the Full Screen Potential of Premiere Pro for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-facebooks-updated-news-feed-structure/"><u>Dissecting Facebook's Updated News Feed Structure</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-visual-storytelling-with-innovative-instagram-video-techniques-for-2024/"><u>Elevate Your Visual Storytelling with Innovative Instagram Video Techniques for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-mirage-deceptive-identity-reproduction/"><u>Facebook Mirage: Deceptive Identity Reproduction</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-image-compromised-in-poll-showcasing-tech-mistrust/"><u>Facebook's Image Compromised in Poll Showcasing Tech Mistrust</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-lava-yuva-3-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Lava Yuva 3 Pro to iPad | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/impending-facebook-enhancement-reels-rooms-in-story-panels/"><u>Impending Facebook Enhancement: Reels, Rooms in Story Panels?</u></a></li>
-<li><a href="https://facebook.techidaily.com/insight-the-rise-of-disenchanted-facebookers/"><u>Insight: The Rise of Disenchanted Facebookers</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/integrating-google-drive-with-slack-a-step-by-step-guide/"><u>Integrating Google Drive with Slack: A Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/microsoft-mouse-driver-update-procedure-for-windows-users/"><u>Microsoft Mouse Driver Update Procedure for Windows Users</u></a></li>
-<li><a href="https://extra-support.techidaily.com/optimizing-conversion-processes-from-xml-to-high-quality-srts-for-2024/"><u>Optimizing Conversion Processes From XML to High-Quality SRTs for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-meets-portability-with-facebooks-new-launch/"><u>Portal Meets Portability with Facebook’s New Launch</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sites-intertwine-fb-insta-unity-emerges/"><u>Social Sites Intertwine: FB, Insta Unity Emerges</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/steam-deck-a-comprehensively-rated-portable-game-device/"><u>Steam Deck: A Comprehensively Rated Portable Game Device?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-guide-to-downloading-gifs-a-step-by-step-approach/"><u>Twitter's Guide to Downloading GIFs A Step-by-Step Approach</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-connectivity-through-facebook-portals/"><u>Unlocking the Potential of Social Connectivity Through Facebook Portals</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-the-art-of-acquiring-facebooks-prestigious-blue-badge/"><u>[New] 2024 Approved Mastering the Art of Acquiring Facebook's Prestigious Blue Badge</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-revenue-calculation-for-every-clicked-video/"><u>[New] Revenue Calculation for Every Clicked Video</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-soften-your-iphone-pics-a-detailed-breakdown-4-ways/"><u>[Updated] How to Soften Your iPhone Pics A Detailed Breakdown (4 Ways)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/clearing-up-freezing-issues-on-pc/"><u>Clearing Up Freezing Issues on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-and-instagram-direct-chats-wont-be-encrypted-until-2022/"><u>Facebook Messenger and Instagram Direct Chats Won't Be Encrypted Until 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-news-to-just-feed-understanding-fbs-strategy/"><u>From News to Just Feed: Understanding FB's Strategy</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-lava-storm-5g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Lava Storm 5G</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-your-actions-preserves-facebook-youtubes-app-availability/"><u>Monitoring Your Actions Preserves Facebook, YouTube's App Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-emotional-and-practical-side-of-account-removal/"><u>Navigating the Emotional and Practical Side of Account Removal</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-unknown-understanding-shadowbanning/"><u>Navigating the Unknown: Understanding Shadowbanning</u></a></li>
+<li><a href="https://facebook.techidaily.com/revising-kids-data-in-facebook-messenger-for-parents/"><u>Revising Kids' Data in Facebook Messenger for Parents</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/screen-recording-issues-on-obs-fixed-now-working-perfectly/"><u>Screen Recording Issues on OBS Fixed – Now Working Perfectly</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comic-strip-conundrum-facebooks-new-policy/"><u>The Comic Strip Conundrum: Facebook’s New Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-your-instagram-from-facebook-a-step-by-step-guide/"><u>Unlinking Your Instagram From Facebook: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

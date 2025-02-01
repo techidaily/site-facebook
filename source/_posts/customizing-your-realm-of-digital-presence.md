@@ -1,7 +1,7 @@
 ---
 title: Customizing Your Realm of Digital Presence
-date: 2024-08-15T18:41:07.066Z
-updated: 2024-08-16T18:41:07.066Z
+date: 2025-01-29T00:36:10.161Z
+updated: 2025-01-31T21:29:51.567Z
 tags:
   - facebook
 categories:
@@ -54,16 +54,24 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 1. On the bar to the right, where your**Contacts** are shown, select the button with three horizontal dots for**Chat settings** .
 2. In the dropdown menu, select**Active Status: ON** .  
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
-![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
 
@@ -75,15 +83,17 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
-![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -98,9 +108,6 @@ Close
 
  You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -126,23 +133,17 @@ This is different from a full Facebook block.
 
  Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
 
  Use the settings in this article to regain some privacy when it comes to whether or not your contact list can see if you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,6 +152,26 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-grab-your-favorite-facebook-videos-today/"><u>[New] 2024 Approved Grab Your Favorite Facebook Videos Today</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-essential-websites-for-digital-graffiti-fonts/"><u>[New] Essential Websites for Digital Graffiti Fonts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-enhancing-visual-dynamics-aps-hdr-techniques/"><u>[Updated] 2024 Approved Enhancing Visual Dynamics APS HDR Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-innovative-approaches-to-surge-engagement-in-your-social-feed/"><u>12 Innovative Approaches to Surge Engagement in Your Social Feed</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-screen-shot-entire-page-view/"><u>2024 Approved Screen Shot Entire Page View</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-access-methods-for-lost-facebook-codes/"><u>Alternative Access Methods for Lost Facebook Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-growing-challenge-to-big-tech-the-new-antitrust-reality/"><u>America's Growing Challenge to Big Tech: The New Antitrust Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzz-quest-navigating-to-this-years-most-popular-social-sites/"><u>Buzz Quest: Navigating to This Year's Most Popular Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-hangouts-positive-interaction-tips-for-fb-friends/"><u>Chill Hangouts: Positive Interaction Tips for FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-the-path-implementing-or-rejecting-meta-ai-on-sites/"><u>Choosing the Path - Implementing or Rejecting Meta AI on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/comfort-in-conciseness-a-guide-for-comment-free-facebook-updates/"><u>Comfort in Conciseness: A Guide for Comment-Free Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/composing-your-personal-brand-visual/"><u>Composing Your Personal Brand Visual</u></a></li>
+<li><a href="https://facebook.techidaily.com/darkening-outlook-what-the-future-holds-for-facebook/"><u>Darkening Outlook: What the Future Holds for Facebook</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-advice-to-fix-apples-infamous-black-screen-of-death-on-your-device/"><u>Expert Advice to Fix Apple's Infamous Black Screen of Death on Your Device</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-free-m4a-editor-downloads-top-5-options/"><u>New 2024 Approved Free M4A Editor Downloads Top 5 Options</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-unbiased-comparison-final-cut-pro-and-lumafusion-for-video-editors/"><u>New 2024 Approved Unbiased Comparison Final Cut Pro and LumaFusion for Video Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-equipment-for-photo-animation/"><u>Premium Equipment for Photo Animation</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/scansnap-s1300i-update-made-easy-fresh-software-download-instructions-inside/"><u>ScanSnap S130^0i Update Made Easy: Fresh Software Download Instructions Inside!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-apples-strategy-how-new-investments-signal-an-ai-future-for-the-iphone-techinsights/"><u>Unveiling Apple's Strategy: How New Investments Signal an AI Future for the iPhone | TechInsights</u></a></li>
+</ul></div>
 

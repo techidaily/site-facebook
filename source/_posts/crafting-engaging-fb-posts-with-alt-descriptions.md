@@ -1,7 +1,7 @@
 ---
 title: Crafting Engaging FB Posts with Alt Descriptions
-date: 2024-08-15T18:38:54.727Z
-updated: 2024-08-16T18:38:54.727Z
+date: 2025-01-28T01:00:48.248Z
+updated: 2025-02-01T02:26:07.222Z
 tags:
   - facebook
 categories:
@@ -39,14 +39,16 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
-![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
+
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -79,29 +81,19 @@ Here’s how you add alt text to images while uploading them:
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
+
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -118,22 +110,20 @@ Close
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make Your Facebook Photos More Accessible
 
  Alt text is an important aspect of making your content accessible to people with vision impairments as well as increasing the potential reach of your photos, if that's your aim.
 
  It’s easy enough to add alternative text to images, both new and old, using the Facebook app or web version. So, the next time you upload a photo to Facebook, consider how everyone can best appreciate it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,6 +132,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-digital-broadcast-face-off-facebook-vs-youtube-and-tweetstreams/"><u>[New] 2024 Approved Digital Broadcast Face-Off FACEbook Vs. YOUTube & TweetStreams</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-hue-harmonization-handbook-for-experts/"><u>[New] Hue Harmonization Handbook for Experts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-reflex-product-assembly-for-2024/"><u>[New] Reflex Product Assembly for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-explore-virtual-lands-the-best-10-smartphone-vr-headsets/"><u>[Updated] Explore Virtual Lands The Best 10 Smartphone VR Headsets</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-framework-to-document-all-online-engagements/"><u>A Step-by-Step Framework to Document All Online Engagements</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-infinite-loading-screen-bottleneck-in-anthem-a-step-by-step-guide/"><u>Beat Infinite Loading Screen Bottleneck in Anthem - A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-ghoster-detector-lost-screen-captures-on-messenger/"><u>Chat Ghoster Detector: Lost Screen Captures on Messenger</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/complete-guide-fixing-the-unable-to-connect-to-windows-activation-services-issue/"><u>Complete Guide: Fixing the 'Unable to Connect to Windows Activation Services' Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-blueprint-for-worldwide-ai-dominance/"><u>Decoding Meta's Blueprint for Worldwide AI Dominance</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-amazon-lawsuit-against-facebook-group-admins/"><u>Dissecting the Amazon Lawsuit Against Facebook Group Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-evolutionary-impact-on-society/"><u>Facebook's Evolutionary Impact on Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-social-media-chatter-deleting-comments-effortlessly/"><u>How to Clear Social Media Chatter: Deleting Comments Effortlessly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-honor-play-40c-by-fonelab-android-recover-video/"><u>How to recover old videos from your Honor Play 40C</u></a></li>
+<li><a href="https://facebook.techidaily.com/imposter-in-the-network-social-scam-alert/"><u>Imposter in the Network: Social Scam Alert</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-resolving-stalled-fb-notifications/"><u>Techniques for Resolving Stalled FB Notifications</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-complete-guide-to-macbook-webcam-recording-for-2024/"><u>The Complete Guide to MacBook Webcam Recording for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/utan-krav-pa-kundan-13-gratis-tips-for-att-gena-movavis-streammote-videoproduktion/"><u>Utan Krav På Kundan: 13 Gratis Tips För Att Gena Movavi's Streammöte Videoproduktion</u></a></li>
+</ul></div>
 

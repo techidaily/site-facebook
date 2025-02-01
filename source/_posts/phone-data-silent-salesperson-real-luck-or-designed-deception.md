@@ -1,7 +1,7 @@
 ---
 title: "Phone Data: Silent Salesperson? Real Luck, Or Designed Deception?"
-date: 2025-01-14T16:17:17.921Z
-updated: 2025-01-18T16:05:00.826Z
+date: 2025-01-27T19:15:15.508Z
+updated: 2025-02-01T03:32:41.573Z
 tags:
   - facebook
 categories:
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -37,7 +33,7 @@ What is going on?
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Does Your Phone Listen to You for Adverts?
@@ -49,7 +45,7 @@ What is going on?
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
@@ -69,7 +65,7 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is My Smartphone Really Listening to Me for Ads?
@@ -100,12 +96,16 @@ What is going on?
 
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
@@ -159,21 +159,22 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-social-media-success-todays-powerful-instagram-tags/"><u>[Updated] 2024 Approved Social Media Success Today's Powerful #Instagram Tags</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-compreayers-guide-to-polishing-youtube-content-via-imovie-editing-techniques/"><u>[Updated] In 2024, A Compreayer's Guide to Polishing YouTube Content via iMovie Editing Techniques</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-trending-memes-galore-unique-themes-for-any-event/"><u>[Updated] In 2024, Trending Memes Galore Unique Themes for Any Event</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-what-does-the-blue-marker-on-fb-chat-reveal/"><u>[Updated] In 2024, What Does the Blue Marker on FB Chat Reveal?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-tiktok-wallpaper-templates-uncovered/"><u>[Updated] Top TikTok Wallpaper Templates Uncovered</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlocking-viral-potential-with-ai-driven-video-titles/"><u>[Updated] Unlocking Viral Potential with AI-Driven Video Titles</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-broadcast-your-location-in-a-chat-room/"><u>How to Broadcast Your Location in a Chat Room</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-honor-90-gt-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interpreting-shifts-in-meaning-for-facebook-page-names/"><u>Interpreting Shifts in Meaning for Facebook Page Names</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-image-permissions/"><u>Navigating Facebook Image Permissions</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-whistleblower-shining-a-light-on-fb-privacy/"><u>The Whistleblower Shining a Light on FB Privacy</u></a></li>
-<li><a href="https://solve-news.techidaily.com/transform-m4a-audio-to-avi-format-instantly-and-for-free-with-movavis-online-tool/"><u>Transform M4A Audio to AVI Format Instantly & for Free with Movavi's Online Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/tuning-up-your-social-media-visibility/"><u>Tuning Up Your Social Media Visibility</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-auditory-balance-expert-tips-on-achieving-even-audio-volume-in-video-formats/"><u>Updated 2024 Approved Auditory Balance Expert Tips on Achieving Even Audio Volume in Video Formats</u></a></li>
-<li><a href="https://facebook.techidaily.com/validation-of-(securityfacebookmailcom)-for-authenticity-and-protection/"><u>Validation of @<security@facebookmail.com> for Authenticity and Protection</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-the-new-us-antitrust-laws-and-how-will-they-takedown-big-tech/"><u>What Are the New US Antitrust Laws and How Will They Takedown Big Tech?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-editors-almanac-key-takeaways-from-filmora-editioning/"><u>[Updated] 2024 Approved The Editor’s Almanac Key Takeaways From Filmora Editioning</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-dimming-down-beats-a-tutorial-for-premiere-pro-editors/"><u>[Updated] In 2024, Dimming Down Beats A Tutorial for Premiere Pro Editors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-maximizing-viewability-and-engagement-understanding-facebook-video-ratios-for-2024/"><u>[Updated] Maximizing Viewability & Engagement Understanding Facebook Video Ratios for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-y36i-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo Y36i to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-honor-90-gt-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Honor 90 GT Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-convenience-with-easy-to-modify-fb-links/"><u>Enhance Convenience with Easy-to-Modify FB Links</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-epson-wf-7710-printer-running-smoothly-download-latest-windows-10-compatible-drivers/"><u>Get Your EPSON WF-7710 Printer Running Smoothly: Download Latest Windows 10 Compatible Drivers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/hiberfilsys-file-in-windows-10-expert-guide-on-removal/"><u>Hiberfil.sys File in Windows 10: Expert Guide on Removal</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-challenge-traditional-ai-dialogue-tools/"><u>How Does MetaAI Challenge Traditional AI Dialogue Tools?</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-facebook-security-essential-privacy-strategies/"><u>Maximize Facebook Security: Essential Privacy Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-the-metaverse-is-it-superior-to-facebooks-rift-2/"><u>Privacy in the Metaverse: Is It Superior to Facebook's Rift 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-your-online-identity-on-facebook-unpredictably/"><u>Reclaiming Your Online Identity on Facebook Unpredictably</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-content-circulation-facebook-listens-to-user-voices/"><u>Rethinking Content Circulation: Facebook Listens to User Voices</u></a></li>
+<li><a href="https://windows11.techidaily.com/revealing-the-make-of-your-windows-machine-in-six-steps/"><u>Revealing the Make of Your Windows Machine in Six Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pros-and-cons-of-joining-an-expat-group-on-facebook/"><u>The Pros and Cons of Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-societys-scorn-towards-online-friendship-groups/"><u>The Puzzle: Society's Scorn Towards Online Friendship Groups</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-vivo-y56-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo Y56 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

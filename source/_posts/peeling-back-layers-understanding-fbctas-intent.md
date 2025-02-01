@@ -1,7 +1,7 @@
 ---
 title: "Peeling Back Layers: Understanding FBCTA's Intent"
-date: 2025-01-16T16:31:11.427Z
-updated: 2025-01-18T16:30:21.941Z
+date: 2025-01-28T03:50:35.249Z
+updated: 2025-02-01T00:19:07.764Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is the Filter Bubble Transparency Act?
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 ![courtroom gavel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/courtroom-gavel-judge.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How the Filter Bubble Transparency Act Could Affect You
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Personalized Algorithms Become a Thing of the Past?
@@ -101,20 +101,17 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-top-5-audio-experiences-on-iphones/"><u>[New] Top 5 Audio Experiences on iPhones</u></a></li>
-<li><a href="https://driver-download.techidaily.com/amd-support-quick-and-easy-driver-downloads-with-auto-configure-feature/"><u>AMD Support: Quick and Easy Driver Downloads with Auto-Configure Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-subconscious-dialogues-in-facebook-messages/"><u>Exploring Subconscious Dialogues in Facebook Messages</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-sony-xperia-1-v-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Sony Xperia 1 V to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-infinix-zero-5g-2023-turbo-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Infinix Zero 5G 2023 Turbo in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ipad-youtube-ban-tutorial-for-parents-and-guardians/"><u>IPad YouTube Ban Tutorial for Parents and Guardians</u></a></li>
-<li><a href="https://facebook.techidaily.com/pause-or-play-trumps-platform-prospects/"><u>Pause or Play? Trump's Platform Prospects</u></a></li>
-<li><a href="https://facebook.techidaily.com/status-syndicate-which-platform-claims-the-highest-honor-meta-or-twitter/"><u>Status Syndicate: Which Platform Claims the Highest Honor, Meta or Twitter?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-recording-reviewing-every-fb-engagement-you-have-made/"><u>The Explorer's Blueprint: Recording, Reviewing Every Fb Engagement You Have Made</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-illusion-of-influence-user-interface-tactics/"><u>The Illusion of Influence: User Interface Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-insiders-tactic-blocking-all-comments-on-fb/"><u>The Insider's Tactic: Blocking All Comments on FB</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-diy-constructing-an-ice-chilled-living-room-computer-tower-expert-tips-from-toms-hardware/"><u>The Ultimate DIY: Constructing an Ice-Chilled Living Room Computer Tower - Expert Tips From Tom's Hardware</u></a></li>
-<li><a href="https://facebook.techidaily.com/tune-into-music-effortlessly-spotify-and-the-miniplayer-in-facebook-app/"><u>Tune Into Music Effortlessly - Spotify and the Miniplayer in Facebook App</u></a></li>
-<li><a href="https://some-tips.techidaily.com/ultimate-guide-to-choosing-an-airtag-wallet-ratings-and-recommendations-by-professionals/"><u>Ultimate Guide to Choosing an AirTag Wallet – Ratings & Recommendations by Professionals</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/wirecast-strategies-for-successful-social-media-livestreams-for-2024/"><u>Wirecast Strategies for Successful Social Media Livestreams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-swift-solution-mastering-the-art-of-image-to-thumbnail-transformation/"><u>[New] 2024 Approved Swift Solution Mastering the Art of Image-To-Thumbnail Transformation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-a-step-by-step-journey-through-the-landscape-of-instagram-reels/"><u>[Updated] A Step-by-Step Journey Through the Landscape of Instagram Reels</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-zero-to-hero-with-photoshop-basics-in-snapseed/"><u>[Updated] From Zero to Hero with Photoshop Basics in Snapseed</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-vivavideo-app-review-for-2024/"><u>[Updated] VivaVideo App Review for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-realme-gt-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-social-sweep-effective-tools-to-manage-your-online-communities/"><u>Facebook's Social Sweep: Effective Tools to Manage Your Online Communities</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/muting-problem-solutions-for-obs-sound-capture/"><u>Muting Problem Solutions for OBS Sound Capture</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-blocked-verification-codes-in-login-process-facebook/"><u>Overcoming Blocked Verification Codes in Login Process (Facebook)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-8-critical-moves-before-ending-your-fb-journey/"><u>The 8 Critical Moves Before Ending Your FB Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-downward-spiral-of-facebooks-active-users/"><u>The Downward Spiral of Facebook's Active Users</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-ipad-productivity-apps-streamline-your-tasks-and-enhance-efficiency-on-the-go-insights/"><u>Top iPad Productivity Apps: Streamline Your Tasks & Enhance Efficiency on the Go - Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/vimeo-vs-youtube-a-content-creators-guide-for-2024/"><u>Vimeo Vs. YouTube A Content Creator's Guide for 2024</u></a></li>
 </ul></div>
 

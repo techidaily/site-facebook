@@ -1,7 +1,7 @@
 ---
 title: "Social Media Savvy: Making Ethical Choices Online"
-date: 2025-01-13T16:07:20.143Z
-updated: 2025-01-18T16:16:57.228Z
+date: 2025-01-26T21:05:03.515Z
+updated: 2025-01-31T18:37:39.891Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Open Wall Popularity
 
 ![A brick wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/brick-wall.jpg)
@@ -38,13 +34,13 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
  To be honest, this isn't a bad idea. However, this offers just one more way for consumers to get sucked into loads of advertised promises. Once they know that a company is personal, they are more inclined to trust this company. In short, it's the modern-day equivalent to the old mom-and-pop stores where the owner knows everyone's name. Besides that, certain posts and comments addressing issues by the business are more likely to be shared.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Representation Through Images
 
 ![A collage of images](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/collage-images.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Images are a serious tool for getting things done in the Facebook marketing world. In fact, you could consider them to be a bit like billboards on your news feed. However, Facebook has a few guidelines for certain images that businesses post—else, they can get in a bit of trouble.
 
@@ -58,31 +54,39 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 ![A megaphone with a blue sky background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/megaphone-blue-sky.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Whenever you look at Facebook business pages, you'll see loads of "Like or share" posts. This is known as a "call to action" (CTA) because it requests that users do something. CTAs are not just featured on[different types of landing pages](https://www.makeuseof.com/10-types-of-landing-pages-and-when-to-use-them/) , but right on social media in many little ways.
 
  Typically speaking, traditional calls to action are something along the lines of "Call for more information" or "Shoot us an email" so they can make a connection with you. In this case, the company is connecting with you and using you as a means of free advertising.
 
  Sometimes, as with the case of the images, there may be no call to action. The company may simply share an inspiring status update or a hilarious image, knowing that for some reason some users will feel the need to like or share it. You see, Facebook has already established the call to action for them. It's right there under every post: Share or Like.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Event RSVPs
 
 ![An image of an email with a Tick and Cross either side](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/rsvp-invite.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Signing up to events on RSVPs typically displays on your profile. This can give marketers information on what type of events you go to and in turn what topics you might be into, until the result is a fairly accurate picture of what type of marketing might work on you.
 
  You could confirm attendance at events through private messages rather than RSVPing through Facebook. Knowing[how to make your Facebook private](<http://Update> Summary Introduction - Minor changes Open Wall Popularity - Removed outdated internal link & image. Minor changes to text Representation Through Images - No changes, just removed italics for a few words and removed image A Call To Action - Same as above Facebook Groups - Added section Event RSVPs - Added section Update Estimation: 30 %) in general is helpful when trying to give less away to marketers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Groups
 
 ![The Facebook icon and a vector of a group of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-groups.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Facebook Groups is one of the last strong areas of the Facebook platform, with millions of users still engaging daily on them and talking about common interests. Keep in mind that the[useful ways to discover new Facebook Groups](https://www.makeuseof.com/tag/5-awesome-ways-discover-new-facebook-groups/) work for you as they do for marketers, who will absolutely research a niche's group list and join up.
 
@@ -91,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
  By liking and sharing certain posts on Facebook Groups tailored around an interest, you're unknowingly giving a lot of marketers information that can be used to market to you later down the line. There are no real ways around this, as there's no point in you not liking or sharing a post you're engaging with.
 
  Joining private groups on Facebook can be a good way of ensuring some safety from marketers, depending on how strict the group is in terms of new membership signups.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Be Conscious of the Information You Provide
 
@@ -117,22 +117,22 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-inside-the-magic-understanding-srts-impact/"><u>[New] In 2024, Inside the Magic Understanding SRT's Impact</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-perfecting-eq-adjustments-in-ableton/"><u>[Updated] 2024 Approved Perfecting EQ Adjustments in Ableton</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-your-logitech-g430-mic-handy-solutions-for-sound-problems/"><u>Fix Your Logitech G430 Mic: Handy Solutions For Sound Problems</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/flacwindows-10/"><u>FLACオーディオ形式の鮮明再生：Windows 10ユーザーへのガイド</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-realme-10t-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Realme 10T 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-media-the-art-of-followingunfollowing-on-facebook/"><u>Navigating Social Media: The Art of Following/Unfollowing on Facebook</u></a></li>
-<li><a href="https://win-able.techidaily.com/quick-resolve-for-path-of-exile-avoid-game-connection-issues/"><u>Quick Resolve for 'Path of Exile': Avoid Game Connection Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-control-tackling-fb-upsets/"><u>Regaining Control: Tackling FB Upsets</u></a></li>
-<li><a href="https://facebook.techidaily.com/revival-trumps-facebook-and-instagram-via-meta/"><u>Revival: Trump’s Facebook & Instagram via Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-a-virtual-gem-could-llife-shine-in-the-metaverse-era/"><u>Reviving a Virtual Gem: Could LLife Shine in the Metaverse Era?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-overhaul-banishing-biased-politicalreligious-posts/"><u>Social Media Overhaul: Banishing Biased Political/Religious Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-vigilance-justified-trump-suspension-not-permanent/"><u>Social Media Vigilance: Justified Trump Suspension, Not Permanent</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/solution-found-adobe-media-encoder-setup-for-premiere-cc-and-ae-integration/"><u>Solution Found: Adobe Media Encoder Setup for Premiere CC & AE Integration</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-507-best-instagram-captions-of-2024/"><u>The 507 Best Instagram Captions of 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-appointing-fb-page-admins/"><u>The Ultimate Guide for Appointing FB Page Admins</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-features-to-supercharge-your-campaign-strategy/"><u>Top 8 Features to Supercharge Your Campaign Strategy</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unleashing-efficiency-a-detailed-appraisal-of-freestyle2-blue-software-for-apple-users/"><u>Unleashing Efficiency: A Detailed Appraisal of Freestyle2 Blue Software for Apple Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/learing-your-browsers-watched-videos-for-2024/"><u>[New] Clearing Your Browser's Watched Videos for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-perfect-peace-mastering-the-art-of-muting-individuals-on-gomeet/"><u>[New] Perfect Peace Mastering the Art of Muting Individuals on GoMeet</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-full-breakdown-mastering-facetune-for-photo-enhancement-for-2024/"><u>[New] The Full Breakdown Mastering Facetune for Photo Enhancement for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-spark-interest-10-innovative-highlight-ideas-to-try-now/"><u>[Updated] 2024 Approved Spark Interest 10 Innovative Highlight Ideas to Try Now</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-beginners-handbook-for-pc-users-initiating-a-tiktok-broadcast/"><u>[Updated] In 2024, Beginner's Handbook for PC Users - Initiating a TikTok Broadcast</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-snippetsnapper-a-close-look-at-micro-recorders/"><u>2024 Approved SnippetSnapper A Close Look at Micro-Recorders</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-choices-essential-support-gear-for-your-gopro-camera/"><u>Best Choices Essential Support Gear for Your GoPro Camera</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-the-hottest-content-on-facebook-lately/"><u>Find the Hottest Content on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-limit-who-can-see-your-facebook-posts-with-a-restricted-list/"><u>How to Limit Who Can See Your Facebook Posts With a Restricted List</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-the-mystery-of-free-pictorial-video-downloads/"><u>In 2024, Unveiling the Mystery of Free Pictorial Video Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-or-plateauing-at-facebook/"><u>Maximizing Impact or Plateauing at Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/pandemic-misguidance-12-prominent-personalities/"><u>Pandemic Misguidance: 12 Prominent Personalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/process-to-notify-about-young-user-on-fb/"><u>Process to Notify About Young User on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-the-limits-of-visual-content-with-fbs-3d-photo-feature/"><u>Pushing the Limits of Visual Content with FB's 3D Photo Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-web-browsing-with-fewer-targeted-promos/"><u>Simplify Your Web Browsing with Fewer Targeted Promos</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-moment-for-an-instagram-revival-has-arrived/"><u>The Moment for an Instagram Revival Has Arrived</u></a></li>
 </ul></div>
 

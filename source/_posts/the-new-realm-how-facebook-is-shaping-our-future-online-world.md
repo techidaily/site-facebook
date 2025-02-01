@@ -1,7 +1,7 @@
 ---
 title: "The New Realm: How Facebook Is Shaping Our Future Online World"
-date: 2025-01-20T17:21:49.726Z
-updated: 2025-01-24T21:12:56.620Z
+date: 2025-01-28T05:58:21.715Z
+updated: 2025-02-01T06:15:02.932Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is the Facebook Metaverse?
@@ -40,11 +40,19 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
 
@@ -55,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Algorithmic Biases
@@ -74,17 +82,9 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
@@ -93,7 +93,7 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
@@ -119,24 +119,19 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-expertise-acquiring-the-best-unboxing-tunes-and-melodies/"><u>[New] Expertise Acquiring the Best Unboxing Tunes and Melodies</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-unleashing-potential-instagram-tiktok-sync-guidebook-for-2024/"><u>[New] Unleashing Potential Instagram-TikTok Sync Guidebook for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-finding-the-right-mic-a-guide-for-multifaceted-yt-channels/"><u>[Updated] 2024 Approved Finding the Right Mic A Guide for Multifaceted YT Channels</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-navigating-steam-with-your-switch-pro-device/"><u>[Updated] In 2024, Navigating Steam with Your Switch Pro Device</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-what-is-triller-a-platform-that-challenges-traditional-video-sites/"><u>[Updated] In 2024, What Is Triller? A Platform That Challenges Traditional Video Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-bonds-not-bruises-fb-banter-basics/"><u>Building Bonds, Not Bruises: FB Banter Basics</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-trust-in-digital-marketing-beyond-the-clicks/"><u>Building Trust in Digital Marketing: Beyond the Clicks</u></a></li>
-<li><a href="https://facebook.techidaily.com/facial-id-discarding-what-does-it-mean-for-facebook-users-protection/"><u>Facial ID Discarding: What Does It Mean for Facebook Users' Protection?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-pick-the-perfect-iphone-for-your-mobile-gaming-needs/"><u>How to Pick the Perfect iPhone for Your Mobile Gaming Needs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-a-look-at-amazon-primes-biggest-tweeters-and-favorites-in-23/"><u>In 2024, A Look at Amazon Prime’s Biggest Tweeters and Favorites in '23</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-crafting-an-engaging-fb-slideshow-experience/"><u>In 2024, Crafting an Engaging FB Slideshow Experience</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/offres-speciales-sur-movavi-video-editor-pro-plus-achat-en-toute-securite-avec-rabais-exclusifs/"><u>Offres Spéciales Sur Movavi Video Editor Pro + : Achat en Toute Sécurité Avec Rabais Exclusifs !</u></a></li>
-<li><a href="https://facebook.techidaily.com/password-woes-easily-reinstate-your-facebook-sign-in/"><u>Password Woes? Easily Reinstate Your Facebook Sign-In</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-teenage-digital-footprint-navigating-facebook-settings/"><u>Securing Teenage Digital Footprint: Navigating Facebook Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-fact-check-busting-top-10-facebook-myths/"><u>Social Network Fact Check: Busting Top 10 Facebook Myths</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-guide-to-sever-ties-in-fb-group/"><u>Stepwise Guide to Sever Ties in FB Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-content-streaming-through-page-management/"><u>Tailored Content Streaming Through Page Management</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877080-9781601634399-the-akashic-records/"><u>The Akashic Records | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-strategy-for-securing-your-fb-images/"><u>The Complete Strategy for Securing Your FB Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-video-marketing-strategies-top-8-verified-services/"><u>[New] In 2024, Essential Video Marketing Strategies Top 8 Verified Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-guide-to-podcast-names-plus-50plus-podcast-name-ideas/"><u>[Updated] Ultimate Guide to Podcast Names (Plus 50+ Podcast Name Ideas)</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-faux-friend-requests-6-key-strategies/"><u>Avoid Faux Friend Requests – 6 Key Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/blueprinting-for-better-governance-in-fb-groups/"><u>Blueprinting for Better Governance in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-efficiency-with-facebooks-new-admin-tools/"><u>Boosting Digital Efficiency with Facebook's New Admin Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gadgets-smartphone-and-tv-linkup/"><u>Bridging Gadgets - Smartphone and TV Linkup</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-past-youtube-videos-evaporate/"><u>Can Past YouTube Videos Evaporate?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-linksys-wrt3200acm-router-why-its-a-must-have-for-tech-enthusiasts/"><u>Comprehensive Evaluation of Linksys WRT3200ACM Router: Why It's a Must-Have for Tech Enthusiasts</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726028094716-dvdwindows-10/"><u>DVDプレーヤー設定：Windows 10でスムーズに鑑賞始めよう！</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149089824-facebook-troubles-heres-how-to-navigate-and-fix-them-fast/"><u>FaceBook Troubles? Here's How to Navigate and Fix Them Fast</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-phone-without-google-account-by-drfone-android/"><u>How to Unlock ZTE Phone without Google Account?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-essential-playbook-youtubes-seo-keywords-guide/"><u>In 2024, The Essential Playbook YouTube's SEO Keywords Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-and-repair-an-unresponsive-iphone-home-button-in-minutes/"><u>Troubleshoot and Repair an Unresponsive iPhone Home Button in Minutes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unleashing-your-potential-saving-instagram-stories-like-a-pro/"><u>Unleashing Your Potential Saving Instagram Stories Like a Pro</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Cultivating Goodwill During Your Group Disassociation Journey
-date: 2024-08-15T18:39:37.643Z
-updated: 2024-08-16T18:39:37.643Z
+date: 2025-01-27T02:58:37.601Z
+updated: 2025-02-01T07:19:02.186Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,10 @@ Here's all you need to know...
 
 ![groups you joined Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/group-you-joined-facebook.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Click the**…** on the right side of the group, next to the magnifying glass. Then, pick the last option, which is**Leave Group** .
 
 ![leave Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group.png)
@@ -45,22 +49,17 @@ Here's all you need to know...
 
  That’s it, you’re no longer a member of that group, and won’t receive any more notifications from it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do I Leave a Facebook Group on My Mobile?
 
 ![your-facebook-groups-app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/your-Facebook-groups-app.png)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![mobile Facebook groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/mobile-Facebook-groups.png)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Your groups on Facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Your-groups-on-Facebook-mobile.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -73,18 +72,17 @@ Close
 5. The last screen will ask for some feedback, which you can just close if you don’t have any.
 
 ![leave Facebook group app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-app.png)
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![leave Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-mobile.png)
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![feedback about Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/feedback-about-Facebook-group-mobile.png)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -93,20 +91,21 @@ Close
 
  Read more: [Ways Facebook Is Cracking Down on Groups Which Break the Rules](https://www.makeuseof.com/ways-facebook-cracking-down-on-groups-break-rules/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay in a Facebook Group, but Receive Less Spam
 
  If you’re only annoyed about the number of notifications and posts you get from a group, but like it otherwise, you don’t have to leave it. First, you can manage the notifications, and only receive alerts about highlights, posts from friends, or none at all.
 
  You can also choose to unfollow the group, which will block all of its content from your feed but will still allow you to visit it and post in it without interruptions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,6 +114,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-camera-quest-gopro-hero5-b-vs-session-edition/"><u>[New] Camera Quest – GoPro Hero5 B vs Session Edition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-tech-insightfulness-a-global-experts-assessment/"><u>[New] In 2024, Tech Insightfulness A Global Experts' Assessment</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-mobile-apps-redefining-vocal-identity-2-cookie-jar/"><u>[Updated] In 2024, Mobile Apps Redefining Vocal Identity (2 Cookie Jar</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-instantaneous-accurate-image-browser-win11/"><u>[Updated] Instantaneous, Accurate Image Browser Win11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-premier-selections-versatile-and-affordable-macpc-bd-decoders-for-2024/"><u>[Updated] Premier Selections Versatile and Affordable Mac/PC BD Decoders for 2024</u></a></li>
+<li><a href="https://win-premium.techidaily.com/add-interactive-page-flipping-buttons-to-your-ebooks-on-flipbuildercom-for-enhanced-user-engagement/"><u>Add Interactive Page-Flipping Buttons to Your eBooks on FlipBuilder.com for Enhanced User Engagement!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/amplifying-your-playlists-on-instagram/"><u>Amplifying Your Playlists on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-unwanted-interactions-in-fbs-past-glimpse/"><u>Avoid Unwanted Interactions in FB's Past Glimpse</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/capture-breathtaking-shots-for-fb-livestreaming-with-dji/"><u>Capture Breathtaking Shots for FB Livestreaming with DJI</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-captivating-campaigns-techniques-for-increasing-facebook-interaction/"><u>Crafting Captivating Campaigns: Techniques for Increasing Facebook Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-protests-push-facebook-to-1-star-rating-plunge/"><u>Digital Protests Push Facebook to 1-Star Rating Plunge</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-global-reach-with-multi-language-posts-on-facebook/"><u>Enhancing Global Reach with Multi-Language Posts on Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-how-to-master-iphone-video-screening/"><u>In 2024, How to Master iPhone Video Screening</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-meta-market-essential-strategies-for-success/"><u>Mastering the Meta Market: Essential Strategies for Success</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigate-through-steams-e84-complications/"><u>Navigate Through Steam's E84 Complications</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-social-media-ads-a-plea-for-more-robust-anti-fraud-measures/"><u>Scrutinizing Social Media Ads: A Plea for More Robust Anti-Fraud Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-safe-from-sneaky-purchases-avoidance-of-facebook-marketplace-frauds/"><u>Staying Safe From Sneaky Purchases: Avoidance of Facebook Marketplace Frauds</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-network-battle-can-facebook-compete-with-tiktok/"><u>The Social Network Battle: Can Facebook Compete with TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-surveillance-capitalism/"><u>What Is Surveillance Capitalism?</u></a></li>
+</ul></div>
 

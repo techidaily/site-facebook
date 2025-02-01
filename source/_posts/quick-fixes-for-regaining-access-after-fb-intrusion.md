@@ -1,7 +1,7 @@
 ---
 title: Quick Fixes for Regaining Access After FB Intrusion
-date: 2025-01-17T16:10:45.740Z
-updated: 2025-01-24T18:38:17.165Z
+date: 2025-01-25T08:25:05.769Z
+updated: 2025-02-01T02:31:48.859Z
 tags:
   - facebook
 categories:
@@ -54,7 +54,7 @@ Other signs that your account may have been hacked include:
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What to Do If Your Facebook Account Was Hacked
@@ -62,7 +62,7 @@ Other signs that your account may have been hacked include:
  If you have confirmed that your account has been compromised, here are the steps you should follow.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1a. Change Your Facebook Password
@@ -82,7 +82,7 @@ Do this only if you're sure you can log back in.
  If you still think your account has been compromised, proceed to Step 3.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1b. Reset Your Facebook Password
@@ -105,17 +105,9 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Use the**Try another way** link if you no longer have access to any of the offered email accounts. Facebook will offer to send a code to the phone numbers associated with your account. If none of those are viable, either, it's nearly impossible to recover your account.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Report the Facebook Hack
 
@@ -135,21 +127,25 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Improving Facebook's Privacy and Security Settings
 
@@ -160,6 +156,10 @@ Do this only if you're sure you can log back in.
 * Under[**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
 
  These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You Keep Your Facebook Account Safe?
 
@@ -180,19 +180,16 @@ Do this only if you're sure you can log back in.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-smart-selections-the-premier-list-of-costless-streamers-apps-and-software/"><u>[Updated] Smart Selections The Premier List of Costless Streamers Apps & Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-heartbreak-strategies-for-retaining-purchases-on-facebook/"><u>Avoid Heartbreak: Strategies for Retaining Purchases on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-tech-under-fire-governments-antitrust-crusade/"><u>Big Tech Under Fire: Government's Antitrust Crusade</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-personalized-link-blueprint-eclipses-standard-apple-services/"><u>Facebook’s Personalized Link Blueprint Eclipses Standard Apple Services</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-samsung-galaxy-s24-ultra-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-honor-magic-6-lite-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Honor Magic 6 Lite</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-decoding-popular-themes-in-youtube-commentary/"><u>In 2024, Decoding Popular Themes in YouTube Commentary</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-vivavideo-app-review/"><u>In 2024, VivaVideo App Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-with-care-discover-these-14-common-online-deceptions/"><u>Navigate with Care: Discover These 14 Common Online Deceptions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/revenue-breakdown-a-deep-dive-into-podcast-finances/"><u>Revenue Breakdown A Deep Dive Into Podcast Finances</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-secure-way-to-delete-your-facebook-account-android/"><u>The Secure Way to Delete Your Facebook Account (Android)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-social-media-elite-playbook-cultivate-your-stardom-in-9-easy-steps-for-2024/"><u>The Social Media Elite Playbook Cultivate Your Stardom in 9 Easy Steps for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/unlocking-region-free-viewing-how-to-watch-region-2-dvds-without-restrictions/"><u>Unlocking Region-Free Viewing: How to Watch Region 2 DVDs Without Restrictions</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-social-media-saga-script-it-to-suit-your-likes/"><u>Your Social Media Saga: Script It to Suit Your Likes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-smooth-visual-journeys-master-fades-in-a-flash/"><u>[Updated] Smooth Visual Journeys Master Fades in a Flash</u></a></li>
+<li><a href="https://facebook.techidaily.com/escaping-social-medias-clutches-can-do-you-good/"><u>Escaping Social Media's Clutches Can Do You Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-idea-to-execution-designing-dynamic-social-events-on-facebook/"><u>From Idea to Execution: Designing Dynamic Social Events on Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-and-install-the-latest-samsung-960-evo-ssd-drivers-on-your-pc/"><u>How to Get & Install the Latest Samsung 960 EVO SSD Drivers on Your PC</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-pivoting-passions-into-profits-your-vlogs-revenue-roadmap/"><u>In 2024, Pivoting Passions Into Profits Your Vlog's Revenue Roadmap</u></a></li>
+<li><a href="https://techtrends.techidaily.com/in-depth-analysis-apples-latest-4k-streaming-device-third-gen/"><u>In-Depth Analysis: Apple's Latest 4K Streaming Device, Third Gen</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-social-media-timelines-the-ultimate-tutorial-for-planning-tweets-in-advance/"><u>Mastering Social Media Timelines: The Ultimate Tutorial for Planning Tweets in Advance</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-page-setup-the-admin-role/"><u>Navigating Facebook Page Setup - The Admin Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-privacy-practices-to-adopt-on-facebook-today/"><u>The Best Privacy Practices to Adopt on Facebook Today</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-free-video-editor-apps-compatible-with-windows-7-a-comprehensive-guide/"><u>Top Free Video Editor Apps Compatible with Windows 7: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-village-ranking-todays-social-media-powerhouses/"><u>Virtual Village: Ranking Today's Social Media Powerhouses</u></a></li>
 </ul></div>
 

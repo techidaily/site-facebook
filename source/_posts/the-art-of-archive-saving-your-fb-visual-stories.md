@@ -1,7 +1,7 @@
 ---
 title: "The Art of Archive: Saving Your Fb Visual Stories"
-date: 2025-01-17T23:24:48.702Z
-updated: 2025-01-24T22:38:44.298Z
+date: 2025-01-30T21:58:05.136Z
+updated: 2025-01-31T16:49:55.233Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Download Facebook Photos
 
 ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -36,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
  You can use this method to download Facebook photos. It's as simple as that.
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Download Facebook Albums
 
@@ -61,7 +65,7 @@ Follow these steps to download your Facebook album:
  The downloaded album comes as a ZIP file. You'll need to extract this ZIP file to access the pictures.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Download All of Your Facebook Photos
@@ -80,12 +84,16 @@ Follow these steps to download your Facebook album:
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Select whether you want to download all or just specific information on the next page. Since we want to download Facebook photos only, click**Select types of information** .  
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-information-download-option.jpg)
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
@@ -94,19 +102,11 @@ Follow these steps to download your Facebook album:
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  After submitting the request, Facebook will take you back to the**Download your information** page, indicating you have a pending request.
 
  Facebook will take some time to get the ZIP file ready, depending on how many photos and videos you have on Facebook. Once it's done, you will get a notification to download it from**Available Files** .
 
  Download and unzip the file to see all of your posts and images, with albums as sub-folders.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Which Is the Best Facebook Photo Downloader App?
 
@@ -156,20 +156,24 @@ Here's how to use it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-achieve-superior-mp4-output-from-instagram-videos-2-ways/"><u>[Updated] Achieve Superior MP4 Output From Instagram Videos 2 Ways</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-add-a-professional-touch-youtube-video-image-crafting/"><u>[Updated] In 2024, Add a Professional Touch YouTube Video Image Crafting</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/6-ai-powered-pdf-tools-unveiled-by-gpt/"><u>6 AI Powered PDF Tools Unveiled by GPT</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/boost-your-efficiency-on-the-go-latest-advancements-in-xr-headsets-revealed-by-experts-at-zdnet/"><u>Boost Your Efficiency on the Go! Latest Advancements in XR Headsets Revealed by Experts at ZDNET</u></a></li>
-<li><a href="https://facebook.techidaily.com/checklist-for-identifying-fb-enthusiasts/"><u>Checklist for Identifying FB Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-power-play-the-new-strategy-against-big-tech-and-silicon-valley/"><u>Deconstructing Power Play: The New Strategy Against Big Tech and Silicon Valley</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/enhancing-your-gaming-experience-by-updating-windows-graphics-drivers-for-stable-minecraft-gameplay/"><u>Enhancing Your Gaming Experience by Updating Windows Graphics Drivers for Stable Minecraft Gameplay</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-lava-storm-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Lava Storm 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-sever-spotify-facebook-association-effectively/"><u>How To Sever Spotify-Facebook Association Effectively</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-film-set-harmony-exploring-every-members-critical-function-in-movie-making/"><u>New 2024 Approved Film Set Harmony Exploring Every Members Critical Function in Movie-Making</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-platforms-responsibility-in-the-fight-against-covid-19-misinformation/"><u>Online Platforms' Responsibility in the Fight Against COVID-19 Misinformation</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-vk-understanding-russias-alternative-facebook/"><u>The Rise of VK: Understanding Russia’s Alternative Facebook</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/top-5-tools-for-capturing-facebook-live-videos/"><u>Top 5 Tools for Capturing Facebook Live Videos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/ultimate-tips-for-capturing-sporting-events-live-online-for-2024/"><u>Ultimate Tips for Capturing Sporting Events Live Online for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-unlocking-the-power-of-words-in-google-meet-discussions/"><u>[New] 2024 Approved Unlocking the Power of Words in Google Meet Discussions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-audio-recording-101-from-youtube-playback-to-files-for-2024/"><u>[Updated] Audio Recording 101 From YouTube Playback To Files for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-digital-duplicate-scam-schemes/"><u>Deciphering Digital Duplicate Scam Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-vs-offline-signals-in-facebook/"><u>Deciphering Online Vs. Offline Signals in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-algorithms-that-drive-fb-content-suggests/"><u>Deciphering the Algorithms That Drive FB Content Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-symbolic-meaning-in-fb-messages/"><u>Deciphering the Symbolic Meaning in FB Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/decode-the-meta-gateway-to-instagram-and-facebooks-centrality/"><u>Decode the Meta Gateway to Instagram & Facebook's Centrality</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-past-with-facebooks-memory-repository/"><u>Delving Into Your Past with Facebook's Memory Repository</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-iphone-12-mini-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-more-about-your-circle-with-messenger-polls/"><u>Discover More About Your Circle with Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-discussion-archiving-for-private-online-space/"><u>Discreet Discussion: Archiving for Private Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-control-of-fb-connected-services/"><u>Effective Control of FB Connected Services</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/home-entertainment-with-apple-tv-and-fandango-streaming-services/"><u>Home Entertainment with Apple TV and Fandango Streaming Services</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/how-to-record-screen-with-vidmore-screen-recorder-for-2024/"><u>How to Record Screen with Vidmore Screen Recorder for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-itel-p40plus-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Itel P40+ to Another | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ios-12-update-how-to-delete-music-from-your-iphone-without-using-itunes/"><u>IOS 12 Update: How to Delete Music From Your iPhone Without Using iTunes</u></a></li>
+<li><a href="https://win-data.techidaily.com/mastering-dual-boots-creating-and-running-a-linux-environment-on-windows-11/"><u>Mastering Dual Boots: Creating and Running a Linux Environment on Windows 11</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210411448-9781684860029-planet-sylvia/"><u>Planet Sylvia | Free Book</u></a></li>
 </ul></div>
 

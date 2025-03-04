@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2025-02-12T08:15:06.174Z
-updated: 2025-02-14T23:47:48.117Z
+date: 2025-02-26T17:00:01.132Z
+updated: 2025-03-04T17:25:26.544Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Signal Sees Its Facebook Ad Account Disabled
 
  Signal is taking an issue with tremendous data collection happening behind the scenes on Facebook, Instagram, and WhatsApp designed to "sell visibility into people and their lives."
@@ -35,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  "The ad would simply display some of the information collected about the viewer which the advertising platform uses," Signal says. "Facebook was not into that idea."
 
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
 
@@ -52,10 +44,6 @@ Facebook responded with the following statement to the media:
 
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -63,10 +51,6 @@ Facebook responded with the following statement to the media:
 > You got this ad because you're a Goth barista and you're single. This ad used your location to see you're in Clinton Hill. And you're either vegan or lactose intolerant and you're really feeling that yoga lately.
 
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
@@ -93,22 +77,22 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-scriptwriting-mastery-conveying-emotions-through-words/"><u>[Updated] 2024 Approved Scriptwriting Mastery Conveying Emotions Through Words</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-lifes-journey-videos-creating-authentic-online-experiences/"><u>[Updated] Life's Journey Videos Creating Authentic Online Experiences</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-enhance-gameplay-the-ultimate-guide-to-using-steams-switch-controller/"><u>2024 Approved Enhance Gameplay The Ultimate Guide to Using Steam's Switch Controller</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-your-fb-presence-with-a-great-pic/"><u>Elevating Your FB Presence with a Great Pic</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-boosts-listening-options-in-new-hub-launch/"><u>Facebook Boosts Listening Options in New Hub Launch</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-itel-a70-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Itel A70? Try These Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-craft-and-share-content-in-multiple-languages-on-social-networking-sites/"><u>How to Craft and Share Content in Multiple Languages on Social Networking Sites</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-honor-x9a-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Honor X9a to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/life-beyond-like-and-share-on-facebook/"><u>Life Beyond Like-and-Share on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mobile-marvels-fastest-lite-android-apps-ahead/"><u>Mobile Marvels: Fastest Lite Android Apps Ahead</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-refunds-a-step-by-step-guide/"><u>Navigating Facebook Refunds: A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-iron-bank-of-erebor-online-resources-for-got-audio-calls-for-2024/"><u>The Iron Bank of Erebor Online Resources for GoT Audio Calls for 2024</u></a></li>
-<li><a href="https://win-great.techidaily.com/the-ultimate-list-of-debunked-wedding-djmyths-insights-for-your-big-day-soundtrack/"><u>The Ultimate List of Debunked Wedding DJmyths: Insights for Your Big Day Soundtrack</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-apple-iphone-14-plus-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your Apple iPhone 14 Plus Is Unlocked</u></a></li>
-<li><a href="https://article-posts.techidaily.com/tips-to-rectify-broken-airdrop-connectivity-across-apple-gadgets/"><u>Tips to Rectify Broken AirDrop Connectivity Across Apple Gadgets</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-truth-why-did-major-apps-crash/"><u>Unveiling the Truth: Why Did Major Apps Crash?</u></a></li>
-<li><a href="https://facebook.techidaily.com/vital-actions-ensuring-fb-access-on-demand/"><u>Vital Actions: Ensuring FB Access on Demand</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-live-from-the-cloud-effective-dji-drone-broadcasting-tips/"><u>[New] 2024 Approved Live From the Cloud Effective DJI Drone Broadcasting Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-instagram-virtuosos-playbook-for-widespread-popularity/"><u>[New] 2024 Approved The Instagram Virtuoso's Playbook for Widespread Popularity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-filmoquery-your-guide-to-video-editing-insights/"><u>[Updated] 2024 Approved FilmoQuery Your Guide to Video Editing Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-the-sudden-breakdown-of-popular-platforms/"><u>A Peek Into the Sudden Breakdown of Popular Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-s24plus-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy S24+</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-armistice-social-media-worldwide-standstill/"><u>App Armistice: Social Media Worldwide Standstill</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-case-should-you-rely-on-fb-events/"><u>Assessing the Case: Should You Rely on FB Events?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-digital-offensive-fb-tweet-snap-campaign-against-covid/"><u>Biden's Digital Offensive: Fb, Tweet, Snap Campaign Against COVID</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-income-5-must-try-fbig-methods/"><u>Boosting Income: 5 Must-Try FB/IG Methods</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-se-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone SE</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-quest-profiles-pages-and-facebook-group-links/"><u>Connectivity Quest: Profiles, Pages & Facebook Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/crypto-marketing-the-next-big-thing-on-social-networks/"><u>Crypto Marketing: The Next Big Thing on Social Networks?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/designing-your-digital-persona-for-the-metaverse-for-2024/"><u>Designing Your Digital Persona for the Metaverse for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-brother-dcp-l2540dw-printer-driver-on-windows-pc/"><u>Download and Install Brother DCP-L2540DW Printer Driver on Windows PC</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-remove-the-home-page-from-the-settings-app-in-windows-11/"><u>How to Remove the Home Page From the Settings App in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153627799-initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched</u></a></li>
+<li><a href="https://games-able.techidaily.com/masterclass-enhancing-games-through-model-efficiency/"><u>Masterclass: Enhancing Games Through Model Efficiency</u></a></li>
 </ul></div>
 

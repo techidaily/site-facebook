@@ -1,7 +1,7 @@
 ---
 title: "App Anarchy: Multiple Social Platforms OFFLINE"
-date: 2024-08-28T02:55:49.697Z
-updated: 2024-08-29T02:55:49.697Z
+date: 2025-02-28T18:40:41.058Z
+updated: 2025-03-04T18:56:37.298Z
 tags:
   - facebook
 categories:
@@ -43,18 +43,6 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What Are BGP Routes?
 
  Facebook is down because it has withdrawn its BGP routes from the internet. But, what is a BGP route, anyway?
@@ -65,39 +53,27 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
 
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a [Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## When Will Facebook Come Back Online?
 
  Right now, there is no specific timeframe available for Facebook coming back online, nor WhatsApp, Instagram, or any other affected service. The Facebook outage is affecting the company in more ways than one. For example, Facebook staffers couldn't access buildings at Facebook HQ to begin assessing the damage because of internal networking issues brought about by the outage.
 
  Furthermore, other experts believe that it will take some time for Facebook and its associated services to return to full capacity. It isn't just a case of flicking a switch and restarting the system. Restoring a distributed network of Facebook's size will require patience from the company and of course, its users.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,8 +82,26 @@ thumbnail: https://thmb.techidaily.com/571b6953560c969952a7e82657ab3c73d752ed211
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-fixing-obscured-content-on-youtube-platform-for-2024/"><u>[New] Fixing Obscured Content on YouTube Platform for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-360-camera-buying-guide-how-to-choose-a-suitable-360-camera-2023-update/"><u>[Updated] 2024 Approved 360 Camera Buying Guide How to Choose a Suitable 360 Camera -2023 Update</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-five-star-duo-of-picture-taking-and-musical-integration/"><u>[Updated] In 2024, Five-Star Duo of Picture Taking & Musical Integration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-syncopated-stories-in-reels-merging-sound-and-vision-for-2024/"><u>[Updated] Syncopated Stories in Reels Merging Sound & Vision for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/analyzing-content-policies-steam-and-gog-contrast-study/"><u>Analyzing Content Policies: Steam & GOG Contrast Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/barely-spotted-breakthroughs-in-technology-heres-what-you-didnt-see/"><u>Barely Spotted Breakthroughs in Technology - Here's What You Didn't See</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-vivo-x100-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Vivo X100 Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/lock-your-likes-making-photo-sharing-on-facebook-private/"><u>Lock Your Likes: Making Photo Sharing on Facebook Private</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-user-engagement-facebook-vs-apple-with-custom-linkages/"><u>Revolutionizing User Engagement: Facebook Vs. Apple with Custom Linkages</u></a></li>
+<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-symphony-revisited-the-top-4-digital-renaissance-themes/"><u>Social Symphony Revisited: The Top 4 Digital Renaissance Themes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-mechanics-of-instagrams-featured-stories-for-2024/"><u>The Mechanics of Instagram's Featured Stories for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-checklist-for-producing-high-quality-facebook-reels/"><u>The Ultimate Checklist for Producing High-Quality Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-car-jump-starters-professional-reviews-and-ratings-zdnet/"><u>Top-Rated Car Jump Starters : Professional Reviews & Ratings | ZDNet</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726027945459-facebook-live/"><u>スムーズに保存！Facebook LIVE動画の取得方法</u></a></li>
+</ul></div>
 

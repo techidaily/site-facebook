@@ -1,7 +1,7 @@
 ---
 title: Guiding You Through Unlinking Spotify and FB Accounts
-date: 2025-02-13T11:23:28.428Z
-updated: 2025-02-15T08:19:40.092Z
+date: 2025-03-02T19:01:07.666Z
+updated: 2025-03-04T16:04:11.627Z
 tags:
   - facebook
 categories:
@@ -36,19 +36,11 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
 
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
@@ -61,10 +53,6 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
 
  You can also manage the apps and websites connected to your Facebook. Here's how:
@@ -76,10 +64,6 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
@@ -87,10 +71,6 @@ Here's what you should do to unlink Facebook from Spotify.
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -113,24 +93,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-ultimate-7-video-streaming-apps-your-ally-in-going-live-with-youtube-from-iphones-and-android/"><u>2024 Approved Ultimate 7 Video Streaming Apps Your Ally in Going Live with YouTube From iPhones & Android</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/boosting-webcam-quality-with-ease-and-precision/"><u>Boosting WebCam Quality with Ease and Precision</u></a></li>
-<li><a href="https://blog-min.techidaily.com/complete-dvd-ripping-with-fixed-handbrake-software-full-quality-recovery-guaranteed/"><u>Complete DVD Ripping with Fixed HandBrake Software - Full Quality Recovery Guaranteed!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expertly-selected-best-gimbals-for-ultimate-camera-stability-for-2024/"><u>Expertly Selected Best Gimbals for Ultimate Camera Stability for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-privacy-vulnerability-fixing-it-now/"><u>Facebook Privacy Vulnerability: Fixing It Now</u></a></li>
-<li><a href="https://win-able.techidaily.com/forza-horizon-5-performance-boost-updating-your-graphics-drivers/"><u>Forza Horizon 5 Performance Boost: Updating Your Graphics Drivers</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-will-your-local-marketplace-adapt-if-fb-stores-pop-up-here/"><u>How Will Your Local Marketplace Adapt if FB Stores Pop Up Here?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-balancing-main-and-supplemental-filmmaking-elements/"><u>In 2024, Balancing Main & Supplemental Filmmaking Elements</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-xiaomi-redmi-a2-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Xiaomi Redmi A2</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-13t-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-moviemakerpro-insights-full-analysis/"><u>In 2024, MovieMakerPro Insights – Full Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/inhibiting-the-apps-browser-functionality/"><u>Inhibiting the App's Browser Functionality</u></a></li>
-<li><a href="https://facebook.techidaily.com/lockdown-3-essential-steps-to-retrieve-hacked-facebook-profile/"><u>Lockdown! 3 Essential Steps to Retrieve Hacked Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/regulatory-rebalance-exploring-the-effects-of-new-antitrust-laws-in-america/"><u>Regulatory Rebalance: Exploring the Effects of New Antitrust Laws in America</u></a></li>
-<li><a href="https://facebook.techidaily.com/spark-conversation-social-media-mastery-with-ripl/"><u>Spark Conversation: Social Media Mastery with Ripl</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-presence-essential-steps-before-unlinking-from-facebook/"><u>Taking Control of Your Online Presence - Essential Steps Before Unlinking From Facebook</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-effective-real-youtube-promotion/"><u>The Ultimate Guide to Effective, Real Youtube Promotion</u></a></li>
-<li><a href="https://facebook.techidaily.com/uk-sport-groups-pledge-no-online-presence/"><u>UK Sport Groups Pledge No Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-rules-for-facebooks-permitted-posts/"><u>Understanding the Rules for Facebook's Permitted Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-share-videos-to-instagram-for-2024/"><u>[New] How to Share Videos to Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-blue-badge-breakdown-a-guide-to-social-media-credibility/"><u>[Updated] In 2024, The Blue Badge Breakdown A Guide to Social Media Credibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-lost-phones-security-hurdle-in-fb-settings/"><u>Bypassing Lost Phone's Security Hurdle in FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-captivating-smm-content-using-ripl/"><u>Crafting Captivating SMM Content Using Ripl</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-mobile-instagram-videos-velocity-tips/"><u>Enhancing Mobile Instagram Videos' Velocity (Tips)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlock-short-videos-the-6-best-and-complimentary-downloaders/"><u>In 2024, Unlock Short Videos The 6 Best & Complimentary Downloaders</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-nubia-red-magic-9-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-comprehensive-review-of-wave-editor-capabilities-for-new-users/"><u>New In 2024, Comprehensive Review of Wave Editor Capabilities for New Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152886921-the-ceos-companion-goat-with-a-blockchain-twist/"><u>The CEO’s Companion: Goat with a Blockchain Twist</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154492525-when-will-the-gavel-fall-anticipating-facebooks-judgment-on-trump/"><u>When Will the Gavel Fall? Anticipating Facebook's Judgment on Trump.</u></a></li>
 </ul></div>
 

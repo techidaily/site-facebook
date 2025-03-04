@@ -1,7 +1,7 @@
 ---
 title: Eureka! Identifying the Start of My Online Social Life
-date: 2025-02-09T12:33:39.629Z
-updated: 2025-02-14T16:57:51.471Z
+date: 2025-02-26T18:30:46.243Z
+updated: 2025-03-04T17:26:12.000Z
 tags:
   - facebook
 categories:
@@ -51,21 +51,9 @@ Follow these steps to find your Facebook account creation date:
 
 ![facebook main menu on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-main-menu-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![facebook app access your information option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-access-your-information-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![personal information option on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/personal-information-option-on-facebook-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![facebook account creation date on mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-account-creation-date-on-mobile-app.jpg)
 
@@ -107,19 +95,11 @@ Close
 ![facebook photo albums page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-photo-albums-page-1.jpg)
 5. Click**Profile pictures** on the album screen to open your profile photos album.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. Find the oldest profile picture in this album. Unless you’ve uploaded loads of profile pictures, you shouldn’t have any issues getting to the oldest picture.
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
  That date should be the day you made your Facebook profile or very close to that date.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
@@ -136,10 +116,6 @@ Close
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
@@ -166,20 +142,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-enhancing-visual-quests-hunt-for-pristine-pexels-images/"><u>[New] Enhancing Visual Quests Hunt for Pristine Pexels Images</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-amplify-your-content-increase-your-subs-quickly/"><u>[Updated] Amplify Your Content, Increase Your Subs Quickly</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-honor-play-8t-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Honor Play 8T? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/crafting-gpt-content-steps-to-emulate-your-writing-ethos/"><u>Crafting GPT Content: Steps to Emulate Your Writing Ethos</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendly-suggestions-in-your-feed-the-future-of-b2b-marketing-on-facebook/"><u>Friendly Suggestions in Your Feed: The Future of B2B Marketing on Facebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-change-youtube-playback-speed-to-speed-up-or-slow-down-video-for-2024/"><u>How to Change YouTube Playback Speed to Speed Up or Slow Down Video for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/imagery-as-language-catalyst-for-facebooks-artific-cookie/"><u>Imagery as Language Catalyst for Facebook’s Artific Cookie</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-constructing-unique-instagram-story-banners/"><u>In 2024, Constructing Unique Instagram Story Banners</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-optimizing-fade-infade-out-routines/"><u>In 2024, Optimizing Fade-In/Fade-Out Routines</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-personal-social-data-retrieval/"><u>Mastering the Art of Personal Social Data Retrieval</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebooks-revised-guide-to-page-titles-and-their-significance/"><u>Navigating Facebook's Revised Guide to Page Titles & Their Significance</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamping-kids-online-details-with-parental-oversight-on-messenger/"><u>Revamping Kid’s Online Details with Parental Oversight on Messenger</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/sky-high-security-the-prime-5-cloud-choices-for-2024/"><u>Sky High Security The Prime 5 Cloud Choices for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-merge-of-minds-new-connections-in-social-media/"><u>The Merge of Minds: New Connections in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-shift-tiktok-disrupting-facebooks-user-trends/"><u>The Social Media Shift: TikTok Disrupting Facebook's User Trends</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-cutting-edge-video-recording-techniques-on-modern-win-11-devices/"><u>[Updated] 2024 Approved Cutting-Edge Video Recording Techniques on Modern Win 11 Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-trailblazer-in-multimedia-craftsmanship/"><u>[Updated] 2024 Approved Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-beyond-the-screen-vr-movie-innovation/"><u>[Updated] Beyond the Screen VR Movie Innovation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-seamlessly-record-your-screen-while-watching-netflix/"><u>[Updated] Seamlessly Record Your Screen While Watching Netflix</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unlocking-profitability-on-youtube-shorts-essentials-and-future-earning-prospects/"><u>2024 Approved Unlocking Profitability on Youtube Shorts Essentials and Future Earning Prospects</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-positive-effects-social-media-is-having-on-society/"><u>7 Positive Effects Social Media Is Having on Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-close-look-at-the-major-technological-slips/"><u>A Close Look at the Major Technological Slips</u></a></li>
+<li><a href="https://facebook.techidaily.com/beneath-the-surface-facebooks-true-user-losses/"><u>Beneath the Surface: Facebook’s True User Losses</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-headlines-the-truth-about-facebook-myths-exposed/"><u>Beyond the Headlines: The Truth About Facebook Myths Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-job-title-facebooks-next-phase/"><u>Beyond the Job Title: Facebook's Next Phase</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-gap-to-facebook-login-post-code-disruption/"><u>Bridging the Gap to Facebook Login Post-Code Disruption</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-an-inclusive-brand-with-diverse-language-options-on-fb/"><u>Building an Inclusive Brand with Diverse Language Options on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-content-classification-by-facebook/"><u>Comedic Content Classification by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-community-collaboration-on-facebook-and-linkedin/"><u>Comparing Community Collaboration on Facebook and LinkedIn</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-nokia-g42-5g-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Nokia G42 5G?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamline-your-yt-content-with-background-softening-tricks/"><u>In 2024, Streamline Your YT Content with Background Softening Tricks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-net-restoration-on-your-machine-max-156/"><u>Mastering .NET Restoration on Your Machine (Max 156)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-files-with-ios-17-essential-strategies-for-efficient-document-organization-on-apple-devices/"><u>Mastering Files with iOS 17: Essential Strategies for Efficient Document Organization on Apple Devices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/youtube-and-brands-united-strategic-collaborative-titles/"><u>YouTube & Brands United Strategic Collaborative Titles</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Privacy Protocols for Personal Photographs on FB
-date: 2025-02-14T10:31:12.759Z
-updated: 2025-02-15T00:01:28.383Z
+date: 2025-02-28T19:58:10.499Z
+updated: 2025-03-04T17:39:19.516Z
 tags:
   - facebook
 categories:
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06
 
  To make photos private on Facebook, you can change the privacy settings of entire albums or individual photos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Make Albums Private on Facebook for Android and iOS
 
  You can change the privacy of an entire album on Facebook to save time, rather than needing to make photos private one by one.
@@ -53,17 +49,9 @@ thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06
 
 ![Facebook album editing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-edit-facebook-album-privacy-options.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-album-privacy-setting.jpg)
 
 Close
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Make Albums Private on Facebook on the Web
 
@@ -73,10 +61,6 @@ Close
 * This will take you to the**Photos** section with**Photos of You** selected. Click**Albums** .
 
 ![Albums section on Facebook's Web version](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-web-albums.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Next, click the**three dots** in the top right of the album you wish to make private and select**Edit album** from the pop-up.
 
@@ -121,10 +105,6 @@ To make a single photo on Facebook private, follow these steps:
 
 ![Editing photo privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-photo-privacy-settings-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
 ### How to Make Individual Facebook Photos Private on the Web
@@ -137,10 +117,6 @@ Close
 
 ![Your photos in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-your-photos-album-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click to open the photo you want to make private.
 * Next, click the**three dots** in the top right and select**Edit post audience** .
 
@@ -149,10 +125,6 @@ Close
 * Select**Only me** and click**Done** to save your changes.
 
  You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Who Can See My Photos on Facebook? How to Check
 
@@ -190,10 +162,6 @@ Close
 
  Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Now You Know How to Hide Photos on Facebook
 
  Reviewing your social media accounts and changing the audience settings of your photos to private is a good cyber hygiene practice. It will not only protect your data but will also protect the privacy of your loved ones who may be in the pictures you upload.
@@ -215,18 +183,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/asterclass-youtube-music-arrangement/"><u>[New] Masterclass YouTube Music Arrangement</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-pioneering-a-new-world-in-visual-storytelling-spotlighting-the-top-10-budget-friendly-youtube-sites-for-2024/"><u>[Updated] Pioneering a New World in Visual Storytelling Spotlighting the Top 10 Budget-Friendly YouTube Sites for 2024</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/a-step-by-step-guide-converting-iso-files-into-avi-format-maintaining-superior-image-clarity/"><u>A Step-by-Step Guide: Converting ISO Files Into AVI Format Maintaining Superior Image Clarity</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-f04-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy F04 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/forgot-your-facebook-password-heres-how-to-reset-it/"><u>Forgot Your Facebook Password? Here's How to Reset It</u></a></li>
-<li><a href="https://facebook.techidaily.com/gps-your-networking-facebooks-new-map-features/"><u>GPS Your Networking: Facebook's New Map Features</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-churn-your-own-custom-internet-laughter/"><u>In 2024, Churn Your Own Custom Internet Laughter</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-iphone-xr-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your iPhone XR and iPad</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premium-web-outlets-for-gift-boxes-that-speak-to-you/"><u>Premium Web Outlets for Gift Boxes That Speak to You</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-fixes-for-windows-rdp-internal-error-messages/"><u>Quick Fixes for Windows RDP Internal Error Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-upcoming-us-antitrust-revolution-and-its-influence-on-tech-giants/"><u>The Upcoming U.S. Antitrust Revolution and Its Influence on Tech Giants</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/top-video-platforms-safe-and-streamlined-sme-solutions-for-2024/"><u>Top Video Platforms Safe & Streamlined SME Solutions for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unrated-facebook-protesters-seek-1-star-rating-amid-controversy/"><u>Unrated Facebook: Protesters Seek 1-Star Rating Amid Controversy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-which-is-the-better-gopro-for-pro-video-max-or-hero-11/"><u>[Updated] In 2024, Which Is The Better GoPro for Pro Video? Max or Hero 11</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-reviewing-the-impression-of-high-dynamic-range-on-aurora-tv-for-2024/"><u>[Updated] Reviewing the Impression of High Dynamic Range on Aurora TV for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/10000-fb-groups-face-potential-amazon-litigation/"><u>10,000 FB Groups Face Potential Amazon Litigation</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-journey-into-the-world-of-facebooks-emoji-communication/"><u>A Compreenasional Journey Into the World of Facebook's Emoji Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-current-platforms-exploring-the-impact-and-meaning-of-facebooks-metaverse/"><u>Beyond Current Platforms: Exploring the Impact and Meaning of Facebook’s Metaverse</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-100-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/dvd-mp4/"><u>DVDコピーワラジ脱出 MP4への変換手順</u></a></li>
+<li><a href="https://win-dash.techidaily.com/optimize-your-videos-by-resizing-and-reformatting-with-enhanced-quality/"><u>Optimize Your Videos by Resizing and Reformatting with Enhanced Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152051646-outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151595091-securely-engage-with-friends-on-facebook-heres-how/"><u>Securely Engage with Friends on Facebook, Here’s How!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-htc-u23-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On HTC U23 Device</u></a></li>
 </ul></div>
 

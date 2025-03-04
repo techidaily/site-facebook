@@ -1,7 +1,7 @@
 ---
 title: Accessing Who's on Your Friend Trail
-date: 2024-08-28T02:55:06.393Z
-updated: 2024-08-29T02:55:06.393Z
+date: 2025-03-03T18:13:28.971Z
+updated: 2025-03-04T16:35:09.853Z
 tags:
   - facebook
 categories:
@@ -50,9 +50,6 @@ Close
 2. Click the**More** dropdown.
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## Can't See Your Facebook Followers? Here's Why
 
  If you've tried to view your Facebook followers on the mobile app but can't see them, your mobile app might be outdated. Make sure you update it from the App Store or Play Store.
@@ -75,19 +72,10 @@ To do this on the desktop browser:
 2. From the list, select**Settings & Privacy** .  
 ![Profile icon options Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/profile-icon-options-facebook-homepage.jpg)
 3. Click**Settings** .  
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
 7. Select**Public** to allow anyone to follow you, including those who aren't your friends on Facebook.  
 ![Facebook profile setting follower settings desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-setting-follower-settings-desktop.jpg)
@@ -98,14 +86,8 @@ To change your followers' preference on the Facebook mobile app:
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Open the Facebook mobile app and tap the**picture icon** at the top-left to open your profile.
@@ -119,14 +101,11 @@ Close
 
  With that in mind, ensure you set your Facebook privacy preferences correctly—so your posts reach only those you want.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,8 +114,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-15-most-effective-snapchat-posts-of-the-year-for-2024/"><u>[New] The 15 Most Effective Snapchat Posts of the Year for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-samsung-galaxy-a24-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Samsung Galaxy A24? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/facts-only-top-fps-games/"><u>Facts Only: Top FPS Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-reels-on-facebook/"><u>How to Create Reels on Facebook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-xs-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock iPhone XS Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-magic-5-lite-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Honor Magic 5 Lite to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/move-your-memories-fb-posts-and-notes-on-leading-websites-now-available/"><u>Move Your Memories: FB Posts & Notes on Leading Websites Now Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-candidates-fb-as-a-recruitment-tool/"><u>Transforming Candidates: FB as a Recruitment Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/wake-up-your-inactive-facebook-page-with-simple-fixes/"><u>Wake Up Your Inactive Facebook Page with Simple Fixes</u></a></li>
+</ul></div>
 

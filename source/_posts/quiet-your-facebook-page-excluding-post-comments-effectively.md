@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2025-02-13T09:01:16.764Z
-updated: 2025-02-15T09:33:14.912Z
+date: 2025-02-27T17:16:28.887Z
+updated: 2025-03-04T19:16:01.879Z
 tags:
   - facebook
 categories:
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
 
 Close
@@ -62,28 +58,16 @@ Close
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
  And that's all you need to manage comments on your Facebook post.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
 
@@ -92,10 +76,6 @@ Close
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -128,19 +108,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-depth-video-metrics-at-your-fingertips-social-blade-for-youtube-for-2024/"><u>[New] In-Depth Video Metrics at Your Fingertips Social Blade for YouTube for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-master-commanders-unleashed-ranking-7-total-war-champions/"><u>[New] Master Commanders Unleashed Ranking 7 Total War Champions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-tutorial-personalize-and-elevate-your-short-videos-for-2024/"><u>[Updated] Step-by-Step Tutorial Personalize and Elevate Your Short Videos for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-the-skill-of-learning-behind-screen-scenes/"><u>2024 Approved Master the Skill of Learning Behind Screen Scenes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-amazon-fire-hd-10-for-kids-edition-with-superior-safeguarding-capabilities/"><u>Expert Insight on Amazon Fire HD 10 for Kids Edition with Superior Safeguarding Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/first-facebook-smartwatch-potential-for-dual-cameras/"><u>First Facebook Smartwatch: Potential for Dual Cameras?</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/language-precision-at-stake-is-chatgpt-or-google-translate-better-for-your-needs/"><u>Language Precision at Stake: Is ChatGPT or Google Translate Better for Your Needs?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-metadata-management-preventing-pics-spread-online/"><u>Mastering Metadata Management: Preventing Pics Spread Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/participating-in-distribution-claiming-a-piece-from-facebooks-deal/"><u>Participating in Distribution: Claiming a Piece From Facebook’s Deal</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-your-online-identity-after-fb-account-infiltration/"><u>Safeguard Your Online Identity After FB Account Infiltration</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-guide-getting-your-money-back-from-fb-transactions/"><u>Stepwise Guide: Getting Your Money Back From FB Transactions</u></a></li>
-<li><a href="https://windows11.techidaily.com/strengthen-your-safe-space-top-5-corrections-in-windows-features/"><u>Strengthen Your Safe Space: Top 5 Corrections in Windows Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-guide-to-mentioning-every-member-online/"><u>The Complete Guide to Mentioning Every Member Online</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-note-12-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi Note 12 5G Device</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-explore-better-than-sharex-a-guide/"><u>[New] In 2024, Explore Better Than ShareX - A Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-2023-how-to-share-twitter-videos-on-facebook/"><u>[Updated] In 2024, 2023 | How to Share Twitter Videos on Facebook?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-navigating-and-adapting-youtubes-evolving-policy-landscape/"><u>[Updated] In 2024, Navigating and Adapting YouTube's Evolving Policy Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-messenger-rooms-tips-and-tricks-for-beginners/"><u>10 Messenger Rooms Tips and Tricks for Beginners</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-contrast-in-virtual-realm-highlights-and-low-points/"><u>2024 Approved The Contrast in Virtual Realm Highlights and Low Points</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-approach-to-securing-your-online-presence/"><u>A Compreenasional Approach to Securing Your Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-roundup-of-this-years-most-compelling-podcasts/"><u>A Comprehensive Roundup of This Year's Most Compelling Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-post-frequency-in-multiple-social-platforms/"><u>Balancing Post Frequency in Multiple Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-managing-third-party-websites-and-apps-on-your-facebook-profile/"><u>Best Practices for Managing Third-Party Websites and Apps on Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-clear-communication-delving-into-vague-blogging/"><u>Beyond Clear Communication: Delving Into Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-screens-re-evaluating-facebooks-user-count/"><u>Beyond Screens: Re-Evaluating Facebook’s User Count</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-social-bonds-with-3-innovative-facebook-tagging-methods/"><u>Boost Social Bonds with 3 Innovative Facebook Tagging Methods</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-on-preventing-evermore-odyssey-2-from-crashing-on-your-pc/"><u>Expert Advice on Preventing Evermore Odyssey 2 From Crashing on Your PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-spoken-words-to-written-text-ppt-innovation-guide/"><u>In 2024, From Spoken Words to Written Text PPT Innovation Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-multi-speaker-setups-how-to-pair-various-bluetooth-audio-units-with-one-device/"><u>Mastering Multi-Speaker Setups: How to Pair Various Bluetooth Audio Units with One Device</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-nokia-g310-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Nokia G310 Device</u></a></li>
 </ul></div>
 

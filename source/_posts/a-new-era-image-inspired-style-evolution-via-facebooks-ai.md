@@ -1,7 +1,7 @@
 ---
 title: "A New Era: Image-Inspired Style Evolution via Facebook's AI"
-date: 2024-08-23T02:09:06.970Z
-updated: 2024-08-24T02:09:06.970Z
+date: 2025-02-28T17:52:38.599Z
+updated: 2025-03-04T19:36:56.888Z
 tags:
   - facebook
 categories:
@@ -47,14 +47,11 @@ thumbnail: https://thmb.techidaily.com/94266fd2abffa49379e11298094d126f869b761ce
 
  If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,12 +60,23 @@ thumbnail: https://thmb.techidaily.com/94266fd2abffa49379e11298094d126f869b761ce
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-shareable-podcast-episodes-on-instagram-platforms/"><u>[Updated] Shareable Podcast Episodes on Instagram Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-your-digital-footprint-deleting-fb-watch-records/"><u>Clearing Up Your Digital Footprint: Deleting FB Watch Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-a-politics-free-facebook-experience/"><u>Embrace a Politics-Free Facebook Experience</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/essential-errors-to-prevent-in-your-journey-through-generative-ai-technology/"><u>Essential Errors to Prevent in Your Journey Through Generative AI Technology</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-tips-for-repairing-your-iphones-biggest-issues-discover-how-dfu-mode-can-help/"><u>Expert Tips for Repairing Your iPhone's Biggest Issues - Discover How DFU Mode Can Help</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-farewell-to-fb-on-android/"><u>Final Farewell to FB on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-renamed-itself-to-simplicity/"><u>How Facebook Renamed Itself to Simplicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-facebook-reels-habit/"><u>How to Avoid Facebook Reels Habit</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-v29e-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your Apple iPhone XS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-5-gif-making-software-with-the-highest-ratings/"><u>In 2024, Top 5 GIF Making Software with the Highest Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-new-ar-tools-a-social-revolution/"><u>Messenger's New AR Tools: A Social Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaai-revolutionizing-conversational-intelligence/"><u>MetaAI: Revolutionizing Conversational Intelligence</u></a></li>
+<li><a href="https://games-able.techidaily.com/precursors-in-selecting-an-ideal-portable-gaming-system/"><u>Precursors in Selecting an Ideal Portable Gaming System</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-5-complimentary-languages-course-tools/"><u>Top 5 Complimentary Languages Course Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

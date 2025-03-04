@@ -1,7 +1,7 @@
 ---
 title: Banish FB Push Notifications and Messages Easily
-date: 2024-08-28T02:56:43.687Z
-updated: 2024-08-29T02:56:43.687Z
+date: 2025-02-26T18:32:12.102Z
+updated: 2025-03-04T16:44:03.728Z
 tags:
   - facebook
 categories:
@@ -52,18 +52,12 @@ thumbnail: https://thmb.techidaily.com/267e58ed8e657bec227e46ab620be1c2e14c4f8b5
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Turn Off Facebook Notifications as They Arrive
 
  The process to turn off Facebook notifications as they arrive is similar to the process for deleting Facebook notifications.
@@ -105,18 +99,12 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  To completely stop Facebook notifications on Android, follow these steps:
@@ -128,9 +116,6 @@ Close
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Stop Facebook Notifications on iOS
 
  If you have an iOS device, follow these steps to stop Facebook notifications:
@@ -140,9 +125,6 @@ Close
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## More Ways to Make Facebook Work for You
 
  Wrestling back control of your Facebook notifications is just one way to make Facebook work for you. Yes, there's a little bit of micromanagement involved, but it's worth the effort to ensure Facebook is more useful than annoying.
@@ -151,14 +133,11 @@ Close
 
  Image Credit: jhansen2/[Depositphotos](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU37313/https://depositphotos.com/7590222/stock-illustration-seamless-social-networking-background.html)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,8 +146,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-expedite-your-content-with-smart-title-tools/"><u>[New] Expedite Your Content With Smart Title Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-exploring-shared-videos-and-images-via-messenger/"><u>[New] Exploring Shared Videos & Images via Messenger</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-five-mac-friendly-strategies-for-documenting-minecraft-games/"><u>[Updated] Five Mac-Friendly Strategies for Documenting Minecraft Games</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-magix-paintbox-assessment-the-reveal-for-2024/"><u>[Updated] MAGIX Paintbox Assessment The Reveal for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/badminton-teams-disconnect-from-screens/"><u>Badminton Teams Disconnect From Screens</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breaking-down-hardware-ram-management-in-windows-os/"><u>Breaking Down Hardware RAM Management in Windows OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-not-sending-your-security-code-how-to-fix-it/"><u>Facebook Not Sending Your Security Code? How to Fix It</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-top-12-ai-applications-to-improve-your-video-quality-compatible-with-windows-and-macos/"><u>Free Top 12 AI Applications to Improve Your Video Quality: Compatible with Windows & macOS</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-quiet-social-media-interaction-minimization/"><u>Keep It Quiet: Social Media Interaction Minimization</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ize-youtube-presence-11-must-know-seo-strategies-for-success-for-2024/"><u>Maximize YouTube Presence 11 Must-Know SEO Strategies for Success for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/misinformation-currents-linked-to-influencer-actions/"><u>Misinformation Currents Linked to Influencer Actions</u></a></li>
+<li><a href="https://facebook.techidaily.com/propel-your-presence-profitably-top-5-monetization-tactics-on-fbig/"><u>Propel Your Presence Profitably: Top 5 Monetization Tactics on FB/IG</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/regain-control-of-your-pcs-search-tool-in-windows-11-top-remedies-revealed/"><u>Regain Control of Your PC's Search Tool in Windows 11 - Top Remedies Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-second-life-a-potential-metaverse-role/"><u>The Future of Second Life: A Potential Metaverse Role?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fake-news-in-the-time-of-coronavirus-crisis/"><u>Unmasking Fake News in the Time of Coronavirus Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-step-by-step-process-of-severing-spotify-and-fb-ties/"><u>Unraveling the Step-By-Step Process of Severing Spotify and FB Ties</u></a></li>
+<li><a href="https://extra-information.techidaily.com/video-amounts-stored-64-vs-128gb-comparison/"><u>Video Amounts Stored 64 vs 128GB Comparison</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-chat-feature-suffers-shutdown-in-december/"><u>Why Chat Feature Suffers Shutdown in December</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2025-02-09T08:38:07.107Z
-updated: 2025-02-14T21:21:15.524Z
+date: 2025-02-27T20:19:39.114Z
+updated: 2025-03-04T17:14:55.581Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
@@ -50,17 +46,9 @@ To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -79,10 +67,6 @@ Here's how to do this:
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
 Close
@@ -99,20 +83,12 @@ Close
 ![screenshot showing facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-homepage.jpg)
 3. Click on**Settings & Privacy** \>**Settings** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
 4. Click on**Account Settings** .
 
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
@@ -135,21 +111,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/satoshi-sheep-the-ceos-animal-mashup-moniker/"><u>'Satoshi Sheep': The CEO's Animal Mashup Moniker.</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/audio-mastery-the-top-8-professional-editing-software-solutions-for-2024/"><u>Audio Mastery The Top 8 Professional Editing Software Solutions for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/best-online-hubs-for-ai-innovation-spark/"><u>Best Online Hubs for AI Innovation Spark</u></a></li>
-<li><a href="https://apple-account.techidaily.com/can-i-remove-the-apple-watch-activation-lock-by-iphone-15-plus-without-the-previous-owner-by-drfone-ios/"><u>Can I Remove the Apple Watch Activation Lock By iPhone 15 Plus without the Previous Owner?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/creating-a-seamless-visual-experience-in-meetings-for-2024/"><u>Creating a Seamless Visual Experience in Meetings for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cross-cultural-introduction-tactics/"><u>Cross-Cultural Introduction Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-friend-requests-unwritten-rules-and-hidden-settings/"><u>Facebook Friend Requests: Unwritten Rules and Hidden Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-discarding-facial-id-influence-user-safety-a-facebook-study/"><u>How Does Discarding Facial ID Influence User Safety? A Facebook Study</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-checklist-for-constructing-your-youtube-musical-assortment/"><u>In 2024, The Ultimate Checklist for Constructing Your YouTube Musical Assortment</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-erasing-footprints-on-facebook-timeline/"><u>Mastering the Art: Erasing Footprints on Facebook Timeline</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/pcs-picks-the-finest-ps1-game-emulators/"><u>PC's Picks The Finest PS1 Game Emulators</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-apple-iphone-8-and-browser-drfone-by-drfone-virtual-ios/"><u>Prevent Cross-Site Tracking on Apple iPhone 8 and Browser | Dr.fone</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/step-by-step-guide-adjusting-your-pcs-control-panel-preferences-tips-from-yl-software-experts/"><u>Step-by-Step Guide: Adjusting Your PC's Control Panel Preferences - Tips From YL Software Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-forging-facebook-identities/"><u>The Art of Forging Facebook Identities</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-interplay-of-real-names-and-screen-names-on-social-media/"><u>The Interplay of Real Names & Screen Names on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-sign-up-for-meta-verified-in-the-us/"><u>You Can Now Sign Up for Meta Verified in the US</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-enhance-presentations-with-proper-screenshotting-via-ezvid/"><u>[New] In 2024, Enhance Presentations with Proper Screenshotting via Ezvid</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-vr-eyewear-selection-for-drone-contests/"><u>[New] Ultimate VR Eyewear Selection for Drone Contests</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-detailed-instructions-to-record-and-save-facetime-calls/"><u>[Updated] 2024 Approved Detailed Instructions to Record and Save FaceTime Calls</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-profit-potential-unlocked-how-to-enroll-in-youtubes-membership/"><u>2024 Approved Profit Potential Unlocked How to Enroll in YouTube's Membership</u></a></li>
+<li><a href="https://fox-that.techidaily.com/complete-guide-to-reactivate-and-complete-ios-update-processes-that-wont-continue/"><u>Complete Guide to Reactivate and Complete iOS Update Processes that Won't Continue</u></a></li>
+<li><a href="https://facebook.techidaily.com/controversial-features-in-todays-websites/"><u>Controversial Features in Today's Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-data-unraveling-misconceptions-about-facebook-reports/"><u>Decoding Data: Unraveling Misconceptions About Facebook Reports</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-master-the-art-of-video-editing-with-top-10-fcp-tools/"><u>In 2024, Master the Art of Video Editing with Top 10 FCP Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/photo-framing-made-easy-leading-apps-and-sites-reviewed/"><u>Photo Framing Made Easy Leading Apps and Sites Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-covered-dont-spill-essential-online-non-disclosures/"><u>Stay Covered, Don't Spill: Essential Online Non-Disclosures</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-tutorial-acquiring-the-latest-drivers-for-your-acer-aspire-computer-on-a-windows-system/"><u>Ultimate Tutorial: Acquiring the Latest Drivers for Your Acer Aspire Computer on a Windows System</u></a></li>
 </ul></div>
 

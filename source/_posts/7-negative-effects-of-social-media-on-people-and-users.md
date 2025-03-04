@@ -1,7 +1,7 @@
 ---
 title: 7 Negative Effects of Social Media on People and Users
-date: 2024-08-23T02:09:48.646Z
-updated: 2024-08-24T02:09:48.646Z
+date: 2025-02-28T20:33:40.114Z
+updated: 2025-03-04T17:19:01.923Z
 tags:
   - facebook
 categories:
@@ -35,16 +35,10 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows [what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -63,16 +57,10 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
  As most people are probably aware, social media forms unrealistic expectations of life and friendships in our minds.
@@ -85,9 +73,6 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -122,23 +107,17 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our [guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Handle the Negative Effects of Social Media
 
  As with everything else, there are good and bad aspects of social media. We've discussed some of the negative impacts social media has for many, but you're the one who must decide whether there's more help or harm in it for you personally.
 
  If you find that social media is having a negative impact on your life, stop using it. However, if you decide to stay, there are ways to waste less time on social media, and thus maintain a healthier relationship with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,8 +126,21 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-the-right-way-to-disband-from-a-discord-community-for-2024/"><u>[New] The Right Way to Disband From a Discord Community for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-professional-content-creation-tools-review-studio-vs-beta/"><u>[Updated] In 2024, Professional Content Creation Tools Review Studio Vs. Beta</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-perfecting-visual-output-incorporating-luts-into-your-ae-projects-for-2024/"><u>[Updated] Perfecting Visual Output Incorporating LUTs Into Your AE Projects for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/apeak-soft-recording-performance-and-reliability-assessed-for-2024/"><u>Apeak Soft Recording Performance and Reliability Assessed for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/hisense-50h8f-ultra-hd-hdr-smart-tv-the-best-value-for-money/"><u>Hisense 50H8F Ultra HD HDR Smart TV: The Best Value for Money?</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/microsoft-silently-ends-hopes-for-windows-10-lifeline-no-more-support-planned-tech-news-by-zdnet/"><u>Microsoft Silently Ends Hopes for Windows 10 Lifeline; No More Support Planned | Tech News by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-virtual-realms-a-look-at-metaverse-ownership-claims/"><u>Navigating Virtual Realms: A Look at Metaverse Ownership Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-a-new-dimension-understanding-the-metaverse/"><u>Pioneering a New Dimension: Understanding the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-launch-on-facebook-what-are-they/"><u>Ray-Ban Stories Launch on Facebook - What Are They?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-opening-up-to-unknown-facebook-friends/"><u>The Hidden Dangers of Opening Up to Unknown Facebook Friends</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-pioneers-guide-to-gopro-and-timelapse-magic/"><u>The Pioneer's Guide to GoPro and Timelapse Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-the-risks-of-befriending-unknowns-online/"><u>Top 10: The Risks of Befriending Unknowns Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/unlocking-your-books-converting-acsm-to-drm-free-epub-for-universal-reading/"><u>Unlocking Your Books: Converting ACSM to DRM-Free EPUB for Universal Reading</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-new-interpretations-for-facebooks-altered-page-designations/"><u>Unpacking New Interpretations for Facebook's Altered Page Designations</u></a></li>
+</ul></div>
 

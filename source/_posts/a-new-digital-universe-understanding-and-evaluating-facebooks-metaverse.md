@@ -1,7 +1,7 @@
 ---
 title: "A New Digital Universe: Understanding and Evaluating Facebook's Metaverse"
-date: 2024-08-28T02:54:35.998Z
-updated: 2024-08-29T02:54:35.998Z
+date: 2025-03-02T17:31:05.381Z
+updated: 2025-03-04T18:20:00.388Z
 tags:
   - facebook
 categories:
@@ -37,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Data Brokering and Targeted Ads
 
  When tech giants like Facebook create incredibly granular customer profiles, they don’t just have an idea of how you behave as a person. Companies can also understand, predict, and create trends for whole segments of a population.
@@ -48,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Algorithmic Biases
 
  Many people talk about the algorithm that runs social media platforms and the ads that fund them. While algorithms are not inherently bad, they’re not entirely safe from biases, either. Similar to the people who code them, algorithms fulfill certain needs like efficiency, effectiveness, and so on. Unfortunately, these hallmarks for success often don't necessarily include ethics.
@@ -59,9 +53,6 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Security Risks of Granular Data
 
  With this in mind, it’s necessary to understand that most governments still don’t have the full grasp of the social, economic, and psychological impact the internet has on people. In many ways, this lack of tech knowledge by governing bodies puts regulation on the back seat.
@@ -70,25 +61,16 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## The Perils of Being an Ordinary Person
 
  When we think of the metaverse, it’s often within the context of heroes and villains. However, it’s important to understand that when talking about the internet, things are not so black and white. At the heart of it, most of the problems the tech giants of today are that they are not run by gods who are infallible. Despite all the talk of algorithms, these companies are very much human, which is both their greatest weakness and strength.
@@ -97,14 +79,11 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  However, like all empires, it’s us ordinary people who are guinea pigs and collaterals in this fight for control over our data. In fact, it doesn’t even really matter which overlord reigns supreme. For convenience and cat videos, we are watching the end of the right to be anonymous, offline, and forgotten. The silly thing is, we are doing so with thunderous applause.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,8 +92,24 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-toolwiz-visualize-a-comprehensive-2023-evaluation-for-2024/"><u>[New] Toolwiz Visualize - A Comprehensive 2023 Evaluation for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-arena-of-games-100plus-channel-spectrums-galore-for-2024/"><u>[Updated] Arena of Games 100+ Channel Spectrums Galore for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-in-depth-vita-video-editing-analysis-and-step-by-step-guide/"><u>[Updated] In 2024, In-Depth Vita Video Editing Analysis & Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquiring-personal-media-from-friends-social-networks-safely/"><u>Acquiring Personal Media From Friends' Social Networks Safely</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/alternative-methods-for-charging-your-smartphone-when-youre-out-of-juice/"><u>Alternative Methods for Charging Your Smartphone When You're Out of Juice</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-whatsapp-announcement-by-zuckerberg-expected/"><u>Cross-Platform WhatsApp Announcement by Zuckerberg Expected</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decode-the-problem-effective-solutions-for-troubleshooting-error-0x80004005/"><u>Decode the Problem: Effective Solutions for Troubleshooting Error 0X80004_005</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/exclusive-list-best-free-videos-for-pc-macos/"><u>Exclusive List Best Free Videos for PC, MacOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-unsolicited-friend-recommendations-on-fb/"><u>Halt Unsolicited Friend Recommendations on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/innovative-ideas-for-images-with-professional-color-palette-for-2024/"><u>Innovative Ideas for Images with Professional Color Palette for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/launch-and-lay-the-foundations-of-xps-video-craft-for-2024/"><u>Launch & Lay the Foundations of XP's Video Craft for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nuggets-unveiling-this-years-prime-social-media-gems/"><u>Network Nuggets: Unveiling This Year's Prime Social Media Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-watchdogs-to-render-verdict-on-donald-trumps-fb-ban/"><u>Panel of Watchdogs to Render Verdict on Donald Trump's FB Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-enhanced-privacy-settings-on-facebooks-redesigned-interface/"><u>Unlocking Enhanced Privacy Settings on Facebook’s Redesigned Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-can-you-achieve-with-the-facebook-help-system/"><u>What Can You Achieve with the Facebook Help System?</u></a></li>
+</ul></div>
 

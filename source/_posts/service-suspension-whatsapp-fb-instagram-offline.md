@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2025-02-13T05:43:54.826Z
-updated: 2025-02-15T03:55:16.379Z
+date: 2025-02-28T17:54:48.442Z
+updated: 2025-03-04T16:25:57.510Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
@@ -40,15 +36,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
@@ -60,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What Are BGP Routes?
 
  Facebook is down because it has withdrawn its BGP routes from the internet. But, what is a BGP route, anyway?
@@ -73,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  According to world-leading web infrastructure company, Cloudfare, Facebook withdrew a huge number of its BGP routes before the service went dark. Removing its BGP routes from the internet effectively means routers, servers, and other services don't know where to find Facebook on the internet. It's just... gone.
 
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
@@ -109,24 +89,20 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-chilly-celebrations-beijings-olympic-ice-showcase-2022/"><u>[New] Chilly Celebrations Beijing's Olympic Ice Showcase, 2022</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/weep-up-viewers-the-science-behind-successful-youtube-shorts-for-2024/"><u>[New] Sweep Up Viewers The Science Behind Successful YouTube Shorts for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-importance-of-tracking-igtv-conversion-rates/"><u>[New] The Importance of Tracking IGTV Conversion Rates</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-avoid-breaches-the-pre-upload-guide-to-copyright-on-tiktok/"><u>2024 Approved Avoid Breaches The Pre-Upload Guide to Copyright on TikTok</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-how-to-trim-and-cut-vimeo-videos/"><u>2024 Approved How to Trim and Cut Vimeo Videos</u></a></li>
-<li><a href="https://win-community.techidaily.com/6l275p2plus5bcg54mp55cg5pyn5yqh5zmo5asn5yi25yiw5paw6amx5yqo5zmo5lik77ya5lia5q2l5lia5q2l5pon5l2c5oyh5y2x/"><u>轻松将物理服务器复制到新驱动器上：一步一步操作指南</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-your-pages-standards-ban-users-with-confidence/"><u>Fortifying Your Page's Standards: Ban Users with Confidence</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/framefraction-review-for-2024/"><u>FrameFraction Review for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Motorola G24 Power? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-metaai-set-to-overtake-common-ai-chatbots/"><u>Is MetaAI Set to Overtake Common AI Chatbots?</u></a></li>
-<li><a href="https://facebook.techidaily.com/monitor-your-digital-presence-facebook-breach-alerts/"><u>Monitor Your Digital Presence: Facebook Breach Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-facebook-from-suggesting-connections/"><u>Prevent Facebook From Suggesting Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-insight-your-latest-watches-on-facebook/"><u>Quick Insight: Your Latest Watches on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-for-silencing-fb-noises/"><u>The Ultimate Strategy for Silencing FB Noises</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-costs-of-friendship-networks-top-10-reasons-to-cut-off-facebook/"><u>The Unseen Costs of Friendship Networks - Top 10 Reasons to Cut Off Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/trend-of-doubt-grows-for-large-internet-entities-facebook-most-targeted/"><u>Trend of Doubt Grows for Large Internet Entities; Facebook Most Targeted</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723013312389-troubleshoot-fortnite-sign-in-problems-fast-fixes-to-get-you-playing/"><u>Troubleshoot Fortnite Sign-In Problems - Fast Fixes to Get You Playing!</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-top-4-business-meta-analytical-tools/"><u>Unlock Potential: Top 4 Business Meta Analytical Tools</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-x-passcode-without-a-computer-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone X Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-transform-your-videos-secrets-of-effective-youtube-seo-tools/"><u>[New] 2024 Approved Transform Your Videos Secrets of Effective YouTube SEO Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-asus-proart-review-a-visual-spectacle-unveiled/"><u>[Updated] ASUS ProArt Review A Visual Spectacle Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-download-premium-quality-designs-at-no-cost-for-youtube-creators/"><u>[Updated] In 2024, Download Premium-Quality Designs at No Cost – For YouTube Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-tiktok-unboxing-hacks-spin-your-video-into-a-viral-hit/"><u>2024 Approved TikTok Unboxing Hacks Spin Your Video Into a Viral Hit</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-xs-drfone-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-reimagining-team-call-backdrops-beforeafter-chats/"><u>In 2024, Reimagining Team Call Backdrops Before/After Chats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-status-bts-rating-tight-wallet-slightly-off-track/"><u>Inside Status BT's Rating: Tight Wallet, Slightly Off Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflections-on-a-life-with-less-social-media/"><u>Reflections on a Life with Less Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-creativity-a-step-by-step-to-using-soundmojis-on-fb/"><u>Unlocking Creativity: A Step-by-Step to Using Soundmojis on FB</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Will iSpoofer update On Apple iPhone 12 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Basketball Clubs Refuse Social Media Access
-date: 2024-08-28T02:54:13.634Z
-updated: 2024-08-29T02:54:13.634Z
+date: 2025-02-27T18:53:44.301Z
+updated: 2025-03-04T19:37:40.674Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/5c86eead36fe273b4ffc3fa6b58927f405a2b86a9
 
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## Why Are Sports Teams Boycotting Social Media?
 
  One word. Racism. It is unacceptable to racially abuse anyone, on or offline. Sporting personalities want you to know this. The Premier League announcement says:
@@ -44,21 +41,15 @@ thumbnail: https://thmb.techidaily.com/5c86eead36fe273b4ffc3fa6b58927f405a2b86a9
 
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Taking a Stand Against Racism
 
  Perhaps if more people followed suit and abandoned social media on the grounds of stamping out racism, then platform owners might stop and pay attention. While it isn't going to end racism overnight, unfortunately, it is a great place for everyone who uses social media to start.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,8 +58,22 @@ thumbnail: https://thmb.techidaily.com/5c86eead36fe273b4ffc3fa6b58927f405a2b86a9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-audioadvisor-dacast-and-what-it-should-be-for-2024/"><u>[Updated] AudioAdvisor DaCast & What It Should Be for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-effortless-game-captures-with-nvidia-for-2024/"><u>[Updated] Effortless Game Captures with NVIDIA for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-resonance-of-rhythm-music-that-echoes-films/"><u>[Updated] The Resonance of Rhythm Music That Echoes Films</u></a></li>
+<li><a href="https://facebook.techidaily.com/creators-get-ready-instagram-adds-more-money-making-avenues/"><u>Creators, Get Ready: Instagram Adds More Money-Making Avenues</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-communication-platform-takes-stand-on-it-law-controversy/"><u>Digital Communication Platform Takes Stand on IT Law Controversy</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-fraudsters-on-facebook-the-list-of-top-14-scams/"><u>Expose Fraudsters on Facebook: The List of Top 14 Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
+<li><a href="https://techidaily.com/interactive-exploration-of-top-tech-gadgets-discover-the-samsung-galaxy-ring-z-fold-6-flip-6-and-ultimate-smartwatch/"><u>Interactive Exploration of Top Tech Gadgets: Discover the Samsung Galaxy Ring, Z Fold 6, Flip 6, and Ultimate Smartwatch</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/master-your-music-file-format-conversion-a-guide-to-turning-m4a-into-wma-in-8-simple-steps/"><u>Master Your Music File Format Conversion: A Guide to Turning M4A Into WMA in 8 Simple Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-safety-in-the-realm-of-social-media-quizzes/"><u>Navigating Safety in the Realm of Social Media Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chapter-facebook-endorses-rust-language/"><u>New Chapter: Facebook Endorses Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-landslide-tech-giants-go-dark-for-days/"><u>Online Landslide: Tech Giants Go Dark for Days</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/optimizing-ppt-presentations-across-devices-for-google-meet-for-2024/"><u>Optimizing PPT Presentations Across Devices for Google Meet for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-to-troubleshooting-windows-7-update-download-errors-for-smooth-operations/"><u>The Ultimate Guide to Troubleshooting Windows 7 Update Download Errors for Smooth Operations</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-your-iphone-isnt-getting-messages-from-android-fix-it-now/"><u>Why Your iPhone Isn't Getting Messages From Android? Fix It Now</u></a></li>
+</ul></div>
 

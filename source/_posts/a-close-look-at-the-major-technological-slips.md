@@ -1,7 +1,7 @@
 ---
 title: A Close Look at the Major Technological Slips
-date: 2024-08-23T02:08:46.646Z
-updated: 2024-08-24T02:08:46.646Z
+date: 2025-02-27T19:56:56.741Z
+updated: 2025-03-04T19:50:58.675Z
 tags:
   - facebook
 categories:
@@ -55,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/2d544a9f24903c4dca30f002769bbf9a409fd7c6d
 
 ![green celsius graphic](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/green-celsius-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Image Credit: Satheesh Sankaran/[Flickr](https://www.flickr.com/photos/justanothercreativesoul/52455459544/in/)
 
  Like Celsius, BlockFi closed its doors after it could not meet its obligations to customers who had lent their money through the platform. 3AC made several large bets on specific cryptocurrencies, which ultimately didn't pan out, leaving them with huge losses they couldn't recover from.
@@ -66,16 +63,10 @@ thumbnail: https://thmb.techidaily.com/2d544a9f24903c4dca30f002769bbf9a409fd7c6d
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Meta
 
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on [Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
  This decline is a result of Meta facing stiff competition and several high-profile scandals, including employers opposing some of the company's practices. Also, the company's audacious plan to launch the metaverse has been a flop so far.
@@ -84,16 +75,10 @@ thumbnail: https://thmb.techidaily.com/2d544a9f24903c4dca30f002769bbf9a409fd7c6d
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Amazon Alexa
 
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Despite being one of the [most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a [Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
  The company is said to utilize a business model that only actualizes earnings when people use their devices rather than when they buy them. As a result, as the applications of Alexa reduced, so did its income. And several customer reviews have further worsened the issue.
@@ -102,23 +87,17 @@ thumbnail: https://thmb.techidaily.com/2d544a9f24903c4dca30f002769bbf9a409fd7c6d
 
  In response, Amazon carried out some restructuring. Amazon CEO [Andy Jassy released a note](https://www.aboutamazon.com/news/company-news/a-note-from-ceo-andy-jassy-about-role-eliminations) regarding role reductions in the face of uncertainties and economic difficulties. And although Jassy affirmed ample opportunities ahead for Alexa, at present, Alexa appears to be a failed project, especially with rumors about employees calling the voice assistant a wasted effort.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2023 Promises to Be Better Than 2022
 
  Like the buildup to 2022, tech enthusiasts anticipate better optimization, improvement, maintenance of integrity, and sustainability in the tech space in 2023\. However, this time, customers are less trusting in tech companies due to the mismanagement and failures of 2022.
 
  But these failures can be repaired and prevented by developers and consultants. We must aim for perfection, clearly define performance objectives in routine situations and emergencies, and confirm that the technology meets them. If our systems are excessively complex, we must prioritize automation, support training, and regular testing until they become second nature and function when needed.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,8 +106,24 @@ thumbnail: https://thmb.techidaily.com/2d544a9f24903c4dca30f002769bbf9a409fd7c6d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-discoveries-await-5-essential-maps-for-richer-gameplay/"><u>[New] In 2024, Discoveries Await 5 Essential Maps for Richer Gameplay</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-video-potential-youtube-to-igtv/"><u>[New] Unlocking Video Potential YouTube to IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-leverage-igs-busiest-hours-for-your-content/"><u>[Updated] In 2024, How to Leverage IG's Busiest Hours for Your Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamline-and-simplify-a-user-friendly-approach-to-shorts-thumbnails/"><u>[Updated] Streamline & Simplify A User-Friendly Approach to Shorts Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-week-without-the-blue-bird/"><u>A Week Without the Blue Bird</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-surface-hidden-post-factors-on-fb/"><u>Beyond the Surface: Hidden Post Factors on FB</u></a></li>
+<li><a href="https://article-tips.techidaily.com/get-your-game-on-with-nzxts-exclusive-monthly-deals-core-i5-and-rtx-4060-gaming-pc-for-a-steal-at-59-or-level-up-to-core-i7-plus-rtx-4070-ti-premium-build-a115/"><u>Get Your Game On with NZXT's Exclusive Monthly Deals: Core I5 & RTX 4060 Gaming PC for a Steal at $59 or Level Up to Core I7 + RTX 4070 Ti Premium Build at Just $169</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/hue-harmony-masterclass-for-audience-enthusiasts/"><u>Hue Harmony Masterclass for Audience Enthusiasts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-oppo-a78-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Oppo A78 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-safe-a-quick-checklist-for-9-warning-signs/"><u>Keep Your Social Safe: A Quick Checklist for 9 Warning Signs</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-tech-trends-top-4-revelations-for-the-informed/"><u>Overlooked Tech Trends: Top 4 Revelations for the Informed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580240078-quick-bokmal-breakthrough-with-daily-practice/"><u>Quick Bokmål Breakthrough with Daily Practice!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionizing-thermal-management-noctua-introduces-game-changing-chiller-for-grace-hopper-gpu-architecture/"><u>Revolutionizing Thermal Management: Noctua Introduces Game-Changing Chiller for Grace Hopper GPU Architecture</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweep-away-the-social-noise/"><u>Sweep Away the Social Noise</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-charge-of-personal-safety-on-facebook/"><u>Taking Charge of Personal Safety on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-networkers-shield-against-scams/"><u>The Social Networker’s Shield Against Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-represents-your-online-pictures/"><u>Who Represents Your Online Pictures?</u></a></li>
+</ul></div>
 

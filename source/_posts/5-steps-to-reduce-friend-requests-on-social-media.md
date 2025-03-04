@@ -1,7 +1,7 @@
 ---
 title: 5 Steps to Reduce Friend Requests on Social Media
-date: 2024-08-28T02:55:14.385Z
-updated: 2024-08-29T02:55:14.385Z
+date: 2025-02-26T18:39:56.725Z
+updated: 2025-03-04T16:49:44.097Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,6 @@ Close
 
  If your [Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Change Your Messaging Privacy
 
  Facebook has made Messenger its main messaging app. It comes with [several exciting features](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) and privacy settings that encourage users to maintain their desired privacy levels.
@@ -86,27 +83,14 @@ Close
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 5\. Unfriend or Block a Facebook Account
 
 ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![Block user on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Block-user-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
  We saved the most extreme measure for the last. If no other privacy option seems to be doing it for you, it’s probably time to get rid of that contact once and for all.
@@ -121,9 +105,6 @@ Close
 
  You can also [report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Make Facebook a Safe Space for Yourself
 
  Facebook is one of the most widely used applications of all time. Some people like to have some personal space and avoid unwanted messages.
@@ -132,14 +113,11 @@ Close
 
  Multiple safety options make it possible to create a safe space for yourself and your contacts. We recommend reporting any harmful or abusive activity that violates your safety and Facebook policies before blocking that contact.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,8 +126,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-jumpstarting-creativity-turning-graphics-into-emoji-stickers-with-ease/"><u>[New] Jumpstarting Creativity Turning Graphics Into Emoji Stickers with Ease</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/5-easy-ways-to-fix-canon-printer-wont-print-in-windows-10/"><u>5 Easy Ways to Fix Canon Printer Won't Print in Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-users-at-risk-the-effect-of-deleting-facial-recognition-data-on-safety/"><u>Facebook Users at Risk? The Effect of Deleting Facial Recognition Data on Safety?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-best-practices-in-youtube-keyword-selection/"><u>In 2024, Best Practices in YouTube Keyword Selection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-screen-spectacular-sj6-vs-yi-4k-edition/"><u>In 2024, Screen Spectacular SJ6 Vs. Yi 4K Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-process-of-untagging-fb-images/"><u>Navigating the Process of Untagging FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-watchfulness-the-9-steps-to-recognizing-a-compromised-profile/"><u>Network Watchfulness: The 9 Steps to Recognizing a Compromised Profile</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y27s-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y27s Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-moderating-your-virtual-connectedness/"><u>Techniques for Moderating Your Virtual Connectedness</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-countdown-for-metas-default-e2e-encryption-adoption-by-2023/"><u>The Countdown for Meta's Default E2E Encryption Adoption by 2023</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-choice-in-live-broadcasting-tools-discover-manycam-and-online-cameras/"><u>Top Choice in Live Broadcasting Tools: Discover ManyCam & Online Cameras</u></a></li>
+</ul></div>
 

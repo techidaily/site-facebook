@@ -1,7 +1,7 @@
 ---
 title: 5 Ways to Clean Up Your Facebook Account
-date: 2024-08-28T02:56:33.758Z
-updated: 2024-08-29T02:56:33.758Z
+date: 2025-02-26T19:59:40.448Z
+updated: 2025-03-04T19:56:53.804Z
 tags:
   - facebook
 categories:
@@ -43,9 +43,6 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
 ![Deleting an Album on Facebook Warning Pop Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729222.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Deleting Your Photos on Facebook
 
 **Your Photos** contains every image you've ever uploaded to your Facebook timeline. The only way to delete photographs in the**Your Photos** section is one at a time. It's a long and slow process.
@@ -54,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
 ![View Photos hidden from timeline on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729155.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Deleting Photos of You on Facebook
 
  Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our [Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
@@ -67,14 +61,6 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
 ![Deleting a tag on an image you don't own Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729089.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## 3\. Unlike and Unfollow Facebook Pages
 
  Next, it's time to sort through the Facebook Pages you like and follow. To find your liked Pages, head to the Pages flag icon and then select**Liked Pages** . Here, you'll find every page you currently like on Facebook. To help you sort through your liked Pages, try filtering them from oldest to newest.
@@ -85,56 +71,35 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
 ![Unlike a Facebook Page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728904.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## 4\. Leave Facebook Groups
 
  Now your Pages are in order, it's time to go through your Facebook Groups. Head to the Groups icon in your Profile menu, which looks like three people in a blue circle. Tap the**Settings** gear icon and then select**Membership** in the**Manage Groups** section. Here, you'll be able to scroll through all the groups you're currently a member of and**Leave** any you no longer use.
 
 ![Find and Edit Groups you Follow on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728697.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  Next, go back to your**Group Settings** , only this time select**Following** . Here, you'll see the groups you Follow but aren't a member of.**Unfollow** any groups you no longer want to see content from.
 
 ![Leaving Facebook Groups You are a member of](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728617.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Show or Hide Facebook Profile Sections
 
  While this won't clean up your Facebook feed, it will hide certain things from your Facebook profile. Head to your profile page and then tap**More** . Then select,**Manage Sections** . Here, you can choose the sections to show or hide on your Profile. De-selecting**Likes** and**Groups** will prevent your followers from finding the Groups and Pages you follow, but it won't change the content you see on your news feed.
 
 ![How to manage sections on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728566.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
  You can't hide your About, Friends, Following, or Photos profile sections, but you can choose who can see this profile information by changing your Facebook privacy settings.
 
 ![Hide or show Facebook Sections](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728521.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Tailoring What You See on Facebook
 
  Cleaning up your Facebook profile will help you see more of what you care about on your Facebook feed. At the end of the day, the more people, pages, and groups you follow, the more content Facebook will try to throw at you. Hopefully, your Facebook is now a more accurate representation of the person you are now and no longer a memorial to the person you were when you first set up your profile.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,8 +108,19 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-mastering-light-manipulation-for-captivating-gopro-time-lapse-scenes/"><u>[New] Mastering Light Manipulation for Captivating GoPro Time Lapse Scenes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-unrivaled-selection-of-top-10-mobile-video-calling-apps-for-2024/"><u>[New] Unrivaled Selection of Top 10 Mobile Video Calling Apps for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-golden-geographies-the-best-maps-for-treasure-hunters/"><u>[Updated] Golden Geographies The Best Maps for Treasure Hunters</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-guide-to-simple-high-dynamic-range/"><u>[Updated] In-Depth Guide to Simple High Dynamic Range</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-maximizing-viewing-experience-in-android/"><u>2024 Approved Maximizing Viewing Experience in Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-transformation-and-future-of-meta-platforms/"><u>Beyond Social Media: The Transformation and Future of Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-unraveled-how-to-know-its-online/"><u>FB Status Unraveled – How to Know It’s Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/guaranteeing-your-snaps-stay-off-public-sight/"><u>Guaranteeing Your Snaps Stay Off Public Sight</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/hp-notebook-tutorial-the-ultimate-guide-to-taking-easy-screen-captures/"><u>HP Notebook Tutorial: The Ultimate Guide to Taking Easy Screen Captures</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-lowering-volume-steps-in-logic-pro-audio-editing/"><u>In 2024, Lowering Volume Steps in Logic Pro Audio Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-to-inconspicuous-social-media-applause/"><u>The Secret to Inconspicuous Social Media Applause</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-disabling-facebook-link-tracking-is-wise/"><u>Why Disabling Facebook Link Tracking Is Wise</u></a></li>
+</ul></div>
 

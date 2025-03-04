@@ -1,7 +1,7 @@
 ---
 title: Are Online 'Dislikes' Harmful or Helpful?
-date: 2024-08-28T02:55:13.260Z
-updated: 2024-08-29T02:55:13.260Z
+date: 2025-02-25T18:54:57.529Z
+updated: 2025-03-04T20:03:12.560Z
 tags:
   - facebook
 categories:
@@ -41,18 +41,12 @@ thumbnail: https://thmb.techidaily.com/497e0cf4a494c643d111720df0c9d81e356ffb488
 
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
  With the new policy on not showing the number of dislikes, however, that doesn't have to be such a major issue as it was before.
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### It Helps Your Mental Health
 
 ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
@@ -69,9 +63,6 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding the dislikes number, YouTube essentially spares both the creator and their fan base of the stress, anxiety, and all the other negative emotions that can arise from being the victim of a hate campaign.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Cons to the Dislike Button Hiding Its Numbers
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
@@ -80,9 +71,6 @@ What's more, it goes beyond affecting only the poster.
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
  A lot of people go on YouTube to look for tutorials, guides, and examples of how to do certain things. When you find a video that seems to give you what you're looking for, checking out the number of dislikes can be actually helpful.
@@ -101,27 +89,12 @@ What's more, it goes beyond affecting only the poster.
 
  Many YouTube viewers use the like-to-dislike ratio to decide whether to watch a video or move on to another. When you can't use that ratio to make your judgment, you might get duped into watching something that wastes your time.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is It the Right Move to Have or Hide Dislikes?
 
  Another important matter to consider is whether having a dislike button is even right for the platform.
 
  Does it make sense to have a dislike button, remove it, or hide the count? Let's look at two examples: Twitter and Reddit.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Does It Make Sense for the Platform at All?
 
  Twitter is dipping its toes into the dislike pool by introducing a [downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
@@ -152,14 +125,11 @@ What's more, it goes beyond affecting only the poster.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,8 +138,23 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-screen-selection-dilemma-ultrawide-monitors-versus-uhd-4k-for-2024/"><u>[Updated] Screen Selection Dilemma UltraWide Monitors versus UHD 4K for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-richest-video-content-star-on-earth/"><u>2024 Approved The Richest Video Content Star on Earth</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chuckle-centric-ringtone-websites-guide/"><u>Chuckle-Centric Ringtone Websites Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-the-latest-intel-hd-graphics-driver-for-windows-11/"><u>Download and Install the Latest Intel HD Graphics Driver for Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-leave-a-life360-group-on-infinix-smart-8-plus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Infinix Smart 8 Plus Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-facebooks-transformation-into-meta/"><u>Interactive Evolution: Facebook's Transformation Into Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-audience-reach-posting-instagram-reels-on-facebook/"><u>Maximizing Audience Reach: Posting Instagram Reels on Facebook</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-issues-with-accidental-shortcut-triggers/"><u>Overcoming Issues with Accidental Shortcut Triggers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-tecno-spark-20-pro-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Tecno Spark 20 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-royalties-the-role-of-meta-in-content-creator-earnings/"><u>Reels & Royalties: The Role of Meta in Content Creator Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sleepwalkers-understanding-app-interruptions/"><u>Social Media Sleepwalkers: Understanding App Interruptions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solving-your-microsoft-outlooks-faulty-spellcheck-issues/"><u>Solving Your Microsoft Outlook's Faulty Spellcheck Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/suing-g-f-t-trump-contests-alleged-online-content-control/"><u>Suing G-F-T: Trump Contests Alleged Online Content Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-debate-over-digital-dissatisfaction-tools/"><u>The Debate Over Digital Dissatisfaction Tools</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2025-02-08T17:43:00.285Z
-updated: 2025-02-15T13:07:19.380Z
+date: 2025-03-01T17:56:02.093Z
+updated: 2025-03-04T20:49:21.970Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
@@ -42,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -54,17 +46,9 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -79,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  By contrast, Apple probably became an unlikely hero for fighting the FBI to prevent access to its users' phones. In addition, Apple users are passionate about Apple products.
 
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Regulation Is Coming
 
@@ -109,18 +89,18 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-transformation-innovative-approaches-to-instagram-video-editing/"><u>[Updated] The Art of Transformation Innovative Approaches to Instagram Video Editing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/5yuv55s75asj5oplusb44o75zyn57iu6ygo56il44gn55m655sf44gz44kl44ko44op44o844go44gd44km44gr5aplusplus44gz44kl6kej5rg6562w/"><u>動画変換・圧縮過程で発生するエラーとそれに対する解決策</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-duel-of-viewers-google-cardboard-vs-samsung-vr/"><u>A Duel of Viewers Google Cardboard Vs. Samsung VR</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-engagement-uploading-instagram-reels-to-facebook-profile/"><u>Enhancing Engagement: Uploading Instagram Reels to Facebook Profile</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-obtain-official-samsung-adb-drivers-for-usb-connection/"><u>How to Obtain Official Samsung ADB Drivers for USB Connection</u></a></li>
-<li><a href="https://win-forum.techidaily.com/how-to-safely-remove-a-user-from-windows-10-leveraging-revo-uninstaller/"><u>How To Safely Remove a User From Windows 10: Leveraging Revo Uninstaller</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-broaden-your-messenger-network/"><u>How-To: Broaden Your Messenger Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovation-in-social-media-twittersphere-to-facebooks-knowledgeable-posting/"><u>Innovation in Social Media: Twittersphere to Facebook's Knowledgeable Posting</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-full-whatsapp-account-ability-post-privacy-policy-refusal/"><u>Maintaining Full WhatsApp Account Ability Post-Privacy Policy Refusal</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/pro-moviemakers-manual-for-pc-mac-and-mobile-systems/"><u>Pro Moviemaker's Manual for PC, Mac & Mobile Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/techs-intrigue-is-your-device-secretly-curating-commerce/"><u>Tech's Intrigue: Is Your Device Secretly Curating Commerce?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/table-video-popularity-tracker-in-youtube-arena-for-2024/"><u>Unbeatable Video Popularity Tracker in YouTube Arena for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-new-antitrust-legislation-targeting-giants/"><u>Unraveling New Antitrust Legislation Targeting Giants</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-top-11-best-bridge-cameras-ultimate-review/"><u>[New] 2024 Approved Top 11 Best Bridge Cameras [Ultimate Review]</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-fine-tuning-zoom-visuals-top-techniques-for-2024/"><u>[New] Fine-Tuning Zoom Visuals Top Techniques for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-delicious-spotlight-on-tiktok-farewells/"><u>[New] The Delicious Spotlight on TikTok Farewells</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-scripted-synergy-systems/"><u>[Updated] In 2024, Scripted Synergy Systems</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-techniques-to-prevent-accessing-youtube-on-your-ipad/"><u>Effective Techniques to Prevent Accessing YouTube on Your iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-virtual-persona-picture-perfection-tips/"><u>Elevating Your Virtual Persona: Picture Perfection Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chats-step-into-the-ar-realm-with-messenger/"><u>Facebook Chats Step Into the AR Realm with Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-evade-facebooks-watchful-eye/"><u>How to Evade Facebook's Watchful Eye</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-get-crisp-videos-for-free-top-online-video-quality-enhancement-tools/"><u>New Get Crisp Videos for Free Top Online Video Quality Enhancement Tools</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-unleash-the-power-of-video-scopes-in-your-video-editing-projects-find-the-most-common-video-scopes-and-how-to-use-them-on-video-editing-software-for-202/"><u>New Unleash the Power of Video Scopes in Your Video Editing Projects. Find the Most Common Video Scopes and How to Use Them on Video Editing Software for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579205386-unlocking-untapped-tongues-learn-abroad-at-home/"><u>Unlocking Untapped Tongues: Learn Abroad, at Home!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-symbolism-in-new-facebook-page-designations/"><u>Unpacking The Symbolism In New Facebook Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-101-comprehensively-understanding-russias-social-media/"><u>VK 101: Comprehensively Understanding Russia’s Social Media</u></a></li>
 </ul></div>
 

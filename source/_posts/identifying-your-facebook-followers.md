@@ -1,7 +1,7 @@
 ---
 title: Identifying Your Facebook Followers
-date: 2025-02-13T20:11:48.172Z
-updated: 2025-02-15T07:16:28.021Z
+date: 2025-03-02T18:31:50.700Z
+updated: 2025-03-04T19:04:09.301Z
 tags:
   - facebook
 categories:
@@ -24,19 +24,11 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to See Who Follows You on Facebook on Mobile
 
  The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Facebook profile followers section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-followers-section-1.jpeg)
 
@@ -59,17 +51,9 @@ Close
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Once logged in, click your name at the top of the left sidebar to open your profile.
 2. Click the**More** dropdown.
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can't See Your Facebook Followers? Here's Why
 
@@ -110,10 +94,6 @@ To change your followers' preference on the Facebook mobile app:
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
 
 Close
@@ -122,10 +102,6 @@ Close
 2. Tap the three**horizontal dots** immediately to the right of**Edit Profile** (below your name).
 3. Select**Follow** **Settings** .
 4. Under**Who Can Follow Me** , tick**Public** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Keep Control Over Your Facebook Followers
 
@@ -148,15 +124,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>[New] 2024 Approved Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/cb-branding-elements-download-free-pack-for-2024/"><u>[New] MCB Branding Elements Download Free Pack for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-quick-tips-apply-smooth-motion-blur-on-your-pics/"><u>[New] Quick Tips Apply Smooth Motion Blur on Your Pics</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-premium-top-5-storage-solutions-for-xbox-for-2024/"><u>[Updated] Premium Top 5 Storage Solutions for Xbox for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/nlp-versus-ml-unraveling-key-contrasts-in-ai-technologies/"><u>NLP versus ML: Unraveling Key Contrasts in AI Technologies</u></a></li>
-<li><a href="https://facebook.techidaily.com/respectful-farewells-guiding-the-management-of-deceaseds-facebook-profile/"><u>Respectful Farewells: Guiding the Management of Deceased's Facebook Profile</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/two-factor-authentication-for-added-security-to-your-apple-icloud-account/"><u>Two-Factor Authentication for Added Security to Your Apple iCloud Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-virtual-future-the-metaverse-explored/"><u>Unveiling The Virtual Future: The Metaverse Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-questions-legality-of-privacy-impacting-policies/"><u>WhatsApp Questions Legality of Privacy-Impacting Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-will-your-conversations-be-safe-with-e2ee-on-facebook-messenger/"><u>When Will Your Conversations Be Safe with E2EE on Facebook Messenger?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-sd-card-options-for-gopro-hero-8-plus-7-cameras/"><u>[Updated] Best SD Card Options for GoPro Hero 8 + 7 Cameras</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-skyrocket-your-channels-view-count-beyond-ten-hundred/"><u>[Updated] In 2024, Skyrocket Your Channel's View Count Beyond Ten Hundred</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-sound-loads-in-inshot-editing-software/"><u>[Updated] Mastering Sound Loads in InShot Editing Software</u></a></li>
+<li><a href="https://win-online.techidaily.com/1-tecnicas-de-recuperacao-para-dados-aperto-no-modo-gratis-reinsercao-do-comando-controlplusz/"><u>1. Técnicas De Recuperação Para Dados Aperto No Modo Grátis: Reinserção Do Comando Control+Z</u></a></li>
+<li><a href="https://facebook.techidaily.com/avatars-and-spaces-crafting-the-perfect-facebook-profile-picture/"><u>Avatars and Spaces: Crafting the Perfect Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-personal-preferences-and-group-presence/"><u>Balancing Personal Preferences and Group Presence</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-volatility-gaps-with-cryptos-stablecoin-solutions/"><u>Bridging Volatility Gaps with Crypto's Stablecoin Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-brands-through-thoughtful-facebook-engagement/"><u>Building Brands Through Thoughtful Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/code-revolution-with-facebook-and-rust-partnership/"><u>Code Revolution with Facebook & Rust Partnership</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-open-the-mystery-of-vague-online-posts/"><u>Cracking Open the Mystery of Vague Online Posts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/elevate-your-online-engagements-with-pc-and-phone-recordings-for-2024/"><u>Elevate Your Online Engagements with PC & Phone Recordings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144966923-facebooks-unique-value-proposition-here-are-6-pivotal-points/"><u>Facebook's Unique Value Proposition – Here Are 6 Pivotal Points</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149598351-interoperability-intensified-effortlessly-sync-facebook-items-with-top-apps/"><u>Interoperability Intensified: Effortlessly Sync Facebook Items with Top Apps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premium-twelve-full-frame-video-tech-lists-for-2024/"><u>Premium Twelve Full Frame Video Tech Lists for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2475792-9781942273028-un-curso-sobre-milagros-edicion-original-comentada/"><u>Un Curso Sobre Milagros Edicion Original Comentada | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-the-potential-of-quantum-hdr-for-2024/"><u>Unlocking the Potential of Quantum HDR for 2024</u></a></li>
 </ul></div>
 

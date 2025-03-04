@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers of Keeping Your FB History
-date: 2025-02-12T00:10:37.104Z
-updated: 2025-02-14T17:26:19.645Z
+date: 2025-03-02T16:51:25.389Z
+updated: 2025-03-04T19:05:19.818Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
 * [How to Delete Your Facebook Watch History](#how-to-delete-your-facebook-watch-history)
 * [Why You Should Delete Your Facebook Watch History](#why-you-should-delete-your-facebook-watch-history)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -53,15 +49,7 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -79,17 +67,9 @@ Close
 1. ![clear video watch history on the facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/clear-video-watch-history-pc-screenshot.jpg)  
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
@@ -103,10 +83,6 @@ Close
 3. Click on**Live videos you've watched** from the left sidebar.
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
@@ -135,18 +111,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-harness-the-power-of-your-mobile-content-on-youtube-starting-now/"><u>[New] Harness the Power of Your Mobile Content on YouTube, Starting Now</u></a></li>
-<li><a href="https://some-tips.techidaily.com/discover-the-future-of-finance-with-ms-copilot-your-comprehensive-guide-to-microsofts-revolutionary-ai-chatbot/"><u>Discover the Future of Finance with MS Copilot: Your Comprehensive Guide to Microsoft’s Revolutionary AI Chatbot</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-digital-dimensions-to-metaverse-realities-6-key-differences/"><u>From Digital Dimensions to Metaverse Realities - 6 Key Differences</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-y100i-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Y100i using Video Repair Utility on Mac?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-xiaomi-redmi-note-12-4g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Xiaomi Redmi Note 12 4G to New Phone | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/identifying-stealthy-launcher-processes-that-impede-your-systems-performance-on-windows/"><u>Identifying Stealthy Launcher Processes That Impede Your System's Performance on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/image-input-ai-output-new-form-of-writing-experiment/"><u>Image Input, AI Output: New Form of Writing Experiment</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-xs-max-blacklist-removal-tips-and-tools-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone XS Max Blacklist Removal Tips and Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-metas-approved-content-worthiness/"><u>Investigating Meta’s Approved Content Worthiness</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ion-tailgater-plus-assessed-uninterrupted-sound-and-powerful-bass-at-a-touch-for-outdoor-entertainment/"><u>ION Tailgater Plus Assessed: Uninterrupted Sound & Powerful Bass at a Touch for Outdoor Entertainment.</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-visionary-crusade-for-ai-supremacy-at-lightning-speed/"><u>Meta's Visionary Crusade for AI Supremacy at Lightning Speed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-dual-lens-approach-gaining-audience-insight-with-3-pov-strategies-for-youtube-reactions-for-2024/"><u>The Dual Lens Approach Gaining Audience Insight with 3 POV Strategies for YouTube Reactions for 2024</u></a></li>
-<li><a href="https://win-latest.techidaily.com/wie-man-synchronisierungsoptionen-in-ios-auf-seinem-ipad-oder-iphone-anpasst/"><u>Wie Man Synchronisierungsoptionen in iOS Auf Seinem iPad Oder iPhone Anpasst</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-humble-beginnings-surging-subscribers-and-views-in-youtube-world-for-2024/"><u>[Updated] From Humble Beginnings Surging Subscribers & Views in Youtube World for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-access-to-different-accounts-on-facebook/"><u>Accelerated Access to Different Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-portions-from-facebooks-725m-settlement-windfall/"><u>Accessing Portions From Facebook’s 725M Settlement Windfall</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-system-for-invisible-message-pictures-on-messenger/"><u>Alert System for Invisible Message Pictures on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-components-of-facebooks-white-list/"><u>Analyzing the Components of Facebook's White List</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-iphone-users-rising-in-opposition/"><u>App Tracking: IPhone Users Rising in Opposition</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/assessment-of-vidmas-impact-on-modern-screen-recorders-for-2024/"><u>Assessment of Vidma's Impact on Modern Screen Recorders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-of-phishing-schemes-in-your-news-feed/"><u>Beware of Phishing Schemes in Your News Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-goggles-and-gloves-6-key-divergences-between-metaverse-and-vr/"><u>Beyond Goggles & Gloves: 6 Key Divergences Between Metaverse & VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brighter-future-with-facebook-rust-collaboration/"><u>Building a Brighter Future with Facebook-Rust Collaboration</u></a></li>
+<li><a href="https://facebook.techidaily.com/commerce-through-counterintelligence/"><u>Commerce Through Counterintelligence</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/essential-steps-to-enter-windows-8s-protected-state-graphics-driver-removal/"><u>Essential Steps to Enter Windows 8'S Protected State - Graphics Driver Removal</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/getting-back-on-track-how-to-fix-windows-1n-search-malfunctions-easily/"><u>Getting Back on Track: How to Fix Windows 1N Search Malfunctions Easily</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-the-king-of-fighters-xv-from-crashing-on-your-pc-expert-tips-and-advice/"><u>How to Stop The King of Fighters XV From Crashing on Your PC: Expert Tips and Advice</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-nokia-c110-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Nokia C110 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-setting-up-dns-on-windows-11/"><u>Step-by-Step: Setting Up DNS on Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-gpt-decoded-essential-knowledge-for-families/"><u>The GPT Decoded: Essential Knowledge for Families</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-infinix-note-30i-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Infinix Note 30i to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
 </ul></div>
 

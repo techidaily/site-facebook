@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2025-02-09T05:04:01.099Z
-updated: 2025-02-15T06:32:43.189Z
+date: 2025-02-26T16:46:10.544Z
+updated: 2025-03-04T20:29:44.044Z
 tags:
   - facebook
 categories:
@@ -28,25 +28,13 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -69,17 +57,9 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
 
@@ -112,21 +92,18 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/updated-is-sns-hdr-pro-the-gold-standard-for-hdr-editors/"><u>[Updated] Is SNS HDR Pro the Gold Standard for HDR Editors?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-modern-uses-of-drones-to-coming-innovations/"><u>[Updated] Modern Uses of Drones to Coming Innovations</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comprehensive-analysis-of-the-western-digital-data-lifeguard-a-users-guide/"><u>Comprehensive Analysis of the Western Digital Data Lifeguard: A User's Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-guide-updating-and-installing-amd-r9-series-drivers-for-windows-systems/"><u>Easy Guide: Updating and Installing AMD R9 Series Drivers for Windows Systems</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-realme-gt-neo-5-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Realme GT Neo 5</u></a></li>
-<li><a href="https://facebook.techidaily.com/impending-ruling-trumps-ban-under-scrutiny-at-fb-oversight-panel/"><u>Impending Ruling: Trump's Ban Under Scrutiny at FB Oversight Panel.</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-transition-tactics-for-a-hassle-free-macos-11-big-sur-upgrade/"><u>In 2024, Transition Tactics for a Hassle-Free macOS 11 Big Sur Upgrade</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209667289-9781547577309-meditacao-aprenda-a-como-meditar-para-paz-interior-e-felicidade/"><u>Meditação - Aprenda A Como Meditar Para Paz Interior E Felicidade | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-alerts-on-tiktok-reddit-your-activity-ensures-usability/"><u>Privacy Alerts on TikTok, Reddit: Your Activity Ensures Usability</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Honor Magic 5 Lite? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-report-childs-social-media-activity/"><u>Steps to Report Child's Social Media Activity</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-blueprint-of-youtubes-innovative-shorts-economy-model/"><u>The Blueprint of YouTube's Innovative Shorts Economy Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/to-embrace-or-refrain-from-meta-ais-social-media-journey/"><u>To Embrace or Refrain From Meta AI's Social Media Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-top-insights-from-facebook-documents/"><u>Unveiling Top Insights From Facebook Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/weighing-in-fb-expat-communities-advantages-and-drawbacks/"><u>Weighing In: FB Expat Communities Advantages & Drawbacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapps-unaltered-capability-without-privacy-policy-acceptance/"><u>WhatsApp's Unaltered Capability without Privacy Policy Acceptance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/emystifying-youtube-premium-membership-benefits-for-2024/"><u>[New] Demystifying YouTube Premium Membership Benefits for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-prime-strategies-for-high-quality-youtube-mp3mpeg/"><u>[Updated] In 2024, Prime Strategies for High-Quality YouTube MP3/MPEG</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lens-lineup-leaders-a-comprehensive-1-10-list/"><u>[Updated] Lens Lineup Leaders A Comprehensive #1-10 List</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/4-egayements-francais-lart-de-dire-merci/"><u>4 Égayements Français: L'Art De Dire 'Merci'</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-messenger-encryption-in-fb/"><u>Assessing Messenger Encryption in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-7-apps-for-streamlining-content-release-on-social-platforms/"><u>Best 7 Apps for Streamlining Content Release on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-barrier-of-a-frozen-account/"><u>Breaking the Barrier of a Frozen Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-foundation-of-trust-with-facebooks-open-network-portal/"><u>Building a Foundation of Trust with Facebook's Open Network Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-community-of-positivity-online/"><u>Cultivating a Community of Positivity Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-mantras-key-personal-details-to-keep-offline/"><u>Cybersecurity Mantras: Key Personal Details to Keep Offline</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-optimizing-youtube-content-with-social-blade-a-stats-journey/"><u>In 2024, Optimizing YouTube Content With Social Blade - A Stats Journey</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/streamlit-success-top-5-tools-for-stellar-visuals-for-2024/"><u>Streamlit Success Top 5 Tools for Stellar Visuals for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-electronics-by-toms-hardware-team/"><u>Ultimate Guide to Electronics by Tom's Hardware Team</u></a></li>
 </ul></div>
 

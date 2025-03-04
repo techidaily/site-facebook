@@ -1,7 +1,7 @@
 ---
 title: 3 Reasons You Should Be Worried About the Facebook Metaverse
-date: 2024-08-28T02:54:11.321Z
-updated: 2024-08-29T02:54:11.321Z
+date: 2025-03-03T19:52:50.623Z
+updated: 2025-03-04T16:10:57.737Z
 tags:
   - facebook
 categories:
@@ -55,16 +55,10 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be [giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
  With its considerable user base, Meta is a major culprit in letting this happen. An investigative series in the [Wall Street Journal](https://www.wsj.com/articles/the-facebook-files-11631713039) shows that a huge percentage of young Facebook users are aware of their addiction to its products, but feel trapped and unable to reduce their usage.
@@ -77,16 +71,10 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
  Meta already enjoys a significant [monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
  The metaverse promises to be an all-encompassing next phase for the internet. A lot of what isn't really possible to do on the internet today—dancing, singing, working out—could make sense with the metaverse.
@@ -97,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Meta's Vision of the Metaverse
 
  While many people believe that no single entity will be able to maintain significant control of the metaverse, Big Tech has different ideas. Companies like Meta do not thrive in decentralization. Meta's vision of the metaverse isn't exactly the user-controlled world the larger public envisions; it's an immersive version of its current products and ecosystem.
@@ -108,14 +93,11 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
  This doesn't mean you have to throw out your VR gaming devices right now, though. There are still key differences to understand between VR and the metaverse.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,8 +106,20 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/utting-edge-editing-a-roadmap-for-high-quality-youtube-sounds-for-2024/"><u>[New] Cutting-Edge Editing A Roadmap for High-Quality YouTube Sounds for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-in-depth-analysis-of-vsdcs-features-and-its-best-software-rival/"><u>[New] In 2024, In-Depth Analysis of VSDC's Features and Its Best Software Rival</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-record-presentation-for-digital-projection/"><u>[Updated] 2024 Approved Record Presentation for Digital Projection</u></a></li>
+<li><a href="https://fox-access.techidaily.com/beginning-participating-in-and-organizing-group-video-calls-zoom-for-android-devices/"><u>Beginning, Participating in, and Organizing Group Video Calls (Zoom) for Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-citizenaship-banned-trump-but-not-indefinitely/"><u>Cyber Citizenaship: Banned Trump, but Not Indefinitely</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-altered-connotations-on-facebook-pages/"><u>Demystifying the Altered Connotations on Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-aesthetics-building-collage-content-online/"><u>Effortless Aesthetics: Building Collage Content Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-previous-version-of-excel-2010-file-stellar-by-stellar-guide/"><u>How to Restore Previous Version of Excel 2010 File? | Stellar</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/profit-making-techniques-for-beauty-vloggers/"><u>Profit-Making Techniques for Beauty Vloggers</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-fixed-top-10-windows-glitch-solvers/"><u>Quick Fixed: Top 10 Windows Glitch Solvers</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-instagram-reels-on-facebook-a-step-by-step-guide/"><u>Sharing Instagram Reels on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-cleaning-up-your-social-sphere/"><u>Unveiling the Process: Cleaning up Your Social Sphere</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Covert Norms of Online Networking on FB
-date: 2025-02-13T19:07:34.263Z
-updated: 2025-02-14T19:59:50.553Z
+date: 2025-03-03T19:52:39.952Z
+updated: 2025-03-04T19:02:22.618Z
 tags:
   - facebook
 categories:
@@ -48,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Facebook Add Friend button on a person's profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Add-Friend.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
 ## How to Find Out Whether Someone Denied Your Facebook Friend Request
@@ -62,10 +58,6 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
  If you can't send them a friend request at all, they may have changed who can add them or they denied your friend request less than a year ago.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Unfollowing vs. Unfriending on Facebook
 
  Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on[following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
@@ -74,17 +66,9 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Facebook on-post menu to unfollow or snooze a friend.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Alternatively, head to your friend's profile, expand the menu right next to your friendship status, and select**Unfollow** from the bottom.
 
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Unwritten Facebook Friend Request Rules
 
@@ -114,19 +98,11 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
  If you just want to follow someone's Facebook posts, and if there is an option to follow them, rather choose that option. From their profile, click the three-dot menu, and select**Follow** . This allows you to see what they are up to, but your timeline is not shared with them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Report Spammy Friend Requests
 
  When you delete a friend request, Facebook promises that the sender won't be notified. But they might send you a new request. If you can't get rid of them, you can use either the**Find support or report offline** or**Block** options, available from the three-dot menu, to prevent further friend requests from that person.
 
 ![Block person after unsolicited friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Block-Friend-Request.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Use the first option to report fake accounts, strangers, or people who harass you.
 
@@ -170,10 +146,6 @@ Keep in mind that if you do this, the person may be penalized.
 
 ![Edit your Facebook friends privacy.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-Edit-Privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Can't I Friend Someone on Facebook?
 
  If you can't seem to friend someone on Facebook, here are the most likely reasons...
@@ -185,10 +157,6 @@ Keep in mind that if you do this, the person may be penalized.
  If your request was deleted, Facebook has blocked you from sending that person another friend request for one whole year. The only way to get around this is to ask the other person to send you a friend request.
 
  If your request is still pending, you could send your friend-to-be a message and ask them to approve your request.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. You Blocked the Other Person
 
@@ -204,10 +172,6 @@ Keep in mind that if you do this, the person may be penalized.
 
  If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
  This can happen if you send too many friend requests at once, have many unanswered friend requests, or if several people marked your requests as spam.
@@ -215,10 +179,6 @@ Keep in mind that if you do this, the person may be penalized.
  According to[the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
 
 Follow our guidelines above to avoid this from happening again.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Master Your Facebook Friendships
 
@@ -241,18 +201,17 @@ Follow our guidelines above to avoid this from happening again.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-quick-and-convenient-video-edits-in-windows-11-photos-for-2024/"><u>[New] Quick & Convenient Video Edits in Windows 11 Photos for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-master-the-art-of-screenshot-and-video-edits-top-8-mobile-choices/"><u>2024 Approved Master the Art of Screenshot and Video Edits – Top 8 Mobile Choices</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-the-crashes-resource-monitor-on-windows-11/"><u>Addressing the Crashes: Resource Monitor on Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-innovative-subscription-concept-outshines-tech-industry-standards/"><u>Facebook’s Innovative Subscription Concept Outshines Tech Industry Standards</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-13-pro-max-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone 13 Pro Max If Youve Tried Everything</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-find-old-posts-on-your-facebook-timeline/"><u>How to Find Old Posts on Your Facebook Timeline</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-approaches-for-striking-fb-cover-pics/"><u>Innovative Approaches for Striking FB Cover Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-your-way-through-facebooks-725-million-payout/"><u>Navigating Your Way Through Facebook's $725 Million Payout</u></a></li>
-<li><a href="https://facebook.techidaily.com/receive-instagram-2fa-codes-directly-on-whatsapp/"><u>Receive Instagram 2FA Codes Directly on WhatsApp</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/schritt-fur-schritt-anleitung-zum-abschalten-von-hyper-v-unter-windows/"><u>Schritt-Für-Schritt-Anleitung Zum Abschalten Von Hyper-V Unter Windows</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-mac-users-how-to-securely-encryptdecrypt-your-hard-drive-video-lesson-inside/"><u>Ultimate Mac Users' How-To: Securely Encrypt/Decrypt Your Hard Drive - Video Lesson Inside</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/wifi-ram-mpeg-and-desktop/"><u>무료 WiFi RAM MPEG 변환 - 모바일 & Desktop 호환성</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-beginners-handbook-to-igtv-mastery/"><u>[New] 2024 Approved The Beginner's Handbook to IGTV Mastery</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-customized-online-persona-image/"><u>Building a Customized Online Persona Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzz-battalion-the-elite-20-sites-and-apps-for-social-interaction/"><u>Buzz Battalion: The Elite 20 Sites & Apps for Social Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparative-analysis-of-metaai-vs-other-chatbot-types/"><u>Comparative Analysis of MetaAI vs Other Chatbot Types</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-defense-recognizing-and-remedying-facebook-intrusions/"><u>Data Defense: Recognizing and Remedying Facebook Intrusions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-choosing-platforms-youtube-shorts-vs-tiktok-best-for-minis/"><u>In 2024, Choosing Platforms YouTube Shorts Vs. TikTok – Best for Minis</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On Apple iPhone 14 Pro Max?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/745890-9781439191095-in-her-power/"><u>In Her Power | Free Book</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/snapchat-strategies-the-guide-to-biz-marketing-mastery-for-2024/"><u>Snapchat Strategies The Guide to Biz Marketing Mastery for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/whats-new-in-your-logitech-extreme-3d-check-our-latest-update/"><u>What’s New in Your Logitech Extreme 3D? Check Our Latest Update!</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-not-recognizing-nvidia-gpus/"><u>Windows Not Recognizing Nvidia GPUs</u></a></li>
 </ul></div>
 

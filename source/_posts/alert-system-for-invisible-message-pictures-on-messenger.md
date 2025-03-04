@@ -1,7 +1,7 @@
 ---
 title: Alert System for Invisible Message Pictures on Messenger
-date: 2024-08-23T02:09:38.685Z
-updated: 2024-08-24T02:09:38.685Z
+date: 2025-02-25T16:54:29.616Z
+updated: 2025-03-04T16:50:01.987Z
 tags:
   - facebook
 categories:
@@ -55,23 +55,17 @@ Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Other Updates to Messenger
 
  Besides the opt-in end-to-end encryption feature, encrypted voice and video calls are also now available to everyone. Users can also reply to specific messages in their end-to-end encrypted chats, either by long pressing or swiping to reply. In addition, typing indicators have been added, so you can now see when others are typing.
 
  Meta has also added Verified Badges to help identify authentic accounts and have meaningful interactions. The new Save Media feature will let you save a video or image by long-pressing any media you receive. And lastly, the Video edits feature will enable you to edit a photo or video from your gallery before sending it, meaning you can add stickers, text, or crop and edit audio (for videos).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-vid-recorders-vault-top-techniques-for-tv-streaming/"><u>[New] Vid-Recorder's Vault Top Techniques for TV Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-how-to-add-transitions-on-inshot-app/"><u>[Updated] In 2024, How to Add Transitions on Inshot App?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-storage-sizing-film-duration-in-gb/"><u>[Updated] In 2024, Storage Sizing Film Duration in GB</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-voices-facebook-introduces-audiovisual-hub/"><u>Bridging Voices: Facebook Introduces Audiovisual Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealed-contacts-on-facebook-platform/"><u>Concealed Contacts on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-connectivity-share-your-fb-memories-anywhere/"><u>Cross-Platform Connectivity: Share Your Fb Memories Anywhere.</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-directed-posting-uncover-3-fb-tagging-ways/"><u>Decoding the Mystery of Directed Posting: Uncover 3 Fb Tagging Ways</u></a></li>
+<li><a href="https://common-error.techidaily.com/exe-errors-tamed-explorer-on-win1011/"><u>Exe Errors Tamed – Explorer on Win10/11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-6-plus-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone 6 Plus Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/including-all-even-the-hidden-faces-of-your-group/"><u>Including All, Even the Hidden Faces of Your Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-meets-vr-six-critical-disparities-to-consider/"><u>Metaverse Meets VR: Six Critical Disparities to Consider</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pushing-boundaries-innovative-memes-with-kinemaster/"><u>Pushing Boundaries Innovative Memes with KineMaster</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revamping-your-videos-top-5-mac-editors-at-hand/"><u>Revamping Your Videos? Top 5 Mac Editors at Hand</u></a></li>
+<li><a href="https://win-latest.techidaily.com/solving-windows-software-conflicts-efficiently-guidance-by-yl-software-professionals/"><u>Solving Windows Software Conflicts Efficiently - Guidance by YL Software Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-visual-voyage-for-more-engagement-on-social-platforms/"><u>The Visual Voyage for More Engagement on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/verdict-on-holding-facebook-oversight-on-trump-ban/"><u>Verdict on Holding: Facebook Oversight on Trump Ban</u></a></li>
+<li><a href="https://win-blog.techidaily.com/why-does-century-age-of-ashes-keep-crashing-solutions-and-tips-for-gamers/"><u>Why Does Century: Age of Ashes Keep Crashing? Solutions and Tips for Gamers</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Behind the Scenes: Who Spoke on 60 Minutes About Facebook?"
-date: 2024-08-28T02:55:53.150Z
-updated: 2024-08-29T02:55:53.150Z
+date: 2025-03-03T17:46:46.056Z
+updated: 2025-03-04T16:11:14.550Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
 
 ## 5 Claims Made by Frances Haugen on 60 Minutes
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
 
  Haugen claims that of all the content options Facebook can show you, the algorithm shows you content that is most likely to get a particular reaction from you—content that may incite violence or other extreme reactions or emotions.
@@ -42,27 +39,18 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
 
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
 
  Haugen claims that the more you consume content that evokes anger or incites violence, the more profitable it is for Facebook.
 
 > Facebook makes more money when you consume more content. People enjoy engaging with things that elicit an emotional reaction. And the more anger that they get exposed to, the more they interact and the more they consume.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Facebook Chooses Profit Over Safety
 
  Haugen claims that Facebook continuously trades in users' safety for its own gain by allowing dangerous content on its platform.
 
 > Facebook has demonstrated they cannot act independently, Facebook, over and over again, has shown it chooses profit over safety. It is subsidizing, it is paying for its profits with our safety.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### 4\. Facebook Is Lying to You About Its Fight Against Hate, Violence, and Misinformation
 
  Haugen claims that Facebook turned on safety systems to reduce misinformation around the 2020 Election, but that many of those measures were temporary.
@@ -71,33 +59,23 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
 
  Related:[Study Suggests Facebook Handled Election Misinformation Poorly](https://www.makeuseof.com/study-facebook-election-misinformation/)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Instagram Is Harming Teenage Girls
 
  As already widely reported, Haugen claims that Instagram is negatively impacting the teenagers using the social media app.
 
 > Facebook's own research says, as these young women begin to consume this-- this eating disorder content, they get more and more depressed. And it actually makes them use the app more. And so, they end up in this feedback cycle where they hate their bodies more and more. Facebook's own research says it is not just the Instagram is dangerous for teenagers, that it harms teenagers, it's that it is distinctly worse than other forms of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## What Is the Way Forward for Facebook?
 
  Haugen has made some bold claims about the way Facebook operates, and her lawyers have filed several complaints with the Securities and Exchange Commission, which enforces the law in financial markets.
 
  In the meantime, Facebook has, unsurprisingly, released a statement denying the claims made by Haugen, saying it has invested significantly in keeping its platform safe. But this could yet prove to be a watershed moment, with Facebook forced to hold itself more to account.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,8 +84,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unlock-the-potential-of-slow-motion-creation-a-comprehensive-guide-to-impressive-instagram-videos/"><u>[New] 2024 Approved Unlock the Potential of Slow-Motion Creation A Comprehensive Guide to Impressive Instagram Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-professional-streaming-best-devices-to-record-live-sessions/"><u>[Updated] Professional Streaming Best Devices to Record Live Sessions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-selecting-your-channel-weighing-up-the-merits-of-igtv-and-youtube/"><u>[Updated] Selecting Your Channel Weighing Up the Merits of IGTV & YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-well-being-boosted-by-9-key-social-media-factors/"><u>Digital Well-Being Boosted by 9 Key Social Media Factors</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-apple-iphone-6s-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on Apple iPhone 6s Safe and Legal</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-unwanted-glances-the-ultimate-fb-privacy-guide/"><u>Eliminating Unwanted Glances: The Ultimate FB Privacy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-crowd-sourced-to-customized-redefining-your-facebook-view/"><u>From Crowd-Sourced to Customized: Redefining Your Facebook View</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-network-to-nexus-facebooks-metamate-evolution/"><u>From Network to Nexus: Facebook's 'Metamate' Evolution</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-realme-11x-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Realme 11X 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-to-prominence-in-the-social-sphere/"><u>Journey to Prominence in the Social Sphere</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-nvidia-rtx-2060-super-graphics-card-drivers-compatible-with-windows-10-and-11-download-now/"><u>Latest NVIDIA RTX 2060 Super Graphics Card Drivers Compatible with Windows 10 and 11 - Download Now</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/most-popular-apps-for-your-samsung-smart-tv/"><u>Most Popular Apps for Your Samsung Smart TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-6-most-polarizing-figures-in-tech/"><u>The Top 6 Most Polarizing Figures in Tech</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ufos-and-illusions-aminys-perspective/"><u>Ufos & Illusions: Aminy's Perspective</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/webm-to-mp3-expert-recommended-conversion-solutions-for-2024/"><u>WebM to MP3 Expert-Recommended Conversion Solutions for 2024</u></a></li>
+</ul></div>
 

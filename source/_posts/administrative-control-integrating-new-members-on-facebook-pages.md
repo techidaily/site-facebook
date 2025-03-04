@@ -1,7 +1,7 @@
 ---
 title: "Administrative Control: Integrating New Members on Facebook Pages"
-date: 2024-08-23T02:08:03.411Z
-updated: 2024-08-24T02:08:03.411Z
+date: 2025-02-28T18:25:00.935Z
+updated: 2025-03-04T17:06:51.517Z
 tags:
   - facebook
 categories:
@@ -43,9 +43,6 @@ You actually have five roles to choose from on a Facebook page:
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
@@ -54,12 +51,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Click on Settings
 
  Once in the**Settings** tab, you’ll find loads of other ways to change how the page performs, from letting visitors share and comment on your posts to censoring profanity and connecting Instagram and WhatsApp.
@@ -74,9 +65,6 @@ You actually have five roles to choose from on a Facebook page:
 
  When you’re sure you want a new admin for your Facebook page and you have someone ready for the role, go to the**Assign a new Page role** section.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ### 4\. Assign a New Page Administrator
 
  Firstly, you need the person’s Facebook name or email address. Put either one in the available field and choose a role for them from the toggle bar—in this case**Admin** .
@@ -87,9 +75,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Edit an Admin’s Page Role to Remove Them
 
  If you want to replace or remove your extra administrator, find them in the**Existing Page roles** and click the**Edit** button beside their name.
@@ -98,18 +83,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Add an Admin to Your Facebook Page on Mobile
 
  The steps for assigning a new page admin role on Facebook are the same on mobile, except that the dashboard and buttons differ slightly from the browser-based system.
@@ -124,9 +97,6 @@ Android and iOS platforms differ slightly as well.
 
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
  Either way, go to**Settings > Page Roles > Add Person to Page** .
@@ -141,14 +111,11 @@ The app usually asks for your password to reach the final steps.
 
  There are several measures you can take to keep members happy, safe, and active, like enabling anonymous posting, setting firm rules, and monitoring the situation with your team’s help. All-in-all, good cooperation and communication are key.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,8 +124,20 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-essential-guide-to-youtube-edits-with-premiere-pro/"><u>[New] 2024 Approved The Essential Guide to YouTube Edits with Premiere Pro</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-transforming-mundane-footage-into-spectaculair-slow-mo-instareel/"><u>[New] 2024 Approved Transforming Mundane Footage Into Spectaculair Slow Mo InstaReel</u></a></li>
+<li><a href="https://win-webster.techidaily.com/best-top-3-tools-for-backing-up-your-windows-server-a-comparison-of-options-from-2022-2019-and-201/"><u>Best Top 3 Tools for Backing Up Your Windows Server: A Comparison of Options From 2022, 2019 & 201</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-13-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone 13 Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/password-woes-easily-reinstate-your-facebook-sign-in/"><u>Password Woes? Easily Reinstate Your Facebook Sign-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-profits-creators-guide-to-earnings-with-reels-and-marketplace-metrics/"><u>Reeling In Profits: Creators' Guide to Earnings with Reels and Marketplace Metrics</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refined-audio-mastering-the-update-to-scarlett-6i6-drivers/"><u>Refined Audio: Mastering the Update to Scarlett 6I6 Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-teenage-digital-footprint-navigating-facebook-settings/"><u>Securing Teenage Digital Footprint: Navigating Facebook Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-guide-to-sever-ties-in-fb-group/"><u>Stepwise Guide to Sever Ties in FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-content-streaming-through-page-management/"><u>Tailored Content Streaming Through Page Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-strategy-for-securing-your-fb-images/"><u>The Complete Strategy for Securing Your FB Images</u></a></li>
+<li><a href="https://techidaily.com/what-to-do-if-iphone-xs-is-not-listed-when-i-run-the-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What to do if iPhone XS is not listed when I run the software? | Stellar</u></a></li>
+</ul></div>
 

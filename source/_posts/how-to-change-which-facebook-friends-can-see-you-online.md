@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2025-02-13T01:40:01.848Z
-updated: 2025-02-14T20:59:57.732Z
+date: 2025-02-27T17:06:31.717Z
+updated: 2025-03-04T20:36:15.382Z
 tags:
   - facebook
 categories:
@@ -29,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ## How Do People See Who's Online on Facebook?
 
 ![facebook online dot active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-online-dot-active-status.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  When it comes to showing your online status on Facebook and Messenger, the company uses something called Active Status.
 
@@ -68,19 +64,7 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
 
@@ -135,10 +119,6 @@ This is different from a full Facebook block.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
@@ -160,24 +140,20 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-thriving-in-the-world-of-youtube-content-creation/"><u>[New] Thriving in the World of YouTube Content Creation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-in-depth-exploration-of-morphvox-modification-methods/"><u>[Updated] In 2024, In-Depth Exploration of MorphVOX Modification Methods</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/commanding-the-crowd-on-igtv-5-tips-to-gain-traction/"><u>Commanding the Crowd on IGTV 5 Tips to Gain Traction</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/complete-installation-instructions-and-free-downloads-for-epson-wf-2750-drivers/"><u>Complete Installation Instructions & Free Downloads for Epson WF-2750 Drivers</u></a></li>
-<li><a href="https://win-answers.techidaily.com/get-past-the-darkness-fixing-star-wars-battlefront-2s-persistent-black-screen-glitch/"><u>Get Past the Darkness: Fixing Star Wars Battlefront 2'S Persistent Black Screen Glitch</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gratis-online-omwandelen-van-snd-naar-wav-professionele-dienst-voor-audioconversies/"><u>Gratis Online Omwandelen Van SND Naar WAV - Professionele Dienst Voor Audioconversies</u></a></li>
-<li><a href="https://win-net.techidaily.com/guide-dachat-du-logiciel-de-recuperation-onekey-tout-ce-que-vous-devez-savoir/"><u>Guide D'achat Du Logiciel De Récupération OneKey : Tout Ce Que Vous Devez Savoir</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-demystifying-pexels-your-comprehensive-guide-to-free-imagery/"><u>New 2024 Approved Demystifying Pexels Your Comprehensive Guide to Free Imagery</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-network-hurdles-a-users-manual-to-fixing-surface-pro-wi-fi-problems/"><u>Overcoming Network Hurdles: A User's Manual to Fixing Surface Pro Wi-Fi Problems</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalized-protection-feature-fb-guide/"><u>Personalized Protection Feature: FB Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/pioneering-the-path-to-success-with-top-business-networks/"><u>Pioneering the Path to Success with Top Business Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-punishes-misinformers-facebooks-latest-directive/"><u>Platform Punishes Misinformers: Facebook's Latest Directive</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-poco-x5-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Poco X5? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/reclaiming-facebook-post-phone-disappearance/"><u>Reclaiming Facebook Post-Phone Disappearance</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-connectivity-the-new-normal-in-the-workplace/"><u>Social Connectivity: The New Normal in the Workplace</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-anonymizing-your-photo-feed/"><u>The Art of Anonymizing Your Photo Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-tide-shift-4-groundbreaking-modifications-in-online-networks/"><u>The Digital Tide Shift: 4 Groundbreaking Modifications in Online Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/traverse-social-journey-viewing-facebook-friends-histories/"><u>Traverse Social Journey: Viewing Facebook Friends' Histories</u></a></li>
-<li><a href="https://facebook.techidaily.com/urgent-steps-for-regaining-control-after-fb-breach/"><u>Urgent: Steps for Regaining Control After FB Breach</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mastering-your-fb-profile-picture-update/"><u>[New] 2024 Approved Mastering Your FB Profile Picture Update</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-prime-cinematic-creator-a-symphony-of-sights-and-sounds/"><u>[Updated] 2024 Approved Prime Cinematic Creator A Symphony of Sights & Sounds</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-unlocking-immersive-journeys-vr-tours-explained/"><u>[Updated] 2024 Approved Unlocking Immersive Journeys VR Tours Explained</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-premium-data-recorder-compatible-with-sony-a7s/"><u>[Updated] In 2024, Premium Data Recorder Compatible with Sony A7S</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-2-secrets-to-convert-instagram-videos-into-premium-mp4/"><u>[Updated] Top 2 Secrets to Convert Instagram Videos Into Premium MP4</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-new-ways-to-make-money-on-facebook-and-instagram/"><u>5 New Ways to Make Money on Facebook and Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-of-marketplace-facebooks-advancement-in-business-promotion/"><u>A New Era of Marketplace: Facebook's Advancement in Business Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-success-leveraging-critical-business-metrics/"><u>Accelerate Success: Leveraging Critical Business Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/beneath-the-surface-unseen-content-on-fb/"><u>Beneath the Surface: Unseen Content on Fb</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-honor-magic-5-pro-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Honor Magic 5 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-engagement-and-growth-learn-to-create-top-quality-videos-on-the-social-giant-facebook/"><u>Boost Engagement and Growth: Learn to Create Top-Quality Videos on the Social Giant, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-barriers-the-future-of-us-antitrust-policy/"><u>Breaking Down Barriers: The Future of U.S. Antitrust Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-conversations-across-platforms-whatsapp-and-fb-avatars/"><u>Bridging Conversations Across Platforms: WhatsApp & FB Avatars</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-vivo-s17e-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Vivo S17e?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Oppo F25 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

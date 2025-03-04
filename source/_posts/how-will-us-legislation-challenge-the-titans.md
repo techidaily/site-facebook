@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2025-02-14T01:03:36.841Z
-updated: 2025-02-15T03:16:53.842Z
+date: 2025-02-28T17:15:31.354Z
+updated: 2025-03-04T19:04:46.689Z
 tags:
   - facebook
 categories:
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
@@ -45,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -62,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -77,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  How would Amazon itself have ever been invented if not for a free and open market?
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
 
@@ -101,10 +85,6 @@ In essence: leave the selling to the sellers.
  It also requires them to maintain "transparent, third-party-accessible," portable APIs of all of their users' data. The idea is to make the services they offer interoperable—i.e., your medical record, as maintained by one app, can be easily transferred to the app of another service provider should you choose to make the switch.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
@@ -143,19 +123,17 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/approved-from-novice-to-viewer-keeper-top-10-basic-yet-captivating-video-ideas/"><u>2024 Approved From Novice to Viewer-Keeper Top 10 Basic Yet Captivating Video Ideas</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-ultimate-zoom-video-enhancement-playbook/"><u>2024 Approved The Ultimate Zoom Video Enhancement Playbook</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-the-new-privacy-challenges-from-ios-145/"><u>Facebook and the New Privacy Challenges From iOS 14.5</u></a></li>
-<li><a href="https://facebook.techidaily.com/gain-peace-of-mind-with-instagrams-whatsapp-2fa-delivery/"><u>Gain Peace of Mind with Instagram's WhatsApp 2FA Delivery</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-your-machine-customize-active-hours-to-sidestep-surprises-in-windows-11/"><u>Mastering Your Machine: Customize Active Hours to Sidestep Surprises in Windows 11</u></a></li>
-<li><a href="https://win-able.techidaily.com/msi-mystic-light-malfunction-on-pc-heres-how-to-restore-its-performance-under-windows/"><u>MSI Mystic Light Malfunction on PC? Here's How to Restore Its Performance Under Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/peaceful-pages-avoid-political-distractions-on-fb/"><u>Peaceful Pages: Avoid Political Distractions on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-secrets-within-fb-chat-rooms/"><u>Safeguarding Secrets Within FB Chat Rooms</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/securing-your-content-adobe-presenter-captures-for-2024/"><u>Securing Your Content Adobe Presenter Captures for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tackling-the-pandemic-big-data-to-world-health-aid/"><u>Tackling the Pandemic: Big Data to World Health Aid</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/troubleshooting-your-pcs-startup-issues-with-yl-software-solutions/"><u>Troubleshooting Your PC's Startup Issues with YL Software Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-meta-certification/"><u>Unveiling the Power of Meta Certification</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unwinding-a-livestream-in-seconds-seven-proven-methods-for-twitch-viewers/"><u>Unwinding a Livestream in Seconds Seven Proven Methods for Twitch Viewers</u></a></li>
-<li><a href="https://win-able.techidaily.com/1726030018051-youtube/"><u>YouTube動画フリーコンテンツダウンロードセキュア保存手順</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-achieving-professional-results-radial-effects-in-ps/"><u>[Updated] Achieving Professional Results Radial Effects in PS</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-challenge-to-facebook-group-administrators/"><u>Amazon's Challenge to Facebook Group Administrators</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-engagement-and-privacy-on-fb-platforms/"><u>Balancing Engagement and Privacy on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-meta-facebook-reveals-its-visionary-transformation-strategy/"><u>Becoming Meta: Facebook Reveals Its Visionary Transformation Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivitys-catch-understanding-social-media-risks/"><u>Connectivity's Catch: Understanding Social Media Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructive-methods-for-cultivating-collaborative-communities-fb/"><u>Constructive Methods for Cultivating Collaborative Communities (FB)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/imagecheck-reviews-station-for-2024/"><u>ImageCheck Reviews Station for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-6s-plus-to-ipad-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 6s Plus to iPad? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-the-decision-pros-and-cons-of-switching-to-an-rtx-gpu/"><u>Navigating the Decision: Pros and Cons of Switching to an RTX GPU</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-fix-for-read-from-disk-failed-error/"><u>Quick Fix for Read From Disk Failed Error</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-8-strategies-for-striking-thumbnails-in-youtube-circles-for-2024/"><u>Top 8 Strategies for Striking Thumbnails in YouTube Circles for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/youtube-url-your-way-easy-personalization-steps/"><u>Your YouTube URL, Your Way Easy Personalization Steps</u></a></li>
 </ul></div>
 

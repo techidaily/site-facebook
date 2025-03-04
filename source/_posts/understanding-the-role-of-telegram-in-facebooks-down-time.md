@@ -1,7 +1,7 @@
 ---
 title: Understanding the Role of Telegram in Facebook's Down-Time
-date: 2025-02-12T08:43:06.356Z
-updated: 2025-02-15T08:31:15.141Z
+date: 2025-02-27T18:58:29.695Z
+updated: 2025-03-04T17:25:25.309Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -40,17 +36,9 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 
 But why did Telegram benefit so much more than any of its rivals?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
@@ -70,10 +58,6 @@ But why did Telegram benefit so much more than any of its rivals?
 
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -85,10 +69,6 @@ But why did Telegram benefit so much more than any of its rivals?
  In that time, Telegram's reputation as an alternative has continued to grow, as too has the number of people using WhatsApp every day. When WhatsApp is not available, Telegram is now the primary backup for most people.
 
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
 
@@ -111,19 +91,22 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ffortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors-for-2024/"><u>[New] Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-impact-of-authenticity-in-insta-self-portraits/"><u>[New] The Impact of Authenticity in Insta Self-Portraits</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-beginning-zoom-video-calls-on-android-devices/"><u>[Updated] Beginning Zoom Video Calls on Android Devices</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-techniques-for-smoothly-fading-audio-within-lumafusion/"><u>2024 Approved Techniques for Smoothly Fading Audio Within Lumafusion</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/enhancing-engagement-on-video-calls-using-snap-features-for-2024/"><u>Enhancing Engagement on Video Calls Using Snap Features for 2024</u></a></li>
-<li><a href="https://solve-help.techidaily.com/guia-paso-a-paso-para-repartir-tus-ebooks-de-amazon-kindle-entre-tus-compiniones/"><u>Guía Paso a Paso Para Repartir Tus Ebooks De Amazon Kindle Entre Tus Compiniones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-vivo-y200-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Vivo Y200 Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-group-recognition-in-status-updates/"><u>Mastering the Art of Group Recognition in Status Updates</u></a></li>
-<li><a href="https://review-topics.techidaily.com/new-iphone-xs-max-restore-from-icloud-stuck-on-time-remaining-estimating-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>New iPhone XS Max Restore from iCloud Stuck on Time Remaining Estimating | Stellar</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-a-modern-challenge/"><u>Privacy: A Modern Challenge</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-tags-discover-3-efficient-methods/"><u>The Ultimate Guide to FB Tags – Discover 3 Efficient Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-the-full-potential-of-facebook-must-try-mobile-settings/"><u>Unlock the Full Potential of Facebook: Must-Try Mobile Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-image-alerts-chat-disappearance-on-messenger/"><u>Unseen Image Alerts: Chat Disappearance on Messenger</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-how-to-merge-video-and-audio/"><u>Updated How to Merge Video and Audio</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-volume-transitions-in-lumafusion/"><u>[New] Mastering Volume Transitions in Lumafusion</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-step-by-step-on-hosting-webinars-a-beginners-guide-to-zoom-for-2024/"><u>[Updated] Step-by-Step on Hosting Webinars A Beginner's Guide to Zoom for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-profitability-on-yt-post-monetization-financial-steps/"><u>[Updated] Streamline Profitability on YT – Post-Monetization Financial Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/44-us-attorneys-general-petition-exclude-children-from-instagram/"><u>44 US Attorneys General Petition: Exclude Children From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-for-updating-your-social-face/"><u>A Detailed Walkthrough for Updating Your Social Face</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-rise-and-reality-of-facebooks-metaverse/"><u>Beyond Social Media: The Rise and Reality of Facebook’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brand-youre-proud-of-facebook-edition/"><u>Building a Brand You're Proud Of: Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-and-convey-who-you-are-an-in-depth-look-at-creating-a-profile-photo-with-an-avatar/"><u>Capture and Convey Who You Are: An In-Depth Look at Creating a Profile Photo with an Avatar</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crafting-a-fresh-start-trio-of-windows-reboot-tactics/"><u>Crafting a Fresh Start: Trio of Windows Reboot Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-content-for-success-across-diverse-fb-groups/"><u>Crafting Content for Success Across Diverse FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-to-the-chase-with-quick-effective-strategies-for-3-fb-tags/"><u>Cut to the Chase with Quick, Effective Strategies for 3 FB Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-cord-ending-online-friendships/"><u>Cutting the Cord: Ending Online Friendships</u></a></li>
+<li><a href="https://games-able.techidaily.com/harmonious-hearing-balancing-game-and-home-sounds-on-xbox/"><u>Harmonious Hearing: Balancing Game and Home Sounds on Xbox</u></a></li>
+<li><a href="https://techidaily.com/how-to-change-screen-resolution-windows-11-solved/"><u>How to Change Screen Resolution Windows 11 [Solved]</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-locating-and-installing-critical-media-drivers-for-seamless-operation/"><u>Resolved: Locating and Installing Critical Media Drivers for Seamless Operation</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/unblocking-driven-print-screws/"><u>Unblocking Driven Print Screws</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unlock-the-secrets-of-webinar-recording-a-users-manual-macos-windows/"><u>Unlock the Secrets of Webinar Recording A User's Manual (macOS, Windows)</u></a></li>
 </ul></div>
 

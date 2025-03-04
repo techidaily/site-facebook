@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2025-02-13T22:25:41.041Z
-updated: 2025-02-15T14:37:56.171Z
+date: 2025-02-28T18:01:19.722Z
+updated: 2025-03-04T20:39:00.166Z
 tags:
   - facebook
 categories:
@@ -30,17 +30,9 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
@@ -74,10 +66,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -102,10 +90,6 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -117,10 +101,6 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,16 +123,22 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://common-error.techidaily.com/guide-to-solving-the-error-144-in-livekernelevents-successfully/"><u>Guide to Solving the Error 144 in LiveKernelEvents Successfully</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-xcover-7-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy XCover 7 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-reel-revolution-enjoying-twitter-videos-at-ultimate-quality/"><u>In 2024, Reel Revolution Enjoying Twitter Videos at Ultimate Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lamicalls-ultimate-tablet-holder-a-perfect-blend-of-style-and-practicality/"><u>Lamicall's Ultimate Tablet Holder - A Perfect Blend of Style and Practicality!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-honor-100-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Honor 100 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/reason-behind-my-curated-list-of-fb-ads/"><u>Reason Behind My Curated List of Fb Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-leadership-legacy-in-tech/"><u>Sheryl Sandberg’s Leadership Legacy in Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/should-you-use-facebook-events-the-pros-and-cons-explained/"><u>Should You Use Facebook Events? The Pros and Cons Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-modern-age-of-sharing-four-methods-for-a-tailored-newsfeed/"><u>The Modern Age of Sharing: Four Methods for a Tailored Newsfeed</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-keeping-your-data-private-in-fb/"><u>The Ultimate Guide to Keeping Your Data Private in FB</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-complete-guide-to-audio-manipulation-in-avidemux/"><u>Updated In 2024, The Complete Guide to Audio Manipulation in Avidemux</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-best-practices-top-photo-frame-tech-of-2024/"><u>[New] Best Practices Top Photo Frame Tech of 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-donation-boosts-worldwide-covid-19-fight/"><u>$5 Million Donation Boosts Worldwide COVID-19 Fight</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-preserving-your-digital-self-narrative-on-facebook/"><u>A Guide to Preserving Your Digital Self-Narrative on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-cause-chaos-provoke-one-star-reviews-on-social-network/"><u>Activists Cause Chaos: Provoke One-Star Reviews on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicle-of-significant-events-from-google/"><u>Chronicle of Significant Events From Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-dissemination-strategies-sending-reels-from-instagram-to-facebook/"><u>Content Dissemination Strategies: Sending Reels From Instagram to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-unique-visionaries-on-your-fans-feeds-with-facebook-reels/"><u>Crafting Unique Visionaries on Your Fans' Feeds with Facebook Reels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-considerations-when-buying-wireless-network-gear/"><u>Crucial Considerations When Buying Wireless Network Gear</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-removal-its-impact-on-privacy-and-safety-for-facebook-users/"><u>Data Removal – Its Impact on Privacy and Safety for Facebook Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-painting-with-light-the-art-of-selective-hue-enhancement/"><u>In 2024, Painting with Light The Art of Selective Hue Enhancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147503681-is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-art-of-bluetooth-audio-harmony-joining-several-speakers-at-once/"><u>Mastering the Art of Bluetooth Audio Harmony: Joining Several Speakers at Once</u></a></li>
+<li><a href="https://extra-support.techidaily.com/stealth-in-social-media-going-unseen-with-live-feeds-for-2024/"><u>Stealth in Social Media Going Unseen with Live Feeds for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/tomtoms-actioncam-series-a-new-chapter-for-2024/"><u>TomTom's ActionCam Series - A New Chapter for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-apple-iphone-14-pro-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for Apple iPhone 14 Pro and Android Phones</u></a></li>
+<li><a href="https://driver-install.techidaily.com/transition-to-improved-dell-realtek-audios/"><u>Transition to Improved Dell Realtek Audios</u></a></li>
 </ul></div>
 

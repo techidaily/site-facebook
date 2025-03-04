@@ -1,7 +1,7 @@
 ---
 title: Handling Late Friends' Online Presence with Sensitivity and Care
-date: 2025-02-09T10:15:52.770Z
-updated: 2025-02-15T04:25:06.894Z
+date: 2025-03-02T16:18:23.051Z
+updated: 2025-03-04T19:23:17.716Z
 tags:
   - facebook
 categories:
@@ -36,10 +36,6 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
@@ -51,17 +47,9 @@ To get a Facebook account memorialized, follow these steps:
 
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -74,10 +62,6 @@ To get a Facebook account memorialized, follow these steps:
 1. Open the[Special Request For Medically Incapacitated or Deceased Person's Account Form](https://www.facebook.com/help/contact/228813257197480) .  
 ![Special request form for deceased persons account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Special-request-form-for-deceased-persons-account.jpg)
 2. In the**Full Name** section, enter your official credentials.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
 4. After that, enter the deceased person’s name as written on their Facebook profile. It can differ from the name mentioned on their death certificate. This is why Facebook recommends using your actual name when creating a profile.
@@ -95,10 +79,6 @@ To get a Facebook account memorialized, follow these steps:
  Facebook takes a couple of days to review a request. After that, the account will be deleted if you can satisfy Facebook that the person has actually passed away.
 
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
 
@@ -123,22 +103,16 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-removing-discord-servers-step-by-step/"><u>[New] In 2024, Removing Discord Servers Step-by-Step</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-a-primer-on-dynamic-visual-expression/"><u>[Updated] In 2024, A Primer on Dynamic Visual Expression</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-isolated-earbuds-fix-manual/"><u>[Updated] The Isolated Earbuds Fix Manual</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-logitech-m525-mouse-drivers-and-installation-software/"><u>Download Logitech M525 Mouse Drivers & Installation Software</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-realme-c51-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Realme C51</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-reputation-at-risk-amidst-public-skepticism-of-big-tech/"><u>Facebook's Reputation at Risk Amidst Public Skepticism of Big Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/facial-data-deletion-potential-threat-to-facebooks-user-security/"><u>Facial Data Deletion – Potential Threat to Facebook's User Security?</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-share-screen-on-zoom-meeting-guide/"><u>In 2024, Share Screen on Zoom Meeting Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-or-out-assessing-facebooks-expat-group-dynamics/"><u>Inside or Out: Assessing Facebook’s Expat Group Dynamics</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-career-enhancement/"><u>Leveraging Facebook for Career Enhancement</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-daring-maneuvers-in-europe-could-rename-the-tech-titans-landscape/"><u>Meta’s Daring Maneuvers in Europe Could Rename the Tech Titans Landscape</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-update-expert-picks-for-the-top-2d-animation-software-for-2024/"><u>New Update Expert Picks for the Top 2D Animation Software for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-prioritized-the-iphone-trend-shift/"><u>Privacy Prioritized: The iPhone Trend Shift</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/revealing-rays-of-light-the-ultimate-guide-for-choosing-a-premium-4k-screen/"><u>Revealing Rays of Light The Ultimate Guide for Choosing a Premium 4K Screen</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryls-blueprint-for-success-in-social-networking/"><u>Sheryl's Blueprint for Success in Social Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-privacy-policy-for-downloads/"><u>Understanding Facebook's Privacy Policy for Downloads</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ultimate-youtube-to-avi-transformation-guidebook-for-2024/"><u>Your Ultimate YouTube-to-AVI Transformation Guidebook for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-deciding-audio-platforms-podcasts-or-youtube/"><u>[New] In 2024, Deciding Audio Platforms Podcasts or YouTube?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-free-to-profitable-unlocking-youtubes-monetization-at-500plus/"><u>[Updated] 2024 Approved From Free to Profitable Unlocking YouTube's Monetization at 500+</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-videography-8-tips-of-recording-pro-videos/"><u>[Updated] IPhone Videography 8 Tips of Recording Pro Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-significant-benefits-stepping-away-from-social-screens/"><u>6 Significant Benefits: Stepping Away From Social Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-we-at-the-top-of-facebooks-hype-curve/"><u>Are We at the Top of Facebook’s Hype Curve?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-communities-with-the-facebook-portal-tv/"><u>Connecting Communities with the Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-connections-7-social-media-avenues-for-unity/"><u>Cultivating Connections: 7 Social Media Avenues for Unity</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-oppo-reno-10-pro-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Oppo Reno 10 Pro 5G Data? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-method-for-seamless-volume-dialing-down-in-audacity/"><u>In 2024, The Method for Seamless Volume Dialing Down in Audacity</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/no-audio-with-anthem-windows-10-heres-how-to-fix-it-quickly/"><u>No Audio with Anthem Windows 10? Here's How to Fix It Quickly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/orchestrating-overtures-for-optimal-movie-teasers/"><u>Orchestrating Overtures for Optimal Movie Teasers</u></a></li>
 </ul></div>
 

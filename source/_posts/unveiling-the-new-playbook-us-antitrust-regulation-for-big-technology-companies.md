@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2025-02-12T04:39:07.122Z
-updated: 2025-02-15T12:53:49.018Z
+date: 2025-02-26T16:10:11.866Z
+updated: 2025-03-04T21:02:34.964Z
 tags:
   - facebook
 categories:
@@ -34,17 +34,9 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -62,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -77,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  How would Amazon itself have ever been invented if not for a free and open market?
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
 
@@ -105,10 +89,6 @@ In essence: leave the selling to the sellers.
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -143,22 +123,16 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-essential-ipv-guide-for-high-quality-instagram-mp4s-for-2024/"><u>[New] The Essential IPV Guide for High-Quality Instagram MP4s for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-ranking-top-9-puzzle-games-for-offline-play-for-2024/"><u>[Updated] The Ultimate Ranking Top 9 Puzzle Games for Offline Play for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-snowy-serenity-top-pick-winter-backgrounds-for-videos/"><u>2024 Approved Snowy Serenity Top Pick Winter Backgrounds for Videos</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/bilibilimp3/"><u>Bilibili動画を取得し、MP3形式に変換する詳細手順</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-enhances-chat-with-groundbreaking-ar-tech/"><u>Facebook Enhances Chat With Groundbreaking AR Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-panel-of-review-its-role-and-influence-explained/"><u>FB's Panel of Review: Its Role and Influence Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-strangers-out-of-your-facebook-nostalgia-view/"><u>Keep Strangers Out of Your Facebook Nostalgia View</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/new-apple-airpods-pro-launch-features-enhanced-tracking-and-revolutionary-usb-c-charging-tech-news-today/"><u>New Apple AirPods Pro Launch: Features Enhanced Tracking & Revolutionary USB-C Charging | Tech News Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/nine-security-measures-to-recover-lost-facebook-passwords/"><u>Nine Security Measures to Recover Lost Facebook Passwords</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-warnings-about-unverified-application-in-windows-os/"><u>Overcoming Warnings About Unverified Application in Windows OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/sniffing-out-fabricated-facebook-presences/"><u>Sniffing Out Fabricated Facebook Presences</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/spider-man-and-venom-high-resolution-screen-savers-professional-quality-wallpaper-by-yl-computing/"><u>Spider-Man & Venom High-Resolution Screen Savers - Professional Quality Wallpaper by YL Computing</u></a></li>
-<li><a href="https://win-web3.techidaily.com/step-by-step-guide-adjusting-and-monitoring-stats-with-vmware-vcenter/"><u>Step-by-Step Guide: Adjusting & Monitoring Stats with VMware vCenter</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-10-secure-sites-for-streaming-your-favorite-tv-series-without-illegal-downloads/"><u>Top 10 Secure Sites for Streaming Your Favorite TV Series Without Illegal Downloads</u></a></li>
-<li><a href="https://facebook.techidaily.com/trustworthiness-evaluation-of-the-email-service-provided-by-facebook-security/"><u>Trustworthiness Evaluation of the Email Service Provided by Facebook Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleashing-emotional-text-embracing-messenger-soundmojis/"><u>Unleashing Emotional Text: Embracing Messenger Soundmojis</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-your-platform-of-choice-lets-find-out/"><u>What's Your Platform of Choice? Let's Find Out</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-zero-to-hero-your-first-time-streaming-to-youtube-for-2024/"><u>[New] From Zero to Hero Your First Time Streaming to Youtube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-bringing-back-the-glitter-integrating-instagram-effects-to-past-media/"><u>[New] In 2024, Bringing Back the Glitter Integrating Instagram Effects to Past Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-fast-approach-downloading-tweets-video-content-for-mobile-use/"><u>[New] In 2024, Fast Approach Downloading Tweets’ Video Content for Mobile Use</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elevate-your-iphone-shots-10-best-camera-apps-x-7/"><u>[Updated] 2024 Approved Elevate Your iPhone Shots 10 Best Camera Apps (X, 7)</u></a></li>
+<li><a href="https://facebook.techidaily.com/adapting-to-the-rise-of-crypto-on-platforms/"><u>Adapting to the Rise of Crypto on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-platforms-catering-to-the-elderly-social-scene/"><u>Best Platforms Catering to the Elderly Social Scene</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-buzz-examining-the-real-story-of-fb-papers/"><u>Beyond Buzz: Examining the Real Story of FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-facebooks-grip-a-list-of-10-motivators-for-quitting/"><u>Breaking Free From Facebook's Grip: A List of 10 Motivators for Quitting</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-out-controversy-refresh-your-feed-focus/"><u>Cut Out Controversy: Refresh Your Feed Focus</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-infinix-note-30-pro-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/stunning-oceanic-dusk-views-explore-our-curated-selection-of-sunset-background-images-at-yl-software/"><u>Stunning Oceanic Dusk Views - Explore Our Curated Selection of Sunset Background Images at YL Software</u></a></li>
 </ul></div>
 

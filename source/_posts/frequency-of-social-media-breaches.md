@@ -1,7 +1,7 @@
 ---
 title: Frequency of Social Media Breaches
-date: 2025-02-12T17:59:14.397Z
-updated: 2025-02-15T07:09:15.870Z
+date: 2025-02-26T17:29:52.446Z
+updated: 2025-03-04T19:40:58.578Z
 tags:
   - facebook
 categories:
@@ -42,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
@@ -59,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Sometimes, the fault lies with particular social media sites.[In one instance](https://journal.uptimeinstitute.com/too-big-to-fail-facebooks-global-outage/) , Facebook arguably had enough to deal with after a six-hour global outage cost it approximately $60 million in revenue. That issue occurred in October 2021.
 
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Are the Risks Associated With a Social Media Hack?
 
@@ -78,17 +70,9 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Handle a Social Media Hack
 
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 
@@ -97,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -121,17 +101,20 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-sharpen-your-photos-pro-tips-for-lunapic-users/"><u>[Updated] Sharpen Your Photos Pro Tips for LunaPic Users</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/10-best-free-selfie-apps-for-iphone-x87-plus-for-2024/"><u>10 Best Free Selfie Apps for iPhone X/8/7 Plus for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-cloud-mastery-the-best-of-unlimited-space/"><u>2024 Approved Cloud Mastery The Best of Unlimited Space</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-zooming-into-excellence-a-complete-guide-for-professionals-of-podcast-production/"><u>2024 Approved Zooming Into Excellence A Complete Guide for Professionals of Podcast Production</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/basic-russian-expressions-boosting-travel-confidence/"><u>Basic Russian Expressions Boosting Travel Confidence</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/cutting-to-the-beat-making-short-films-on-your-iphone-for-2024/"><u>Cutting to the Beat Making Short Films on Your iPhone for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/friends-files-legal-lines-navigating-video-acquisition-ethics/"><u>Friend's Files, Legal Lines: Navigating Video Acquisition Ethics</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-and-fb-stickers-a-test-of-brand-engagement/"><u>Instagram and FB Stickers: A Test of Brand Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/instantaneous-alteration-of-your-facebook-personality-icon/"><u>Instantaneous Alteration of Your Facebook Personality Icon</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/navigating-uncertainty-what-lies-in-store-for-the-future-of-metas-innovative-quest-pro-gear/"><u>Navigating Uncertainty: What Lies in Store for the Future of Meta's Innovative Quest Pro Gear</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-as-a-tool-facebook-users-spend-300-on-recovery/"><u>Oculus as a Tool: Facebook Users Spend $300 on Recovery</u></a></li>
-<li><a href="https://facebook.techidaily.com/organizing-connected-tools-a-compreayers-guide-to-fb-integration/"><u>Organizing Connected Tools: A Compreayer's Guide to Fb Integration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-discover-the-top-free-image-layering-apps-for-smartphones-today/"><u>[New] In 2024, Discover the Top-Free Image Layering Apps for Smartphones Today</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-securing-success-in-win11-conferences-via-zoom/"><u>[New] In 2024, Securing Success in Win11 Conferences via Zoom</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-reasons-to-quit-facebook-for-good/"><u>10 Reasons to Quit Facebook for Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-anonymous-shares-in-social-media-clans/"><u>Enabling Anonymous Shares in Social Media Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-archive-of-memories/"><u>Exploring Facebook's Archive of Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-older-friends-listings-on-facebook/"><u>Exploring Older Friends Listings on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-oppo-reno-11-pro-5g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Oppo Reno 11 Pro 5G Face Lock?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-iphone-12-pro-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 12 Pro Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-social-footprint-tracking-all-facebook-interactions/"><u>Maximizing Your Social Footprint: Tracking All Facebook Interactions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-fixes-for-non-functioning-microphone-on-windows-11/"><u>Step-by-Step Fixes for Non-Functioning Microphone on Windows 11</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-8-most-reliable-and-free-open-source-video-chat-options-for-2024/"><u>The 8 Most Reliable and Free Open Source Video Chat Options for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-strategic-use-of-tags-a-guide-to-youtube-success-for-2024/"><u>The Strategic Use of Tags A Guide to YouTube Success for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-t5s-complete-action-video-insight/"><u>The T5's Complete Action Video Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/tune-into-success-understanding-facebooks-music-revenue-model/"><u>Tune Into Success: Understanding Facebook's Music Revenue Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-identity-codes-fb-pages-and-unames/"><u>Understanding Social Media Identity Codes: FB Pages & UNAMES</u></a></li>
 </ul></div>
 

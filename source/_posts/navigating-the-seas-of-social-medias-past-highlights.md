@@ -1,7 +1,7 @@
 ---
 title: Navigating the Seas of Social Media’s Past Highlights
-date: 2025-02-08T09:30:33.023Z
-updated: 2025-02-14T21:00:42.715Z
+date: 2025-02-28T20:09:46.549Z
+updated: 2025-03-04T18:55:34.237Z
 tags:
   - facebook
 categories:
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Is the On This Day Feature on Facebook?
 
@@ -60,17 +56,9 @@ To share a memory from the On This Day feature:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Save and Delete Memories
 
@@ -104,10 +92,6 @@ Close
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. See What Your Friends Shared on Your Wall
 
  With a thriving social circle, your friends might tag you in posts and share them on your profile. Remember a birthday or a special occasion on which your friends tagged you in their posts?
@@ -124,15 +108,7 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -173,24 +149,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-how-to-effectively-archive-snapchat-videos-on-mobile-phones-for-2024/"><u>[New] How to Effectively Archive Snapchat Videos on Mobile Phones for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-foremost-9-digital-mic-recorders-for-high-fidelity-capture/"><u>[Updated] The Foremost 9 Digital Mic Recorders for High-Fidelity Capture</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-digiarty-seo/"><u>1. [公式] Digiartyソフトウェア 使用条件 - 最適化された SEOタイトル</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/discover-the-ultimate-under-1k-laptop-selection-for-2n4-in-depth-analysis-and-reviews-by-pros-cnet/"><u>Discover the Ultimate Under $1K Laptop Selection for 2N4: In-Depth Analysis and Reviews by Pros | CNET</u></a></li>
-<li><a href="https://facebook.techidaily.com/ending-fb-surveillance-using-off-facebook-workflow/"><u>Ending FB Surveillance - Using Off-Facebook Workflow</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-is-unlocking-oculus-go-root-access-what-this-means-for-owners/"><u>Facebook Is Unlocking Oculus Go Root Access: What This Means for Owners</u></a></li>
-<li><a href="https://facebook.techidaily.com/focusing-your-online-narrative-for-success-on-professional-networks-like-fb/"><u>Focusing Your Online Narrative for Success on Professional Networks Like FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-music-and-networks-facebooks-boombox-project-with-spotify/"><u>Future of Music & Networks: Facebook's Boombox Project with Spotify</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-adding-unique-typography-fonts-in-ae/"><u>In 2024, Adding Unique Typography Fonts in AE</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-insiders-handbook-for-instagrams-audio-emoji-placement/"><u>In 2024, The Insider’s Handbook for Instagram's Audio Emoji Placement</u></a></li>
-<li><a href="https://facebook.techidaily.com/insightful-analysis-of-all-your-social-interactions-on-facebook/"><u>Insightful Analysis of All Your Social Interactions on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-sudden-disconnection-from-facespace/"><u>Overcoming Sudden Disconnection From Facespace</u></a></li>
-<li><a href="https://facebook.techidaily.com/pausing-connections-severing-a-facebook-relationship/"><u>Pausing Connections: Severing a Facebook Relationship</u></a></li>
-<li><a href="https://win-online.techidaily.com/premium-bmw-7-series-hd-wraps-photos-and-graphics-collection-for-desktops-curated-by-yl-computing/"><u>Premium BMW 7 Series HD Wraps, Photos & Graphics Collection for Desktops - Curated by YL Computing</u></a></li>
-<li><a href="https://facebook.techidaily.com/resetting-your-facebook-password-on-lockout/"><u>Resetting Your Facebook Password on Lockout</u></a></li>
-<li><a href="https://techidaily.com/samsung-galaxy-z-fold-5-messages-recovery-recover-deleted-messages-from-samsung-galaxy-z-fold-5-by-fonelab-android-recover-messages/"><u>Samsung Galaxy Z Fold 5 Messages Recovery - Recover Deleted Messages from Samsung Galaxy Z Fold 5</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-visual-impact-crafting-fb-backgrounds/"><u>Social Media Visual Impact: Crafting Fb Backgrounds</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579878027-speedy-bokmal-acquisition-in-daily-dashes/"><u>Speedy Bokmål Acquisition in Daily Dashes!</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ultimate-tutorial-on-transforming-mp3-audio-to-enhanced-dts-sound-quality/"><u>Ultimate Tutorial on Transforming MP3 Audio to Enhanced DTS Sound Quality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-revolutionize-your-podcast-with-these-ai-name-makers/"><u>[New] In 2024, Revolutionize Your Podcast with These AI Name Makers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-novice-to-pro-instagram-live-walkthrough/"><u>[Updated] 2024 Approved From Novice to Pro Instagram Live Walkthrough</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-reasons-why-metas-social-media-dominance-should-scare-you/"><u>3 Reasons Why Meta's Social Media Dominance Should Scare You</u></a></li>
+<li><a href="https://facebook.techidaily.com/biden-leads-with-social-media-in-covid-19-vax-drive/"><u>Biden Leads with Social Media in COVID-19 Vax Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-sends-strength-to-worldwide-health-crisis-response/"><u>Big Tech Sends Strength to Worldwide Health Crisis Response</u></a></li>
+<li><a href="https://techtrends.techidaily.com/delving-into-the-significance-of-naming-or-labeling-entities-the-tagging-phenomenon-explained/"><u>Delving Into the Significance of Naming or Labeling Entities: The Tagging Phenomenon Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150810152-seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB!</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/simple-guide-migrating-your-data-from-an-hdd-to-a-solid-state-sshd-with-secure-boot-on-windows-systems/"><u>Simple Guide: Migrating Your Data From an HDD to a Solid-State SSHD with Secure Boot on Windows Systems</u></a></li>
 </ul></div>
 

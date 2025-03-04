@@ -1,7 +1,7 @@
 ---
 title: 3 Sources of Anxiety From Meta’s Ascendancy
-date: 2024-08-28T02:55:47.381Z
-updated: 2024-08-29T02:55:47.381Z
+date: 2025-03-01T20:26:41.810Z
+updated: 2025-03-04T17:16:54.199Z
 tags:
   - facebook
 categories:
@@ -55,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
  However, Meta's privacy practices are particularly problematic. Meta stands out because of the nature of data it has access to. Based on its user base, the company is the single largest non-government collector of intrusive personal information in corporate history.
@@ -68,9 +65,6 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ​​​​​​
 
  From your music players, browsers, game apps, eBook readers to caller ID apps, most of the software installed on your device is probably sharing your data with Meta. This means the company can determine with frightening precision your taste in music, books, games, the websites you visit, what you do online, and how you interact with technology as a whole.
@@ -85,28 +79,16 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the [New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Stay Conscious of Meta's Influence
 
  Some have called for a breakup of Meta; others advocate for sterner policing of the company. Irrespective of the approach that presents a realistic solution to the problem, one thing is sure—Meta is getting too powerful, and we are all becoming victims in its lair.
@@ -115,14 +97,11 @@ Close
 
  Be proactive. Stay conscious of Meta's influence. Limit the amount of data you share with Meta's products and services. If you are afraid you've already shared too much, you should get rid of some of the information Meta has on you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,8 +110,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-essential-tiktok-gamers-you-cant-miss/"><u>[New] Essential TikTok Gamers You Can't Miss</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-reimagining-streaming-experience-beyond-manycam/"><u>[New] Reimagining Streaming Experience Beyond ManyCam</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/complete-tutorial-compatible-and-functional-handbrake-use-on-windows-11-operating-systems/"><u>Complete Tutorial: Compatible and Functional Handbrake Use on Windows 11 Operating Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discontent-one-star-reviews-rising-for-fb-app-ratings/"><u>Digital Discontent: One-Star Reviews Rising for FB App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ignite-your-workout-spirit-essential-background-music-choices/"><u>In 2024, Ignite Your Workout Spirit Essential Background Music Choices</u></a></li>
+<li><a href="https://games-able.techidaily.com/mastering-the-art-of-game-returns-on-valves-platform/"><u>Mastering the Art of Game Returns on Valve’s Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/meticulous-breakdown-of-metas-updated-privacy-statutes/"><u>Meticulous Breakdown of Meta's Updated Privacy Statutes</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/navigating-the-arlo-security-suite-a-practical-installation-walkthrough/"><u>Navigating the Arlo Security Suite: A Practical Installation Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-noteworthy-transformations-4-essential-shifts-in-social-media/"><u>Networking Noteworthy Transformations: 4 Essential Shifts in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-will-fb-proceed-with-giphy-disintegration/"><u>Reconsidering Ties: Will FB Proceed With Giphy Disintegration?</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-nokia-g22-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Nokia G22</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/understanding-others-chatgpts-role-in-ei/"><u>Understanding Others: ChatGPT's Role in EI</u></a></li>
+</ul></div>
 

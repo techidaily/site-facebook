@@ -1,7 +1,7 @@
 ---
 title: Adjusting Public Friend Access to Profile
-date: 2024-08-23T02:07:49.262Z
-updated: 2024-08-24T02:07:49.262Z
+date: 2025-02-25T16:34:18.199Z
+updated: 2025-03-04T18:48:45.224Z
 tags:
   - facebook
 categories:
@@ -71,14 +71,8 @@ thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283
 
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Select the Messenger icon at the top right of your Facebook home screen.
@@ -92,9 +86,6 @@ Close
 
  You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -114,40 +105,23 @@ This is different from a full Facebook block.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
 
  Use the settings in this article to regain some privacy when it comes to whether or not your contact list can see if you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,8 +130,20 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-solo-stream-triumph-strategies-for-clear-consistent-broadcasts-for-2024/"><u>[New] Solo Stream Triumph Strategies for Clear, Consistent Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-game-plan-for-thriving-as-a-livestreamer-on-youtube/"><u>[New] The Game Plan for Thriving as a Livestreamer on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-countdown-configuration-guide-for-obs-enthusiasts/"><u>[Updated] Countdown Configuration Guide for OBS Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dynamics-in-design-illustrating-motion-in-photos-for-2024/"><u>[Updated] Dynamics in Design Illustrating Motion in Photos for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-30-groundbre-writers-making-metaverse-memes-thrive/"><u>2024 Approved 30 Groundbre Writers Making Metaverse Memes Thrive</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-redefined-identifying-4-major-changes-in-networks/"><u>Digital Dialogues Redefined: Identifying 4 Major Changes in Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-venture-ray-bans-stories-and-their-cost-analysis/"><u>Facebook's New Venture: Ray-Bans Stories and Their Cost Analysis</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-motorola-edge-40-neo-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Motorola Edge 40 Neo to New Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/past-vs-present-a-reevaluation-of-the-impact-of-facebook-investigations/"><u>Past vs Present: A Reevaluation of The Impact of Facebook Investigations</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-vr-identity-meta-vs-facebook-compared/"><u>Protect Your VR Identity: Meta Vs. Facebook Compared</u></a></li>
+<li><a href="https://facebook.techidaily.com/ranking-safe-digital-connections/"><u>Ranking Safe Digital Connections</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-and-fixing-irql-is-neither-less-than-nor-equal-issues-on-windows-7/"><u>Troubleshooting and Fixing 'IRQL Is Neither Less Than Nor Equal' Issues on Windows 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vk-key-facts-on-russias-virtual-network/"><u>Unveiling VK: Key Facts on Russia's Virtual Network</u></a></li>
+</ul></div>
 

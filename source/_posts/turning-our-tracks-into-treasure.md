@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2025-02-10T10:16:19.105Z
-updated: 2025-02-14T20:19:22.209Z
+date: 2025-02-27T16:28:58.133Z
+updated: 2025-03-04T18:35:59.909Z
 tags:
   - facebook
 categories:
@@ -36,17 +36,9 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  It's important to understand that while surveillance capitalism has its advantages, it essentially thrives in an environment where human beings are not believed to have intrinsic value. In layman's terms, it creates a system wherein a person's value is directly equated to their expected profitability.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Surveillance Capitalism Work?
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Granular Data Gathering
 
@@ -59,10 +51,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  In addition, as public institutions increasingly digitize documents and require digital identification, data that was once extremely personal is now a lot more accessible. For example, access to medical records, criminal records, civil status, or financial information can now be mined online.
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Emotional Volatility
 
@@ -100,17 +88,9 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -145,20 +125,18 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-integrating-vids-on-twitter-plus-tumblr-platforms/"><u>[New] In 2024, Integrating Vids on Twitter + Tumblr Platforms</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-twitters-live-video-landscape/"><u>[New] In 2024, Navigating Twitter's Live Video Landscape</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-recorded-talk-extraction-and-study/"><u>[New] Recorded Talk Extraction & Study</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-tackle-missing-thumbnails-on-youtube-shorts/"><u>[Updated] 2024 Approved How to Tackle Missing Thumbnails on YouTube Shorts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-building-competence-with-lut-software/"><u>2024 Approved Building Competence with LUT Software</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-illusory-journeys-through-time-and-dimensions/"><u>2024 Approved Illusory Journeys Through Time and Dimensions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-a-strong-visual-narrative-in-youtube-videos/"><u>Building a Strong Visual Narrative in YouTube Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/masterclass-on-managing-and-muting-your-fb-company-pages/"><u>Masterclass on Managing and Muting Your FB Company Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-two-factor-authentication-without-access-to-phone/"><u>Overcoming Two-Factor Authentication without Access to Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/pinpointing-the-moment-in-time-when-i-became-a-facebook-user/"><u>Pinpointing The Moment in Time – When I Became a Facebook User</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-silent-enforcement-unmasking-shadowbanning/"><u>Social Media's Silent Enforcement: Unmasking Shadowbanning</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-mobile-payments-by-facebook-surpassing-traditional-apple-systems/"><u>Tailored Mobile Payments by Facebook Surpassing Traditional Apple Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-era-of-anonymous-admiration-fbig-secret-likes/"><u>The New Era of Anonymous Admiration: FB/IG Secret Likes</u></a></li>
-<li><a href="https://blog-min.techidaily.com/web-based-free-conversion-of-aac-to-m4a-audio-files-movavi-guide/"><u>Web-Based Free Conversion of AAC to M4A Audio Files - Movavi Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/will-past-social-media-behavior-eternal/"><u>Will Past Social Media Behavior Eternal?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-pioneering-the-pathway-personal-youtube-videos-in-google-accounts/"><u>[New] In 2024, Pioneering the Pathway Personal YouTube Videos in Google Accounts</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-restart-and-shutdown-disruptions-from-windows-faulty-apps/"><u>Addressing Restart and Shutdown Disruptions From Windows Faulty Apps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-look-ups-for-gopro-movies-select-15-luts-for-2024/"><u>Best Look-Ups for GoPro Movies Select 15 LUTs for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-poco-c50-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Poco C50 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-honor-90-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Honor 90 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-platforms-alleged-ban-on-authentic-marketing/"><u>Online Platform's Alleged Ban on Authentic Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/recognize-privacy-breaches-pc-and-email-monitoring/"><u>Recognize Privacy Breaches: PC & Email Monitoring</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-3-optimal-vpn-services-for-seamless-olympic-games-viewing-experience-insights-from-zdnet/"><u>Top 3 Optimal VPN Services for Seamless Olympic Games Viewing Experience - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-differences-in-facebook-devices/"><u>Understanding the Differences in Facebook Devices</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unlocking-the-secrets-of-successful-google-meet-engagement/"><u>Unlocking the Secrets of Successful Google Meet Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-metaverse/"><u>What Is the Metaverse?</u></a></li>
 </ul></div>
 

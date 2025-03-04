@@ -1,7 +1,7 @@
 ---
 title: "A New World Within: Deciphering the Metaverse Concept"
-date: 2024-08-23T02:08:33.673Z
-updated: 2024-08-24T02:08:33.673Z
+date: 2025-02-28T19:00:17.108Z
+updated: 2025-03-04T16:55:58.677Z
 tags:
   - facebook
 categories:
@@ -49,9 +49,6 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### Internet vs. Metaverse
 
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
@@ -68,16 +65,10 @@ Yet.
 
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
@@ -86,9 +77,6 @@ Yet.
 
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
 * **Active Worlds (1995)** : This online virtual world was developed by ActiveWorlds Inc. Active Worlds allowed users to log in, assign themselves a name, and explore 3D virtual worlds created by others, as well as to create worlds of their own.
@@ -98,30 +86,21 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
  Remember Jules Verne’s From the Earth to the Moon? How about R.U.R (Rossum’s Universal Robots), the 1920 play that predicted the invention of robots?
 
  We made it to the moon already, the robotics industry grows by the day, and we already have the internet. With scientists working hard on improving VR technology and the advancements in telecommunications, what keeps us from building this shared persistent virtual universe?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,8 +109,24 @@ Yet.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://windows11.techidaily.com/a-deep-dive-into-winning-windows-captures-with-printscreen-or-snip-tool/"><u>A Deep Dive Into Winning Windows Captures with Printscreen or Snip Tool</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-infinix-gt-10-pro-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-on-ig-live-cut-the-clutter/"><u>Broadcasting On IG Live: Cut the Clutter</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/complete-solutions-for-streaming-hevc-encoded-videos-on-samsung-tvs-without-any-hitches/"><u>Complete Solutions for Streaming Hevc Encoded Videos on Samsung TVs Without Any Hitches</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-samsung-850-evo-driver/"><u>Download Samsung 850 EVO Driver</u></a></li>
+<li><a href="https://some-tips.techidaily.com/essential-8-tips-for-dust-free-spotless-macbook-care-that-guarantees-no-damage-to-your-device/"><u>Essential 8 Tips for Dust-Free, Spotless MacBook Care That Guarantees No Damage to Your Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-global-village-weighing-in-on-expat-community-joining/"><u>Facebook's Global Village: Weighing in on Expat Community Joining</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-mandate-forward-facing-free-from-faithpolitics/"><u>Facebook's Mandate: Forward-Facing, Free From Faith/Politics</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/fast-and-easy-way-to-save-your-flipboard-settings-as-a-custom-theme/"><u>Fast & Easy Way to Save Your FlipBoard Settings As a Custom Theme</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-share-instagram-reels-to-facebook/"><u>How to Share Instagram Reels to Facebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722968684462-hp-840-g3-driver-update-a-simple-guide-for-smooth-performance/"><u>HP 840 G3 Driver Update: A Simple Guide for Smooth Performance.</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-pc-video-editing-with-vn-a-short-review/"><u>New 2024 Approved PC Video Editing with VN A Short Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-your-digital-self-how-to-change-facebook-name/"><u>Redefining Your Digital Self: How to Change Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-removal-techniques-cleaning-up-twitter-instagram/"><u>Tailored Removal Techniques: Cleaning up Twitter, Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-three-step-roadmap-to-efficiently-tag-friends-on-facebook/"><u>The Three-Step Roadmap to Efficiently Tag Friends on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-the-potential-of-youtube-videos-the-ultimate-chapter-addition-technique-for-2024/"><u>Unlock the Potential of YouTube Videos The Ultimate Chapter Addition Technique for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-metaais-distinctive-features-against-bots/"><u>Unveiling MetaAI's Distinctive Features Against Bots</u></a></li>
+</ul></div>
 

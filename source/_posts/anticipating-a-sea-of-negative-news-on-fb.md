@@ -1,7 +1,7 @@
 ---
 title: Anticipating a Sea of Negative News on FB
-date: 2024-08-28T02:57:25.967Z
-updated: 2024-08-29T02:57:25.967Z
+date: 2025-02-27T16:37:39.203Z
+updated: 2025-03-04T17:18:49.870Z
 tags:
   - facebook
 categories:
@@ -45,16 +45,10 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## What Is the Facebook Consortium?
 
 ![A visual showing manager instructing resources](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Asana-Reporting-Resource-Management.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
  The Facebook Consortium is a group of reporters tasked with releasing information from copies of leaked documents from Haugen. These include publications like the Associated Press, The New York Times, The Washington Post, and CNN. A few European outlets are also included.
 
  The consortium's goal was to amplify findings from the leaked documents by having all these news organizations report on them at the same time, thereby making a significant impact.
@@ -63,23 +57,17 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
  However, that plan fell apart when some outlets contacted Facebook shortly after receiving the documents on October 10, 2021, after which the rest of the news outlets—including The New York Times, CNN, NBC News, and Bloomberg—started publishing their stories.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can Facebook Overcome This Storm?
 
  Facebook has had a lot of negative press in recent months. While it has had some challenges over the years, the challenges Facebook now faces are quite serious.
 
  Facebook will probably overcome this current scandal, but its goodwill may be tarnished in the process, given the sensitivity and seriousness of the documents shared by Haugen. However, as to how much damage it will do to Facebook overall, only time will tell.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,8 +76,22 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/he-insider-guide-to-regular-broadcast-etiquette/"><u>[New] The Insider Guide to Regular Broadcast Etiquette</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creative-channel-titling-techniques-for-growth-for-2024/"><u>[Updated] Creative Channel Titling Techniques for Growth for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-essential-checklist-purging-backdrops-with-affinity-photo/"><u>[Updated] The Essential Checklist Purging Backdrops with Affinity Photo</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-practices-for-youtube-to-mpeg-format-switching-for-2024/"><u>Best Practices for YouTube to MPEG Format Switching for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-defensive-measures-explored-and-equipped/"><u>Facebook's Defensive Measures Explored & Equipped</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebook-streaming-made-simple-your-guide-2023-edition/"><u>In 2024, Facebook Streaming Made Simple Your Guide, 2023 Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-video-creation-journey-from-adobe-premiere-to-youtube/"><u>In 2024, Video Creation Journey From Adobe Premiere to YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-seal-of-approval-is-it-worth-it/"><u>Meta's Seal of Approval - Is It Worth It?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/misstep-in-advanced-tech-repair-whats-next/"><u>Misstep in Advanced Tech Repair? What's Next?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-fb-notifications-the-complete-process/"><u>No More FB Notifications: The Complete Process</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-gadget-replacement-interval/"><u>Optimal Gadget Replacement Interval</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/shot-perfecting-made-simple-the-best-cinematic-practices/"><u>Shot Perfecting Made Simple The Best Cinematic Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-platform-launches-precision-moderation-aids/"><u>Social Networking Platform Launches Precision Moderation Aids</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-vs-online-communities-the-shift-explained/"><u>Social Networks Vs. Online Communities: The Shift Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-pages-vs-unames-key-insights-and-tips/"><u>Understanding FB Pages vs UNAMES: Key Insights & Tips</u></a></li>
+</ul></div>
 

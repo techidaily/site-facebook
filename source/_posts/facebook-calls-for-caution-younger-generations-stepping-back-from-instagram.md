@@ -1,7 +1,7 @@
 ---
 title: "Facebook Calls for Caution: Younger Generations Stepping Back From Instagram"
-date: 2025-02-11T07:47:32.176Z
-updated: 2025-02-14T18:00:38.561Z
+date: 2025-03-01T20:37:26.125Z
+updated: 2025-03-04T20:21:11.896Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ Here's what to know about the planned Instagram features.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is the Planned "Take a Break" Feature?
 
  Facebook says it wants to play its part in ensuring that young Instagram users don't spend too much time on the app, so it will be launching a Take a Break feature. The feature will encourage teens to step away from using the app temporarily.
@@ -44,10 +40,6 @@ This feature could possibly address those concerns.
 
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -58,10 +50,6 @@ Here's how Clegg explained it:
 
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Is Facebook Introducing These Features?
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
@@ -71,10 +59,6 @@ Here's how Clegg explained it:
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 
@@ -101,18 +85,18 @@ Here's how Clegg explained it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-smilescape-turn-daily-life-into-hilarious-stories/"><u>[New] 2024 Approved SmileScape Turn Daily Life Into Hilarious Stories</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-crafting-compelling-visual-narratives-with-illustrators-motion-blur/"><u>[New] Crafting Compelling Visual Narratives with Illustrator's Motion Blur</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-elite-fast-windows-10-picture-viewer/"><u>[New] In 2024, Elite Fast Windows 10 Picture Viewer</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-beatbell-instructions-making-tamil-music-your-call-alerts-for-2024/"><u>[Updated] BeatBell Instructions Making Tamil Music Your Call Alerts for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/essential-adobe-premiere-keyboard-shortcuts-to-boost-productivity-for-2024/"><u>Essential Adobe Premiere Keyboard Shortcuts to Boost Productivity for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/from-camera-to-feed-iphone-and-android-broadcast-guide-for-facebook/"><u>From Camera to Feed IPhone & Android Broadcast Guide for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-redefine-phoneemail-on-facebook/"><u>How to Redefine Phone/Email on Facebook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-realms-reborn-state-of-the-art-virtual-experience/"><u>In 2024, Realms Reborn State-of-the-Art Virtual Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/secrets-unveiled-delete-your-social-media-narrative/"><u>Secrets Unveiled: Delete Your Social Media Narrative</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-savvy-how-hashtags-drive-traffic-on-facebook/"><u>Social Media Savvy: How #Hashtags Drive Traffic on Facebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-elite-list-premium-rechargeable-battery-chargers/"><u>The Elite List: Premium Rechargeable Battery Chargers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unsung-rules-of-social-networking-keep-your-info-to-yourself/"><u>The Unsung Rules of Social Networking: Keep Your Info to Yourself</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-hidden-voices-fb-groups-edition/"><u>Unmasking Hidden Voices: FB Groups Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-transformative-instagram-edits-professional-strategies/"><u>[New] 2024 Approved Transformative Instagram Edits Professional Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-your-guide-to-snagging-a-copy-of-fcp-for-free/"><u>[New] Your Guide to Snagging a Copy of FCP for Free</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-turning-pics-into-time-capsules-with-videos/"><u>[Updated] Turning Pics Into Time Capsules With Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-2023-how-to-fix-live-video-interrupted-on-facebook/"><u>2024 Approved 2023 | How to Fix Live Video Interrupted on Facebook?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweeting-and-blogging-videos-integration-guide/"><u>2024 Approved Tweeting & Blogging Videos Integration Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-mechanisms-behind-fbs-moderation-panel/"><u>Breaking Down the Mechanisms Behind FB's Moderation Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-facebook-and-instagram-now-tighter-linked/"><u>Bridging Gaps: Facebook & Instagram Now Tighter Linked</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-thinking-social-medias-dislike-buttons/"><u>Critical Thinking: Social Media's 'Dislike' Buttons</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-realm-of-digital-presence/"><u>Customizing Your Realm of Digital Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-ethics-in-action-correctly-banned-trump-but-temporarily/"><u>Cyber Ethics in Action: Correctly Banned Trump, But Temporarily</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722981659646-easy-fixes-for-world-of-warcraft-crashes-no-more-gaming-interruptions/"><u>Easy Fixes for World of Warcraft Crashes - No More Gaming Interruptions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-fbx-for-gamers-expert-tips-on-recording-playthroughs/"><u>In 2024, FBX for Gamers Expert Tips on Recording Playthroughs</u></a></li>
+<li><a href="https://win11.techidaily.com/maximizing-window-image-display-windows-11-style/"><u>Maximizing Window Image Display: Windows 11 Style</u></a></li>
 </ul></div>
 

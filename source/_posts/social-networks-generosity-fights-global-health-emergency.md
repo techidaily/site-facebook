@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2025-02-07T17:29:49.934Z
-updated: 2025-02-14T23:28:58.556Z
+date: 2025-03-01T19:30:01.671Z
+updated: 2025-03-04T16:45:17.413Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
 
  A post on[the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
@@ -36,17 +32,9 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image Credit: Facebook
 
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
 
@@ -56,10 +44,6 @@ Image Credit: Facebook
 
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
 
  Meanwhile, in the UK, Facebook is partnering with Dope Black Dads, the British Islamic Medical Association, and the Caribbean African Health Network to ensure that all communities are informed about the COVID-19 vaccines.
@@ -67,10 +51,6 @@ Image Credit: Facebook
  Related: [Facebook Makes It Easier to Find Out Where to Get Your COVID-19 Vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/)
 
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
 
@@ -91,21 +71,22 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-enhance-your-discord-conversations-using-voicemod-effectively-for-2024/"><u>[New] Enhance Your Discord Conversations Using VoiceMod Effectively for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nlocking-success-the-quintessential-youtube-video-strategies-for-2024/"><u>[New] Unlocking Success The Quintessential YouTube Video Strategies for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-expert-tips-on-softening-volume-in-logic-pro-mixes/"><u>[Updated] In 2024, Expert Tips on Softening Volume in Logic Pro Mixes</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-intellectual-arena-premier-knowledge-games-for-2024/"><u>[Updated] Intellectual Arena - Premier Knowledge Games for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1-top-newest-and-premium-free-song-videos-of-2024-download-now/"><u>1. Top Newest & Premium-Free Song Videos of 2024: Download Now!</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-list-of-top-voice-change-programs/"><u>2024 Approved Ultimate List of Top Voice-Change Programs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/macdvdipad/"><u>如何在Mac上将任意DVD数字化并传输到各型号iPad设备:专业转移软件解析</u></a></li>
-<li><a href="https://facebook.techidaily.com/identified-influencers-fueling-covid-disbelief/"><u>Identified Influencers Fueling Covid Disbelief</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-samsung-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Samsung Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://win11.techidaily.com/nine-no-go-areas-for-novice-windows-11-users/"><u>Nine No-Go Areas for Novice Windows 11 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/removing-spotify-connections-with-facebook-instructions-here/"><u>Removing Spotify Connections with Facebook: Instructions Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-tightens-grip-on-myth-and-rumor-spreaders/"><u>Social Network Tightens Grip on Myth and Rumor Spreaders</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-the-ultimate-battlefront-six/"><u>Tech Titans: The Ultimate Battlefront Six</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essence-of-vk-russias-counterpart-to-facebook-explored/"><u>The Essence of VK: Russia's Counterpart to Facebook Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pathway-to-a-clean-slate-deleting-your-fan-page/"><u>The Pathway to a Clean Slate: Deleting Your Fan Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/troubleshooting-non-functional-display-of-fb-notifications/"><u>Troubleshooting Non-Functional Display of FB Notifications</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-navigating-the-ginger-isle-of-stardew-for-2024/"><u>[Updated] Navigating the Ginger Isle of Stardew for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-unwanted-interactions-in-fbs-past-glimpse/"><u>Avoid Unwanted Interactions in FB's Past Glimpse</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-vivo-y02t-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-exploring-the-nuances-of-audio-overlap-crossfade/"><u>In 2024, Exploring the Nuances of Audio Overlap (Crossfade)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-samsung-galaxy-s23-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Samsung Galaxy S23 to Another | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streaming-sound-excellence-5-top-headsets/"><u>In 2024, Streaming Sound Excellence 5 Top Headsets</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/make-a-lasting-impression-with-the-best-video-invitation-apps/"><u>Make a Lasting Impression with the Best Video Invitation Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-meta-market-essential-strategies-for-success/"><u>Mastering the Meta Market: Essential Strategies for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-and-instagram-get-a-text-upgrade-with-fb-news/"><u>Messenger and Instagram Get a Text Upgrade with FB News</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-tecno-camon-20-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Tecno Camon 20 on Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/scaling-success-the-tactics-for-increasing-youtube-audiences-for-2024/"><u>Scaling Success The Tactics for Increasing YouTube Audiences for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-login-alternations-between-facebook-screens/"><u>Speedy Login Alternations Between Facebook Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebooks-visibility-settings-to-protect-privacy/"><u>Tailoring Facebook's Visibility Settings to Protect Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-network-battle-can-facebook-compete-with-tiktok/"><u>The Social Network Battle: Can Facebook Compete with TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-the-full-power-of-facebook-with-these-crucial-configs/"><u>Unleash the Full Power of Facebook with These Crucial Configs</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-editing-sony-camcorder-videos-like-a-pro-tips-and-tricks/"><u>Updated Editing Sony Camcorder Videos Like a Pro Tips and Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-surveillance-capitalism/"><u>What Is Surveillance Capitalism?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Chat Rooms to TikToks: The Evolutionary Journey"
-date: 2025-02-12T07:54:41.178Z
-updated: 2025-02-14T20:23:56.540Z
+date: 2025-03-01T18:28:12.504Z
+updated: 2025-03-04T16:33:38.930Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. A Lack of Innovation From Forum Owners
 
  Online is a fast-moving place, and while social media tends to adapt and change with the times, forums remain fairly static. Most forums that continue to see regular use still run on myBB or phpBB (amongst other software), which—while solid and likely familiar to you—is fairly old software.
@@ -42,19 +38,11 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Forums Seem Outdated
 
  Forums have been a part of the web for over two decades, so it's no surprise if you find them outdated. In many areas of life, not just technology, people tend to gravitate toward the newest thing. With social media becoming the dominant form of communication years ago, forums will fade further into obscurity as time goes on.
 
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
@@ -66,17 +54,9 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
 
@@ -105,21 +85,24 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-legal-framework-of-instagram-tunes/"><u>[Updated] In 2024, Legal Framework of Instagram Tunes</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-quick-tips-for-capturing-online-video-conversations/"><u>[Updated] Quick Tips for Capturing Online Video Conversations</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-the-world-of-youtube-live-visuals/"><u>2024 Approved Navigating the World of YouTube Live Visuals</u></a></li>
-<li><a href="https://media-tips.techidaily.com/another-jump-coming-soon-spotify-readies-upcoming-subscription-fee-boost/"><u>Another Jump Coming Soon: Spotify Readies Upcoming Subscription Fee Boost</u></a></li>
-<li><a href="https://facebook.techidaily.com/experience-metas-endorsed-us-networking/"><u>Experience Meta's Endorsed US Networking</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/how-to-remove-jello-effect-from-an-aerial-video/"><u>How to Remove Jello Effect From an Aerial Video</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-multiple-languages-for-social-media-impact/"><u>Leveraging Multiple Languages for Social Media Impact</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-visuals-elevating-your-fb-storyline/"><u>Leveraging Visuals: Elevating Your FB Storyline</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-your-mark-a-guide-to-stellar-social-media-profiles/"><u>Making Your Mark: A Guide to Stellar Social Media Profiles</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-transform-videos-into-stunning-live-photos-with-these-apps/"><u>New In 2024, Transform Videos Into Stunning Live Photos with These Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-facebook-job-listing/"><u>Step-by-Step Guide: Facebook Job Listing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/strategie-per-comprimere-i-tuoi-file-video-hd4k8k-fino-al-90-senza-perdere-qualita/"><u>Strategie per Comprimere I Tuoi File Video HD/4K/8K Fino Al 90%, Senza Perdere Qualità!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-right-pace-how-quickly-should-your-pc-operate/"><u>The Right Pace: How Quickly Should Your PC Operate?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-nft-influencers/"><u>The Rise of NFT Influencers</u></a></li>
-<li><a href="https://facebook.techidaily.com/twin-streaming-wnbas-social-media-revolution/"><u>Twin Streaming: WNBA's Social Media Revolution</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fearless-filming-tackling-ten-common-vlog-anxieties-head-on/"><u>[New] 2024 Approved Fearless Filming Tackling Ten Common Vlog Anxieties Head-On</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-achieving-peak-performance-in-video-submissions-on-youtube/"><u>[Updated] 2024 Approved Achieving Peak Performance in Video Submissions on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-guidelines-registering-on-google-meet/"><u>[Updated] 2024 Approved Guidelines Registering on Google Meet</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/13-premium-cost-free-dvd-viewing-apps-for-windows-11-users-in-depth-reviews-and-comparisons/"><u>13 Premium, Cost-Free DVD Viewing Apps for Windows 11 Users: In-Depth Reviews & Comparisons</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-tools-to-keep-your-social-calendar-on-track/"><u>8 Top Tools to Keep Your Social Calendar on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-and-operating-facebooks-inbuilt-protection/"><u>Accessing and Operating Facebook's Inbuilt Protection</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/avoiding-scams-true-chatgpt-ios-titles/"><u>Avoiding Scams: True ChatGPT iOS Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-editorprime-design/"><u>In 2024, EditorPrime Design</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/up-to-date-with-youtube-community-guidelines-for-2024/"><u>Keep Up-to-Date With YouTube Community Guidelines for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/navigating-tech-toms-authoritative-guide-to-electronics-and-computers/"><u>Navigating Tech: Tom's Authoritative Guide to Electronics and Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-reality-on-facebook-after-a-hiccup/"><u>Revive Your Reality on Facebook After a Hiccup</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-and-savvy-suggestions-for-virtual-banter-online/"><u>Smart & Savvy Suggestions for Virtual Banter Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dynamics-of-facebooks-acceptance-criteria/"><u>The Dynamics of Facebook’s Acceptance Criteria</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/transform-your-gopro-footage-quick-and-easy-video-editing-on-macbook/"><u>Transform Your GoPro Footage Quick and Easy Video Editing on MacBook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-lenovo-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Lenovo Phone Network-Ready</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Alleged Ban of Ethical Marketing Claims Surface at FB
-date: 2024-08-28T02:54:52.007Z
-updated: 2024-08-29T02:54:52.007Z
+date: 2025-02-26T19:50:45.751Z
+updated: 2025-03-04T20:10:57.587Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,6 @@ Facebook responded with the following statement to the media:
 
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -51,9 +47,6 @@ Facebook responded with the following statement to the media:
 
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
  Signal wrapped it up nicely with the following passage in its blog post:
@@ -64,14 +57,11 @@ Facebook responded with the following statement to the media:
 
  Signal is a secure messaging app that uses end-to-end encryption, vanishing messages, and other features to prevent eavesdropping. While not as popular as WhatsApp or Viber, Signal saw a sudden surge in popularity following Facebook's controversial privacy policy update on WhatsApp which drove some WhatsApp users away from that platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +70,24 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-rev-up-your-recruiting-strategy-with-hot-tapes/"><u>[New] In 2024, Rev Up Your Recruiting Strategy with Hot Tapes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-historys-high-fliers-the-most-upvoted-threads-on-reddit/"><u>[Updated] History’s High-Fliers The Most Upvoted Threads on Reddit</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>[Updated] In 2024, Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-elite-fraudsters-web-networks/"><u>Avoiding the Elite Fraudsters' Web Networks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/best-escape-challenges-top-ten-must-play-rooms-for-2024/"><u>Best Escape Challenges Top Ten Must-Play Rooms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-influence-through-content-creation/"><u>Building Influence Through Content Creation</u></a></li>
+<li><a href="https://fox-where.techidaily.com/discover-exceptional-no-cost-svelte-templates-and-layouts-by-creative-tim/"><u>Discover Exceptional, No-Cost Svelte Templates & Layouts by Creative Tim</u></a></li>
+<li><a href="https://facebook.techidaily.com/enrich-networking-on-facebooks-messenger-service/"><u>Enrich Networking on Facebook's Messenger Service</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-from-amateur-to-pro-gopro-vlogging-secrets-revealed/"><u>In 2024, From Amateur to Pro Gopro Vlogging Secrets Revealed</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-guide-to-premium-podcasting-top-mic-picks/"><u>In 2024, Guide to Premium Podcasting Top Mic Picks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-a05s-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy A05s?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-meets-live-audience-with-facebooks-update/"><u>Social Media Meets Live Audience with Facebook's Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-nikon-z7-assessment-mirrorless-mastery-in-focus/"><u>The Ultimate Nikon Z7 Assessment: Mirrorless Mastery in Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-old-social-circles-on-fb/"><u>Unveiling Old Social Circles on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-realities-seeing-the-whole-picture-in-fb-data-exposes/"><u>Unveiling Realities: Seeing the Whole Picture in FB Data Exposés</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-your-messages-be-private-with-fb-messenger-e2ee/"><u>When Will Your Messages Be Private with FB Messenger E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-making-time-offline-is-the-ultimate-self-care-act/"><u>Why Making Time Offline Is the Ultimate Self-Care Act</u></a></li>
+</ul></div>
 

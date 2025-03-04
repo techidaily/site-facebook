@@ -1,7 +1,7 @@
 ---
 title: Unlocking a Safer Social Media Experience with Facebook’s Streamlined Privacy Control
-date: 2025-02-10T16:20:43.376Z
-updated: 2025-02-14T20:57:51.409Z
+date: 2025-03-03T17:56:13.260Z
+updated: 2025-03-04T21:03:52.511Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -38,17 +34,9 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
@@ -73,10 +61,6 @@ Here's how:
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
@@ -90,10 +74,6 @@ Here's how:
  To return to the main menu and explore other privacy settings, simply click on**Privacy Center home** , go to your preferred category and click**Read more** .
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why You Should Use Facebook's Privacy Center
 
@@ -128,18 +108,22 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-beginners-guide-top-10-easy-to-fly-drones/"><u>[New] Beginner's Guide Top 10 Easy-to-Fly Drones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-demystifying-whatsapp-audio-talks/"><u>[New] In 2024, Demystifying WhatsApp Audio Talks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-blueprint-for-youtube-video-success/"><u>[New] The Blueprint for YouTube Video Success</u></a></li>
-<li><a href="https://extra-information.techidaily.com/audio-transformation-expertise-from-ttml-and-xml-to-dynamic-srts/"><u>Audio Transformation Expertise From TTML & XML to Dynamic SRTs</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-connection-to-isolation-the-facebook-story/"><u>From Connection to Isolation: The Facebook Story</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-oppo-k11x-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Oppo K11x Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-past-interactions-in-fb-environment/"><u>Investigating Past Interactions in FB Environment</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-content-erasure-on-linkedin/"><u>Mastering the Art of Content Erasure on LinkedIn</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/precision-gadget-insights-by-tom-the-ultimate-guide-to-premium-tech/"><u>Precision Gadget Insights by Tom: The Ultimate Guide to Premium Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/pro-palestinian-campaign-targets-social-media-star-system/"><u>Pro-Palestinian Campaign Targets Social Media Star System</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-for-escaping-facebook-tags/"><u>Techniques for Escaping Facebook Tags</u></a></li>
-<li><a href="https://fox-making.techidaily.com/understanding-and-resolving-incorrect-image-visualization-on-graphics-cards-with-expertise-from-yl-software/"><u>Understanding and Resolving Incorrect Image Visualization on Graphics Cards with Expertise From YL Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-photo-color-correction-for-2024/"><u>[New] Mastering the Art of Photo Color Correction for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-reviewing-yuneecs-powerful-typhoon-aerodrone/"><u>[New] Reviewing Yuneec's Powerful Typhoon AeroDrone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-unlock-the-power-of-high-quality-webcam-videos-for-2024/"><u>[New] Unlock the Power of High-Quality Webcam Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-from-fb-aims-to-disrupt-journalism-on-substack/"><u>$5 Million From FB Aims to Disrupt Journalism on Substack</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-virtual-verification-blueprint-to-spot-fraudulence/"><u>A Virtual Verification Blueprint to Spot Fraudulence</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplify-earnings-discover-5-winning-strategies-for-ig-and-fb-businesses/"><u>Amplify Earnings: Discover 5 Winning Strategies for IG & FB Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-maintains-independence-no-jump-into-metaverse-just-yet/"><u>Apple Maintains Independence - No Jump Into Metaverse Just Yet</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/assault-frequency-on-digital-user-accounts/"><u>Assault Frequency on Digital User Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-realms-what-is-the-emergent-metaverse/"><u>Blending Realms: What Is the Emergent Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/carrying-on-without-carolyn-facebooks-ad-head/"><u>Carrying On Without Carolyn, Facebook's Ad Head</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148349131-facebook-judges-announce-date-for-ruling-on-trump-ban/"><u>Facebook Judges Announce Date for Ruling on Trump Ban.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-interactive-media-meets-brand-partnerships-on-youtube/"><u>In 2024, Interactive Media Meets Brand Partnerships on YouTube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-tecno-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Tecno ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movie-and-tv-show-enjoyment-weighing-the-benefits-of-dvd-blu-ray-vs-digital-formats/"><u>Movie & TV Show Enjoyment: Weighing the Benefits of DVD, Blu-Ray vs Digital Formats</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/quick-resolution-steps-handling-chatgpt-maxed-out-alerts-on-windows-systems/"><u>Quick Resolution Steps: Handling ChatGPT Maxed-Out Alerts on Windows Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-insights-comprehensive-guide-on-computer-gear/"><u>Tom's Tech Insights: Comprehensive Guide on Computer Gear</u></a></li>
 </ul></div>
 

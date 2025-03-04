@@ -1,7 +1,7 @@
 ---
 title: Alert! Identifying Compromised Accounts on Facebook
-date: 2024-08-28T02:57:58.493Z
-updated: 2024-08-29T02:57:58.493Z
+date: 2025-02-27T20:18:54.128Z
+updated: 2025-03-04T18:31:46.505Z
 tags:
   - facebook
 categories:
@@ -41,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/8761d7ab814205b2f88e7841689a57f834d49b25e
 
  If you do find a discrepancy with where you've logged in to Facebook, you can easily end the activity of that session, which should help safeguard you from any hacking attempt on that device. You can also log out of all sessions to be safe.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ### Checking Your Payment History on Facebook
 
 ![facebook-payments-center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-payments-center.png)
@@ -58,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/8761d7ab814205b2f88e7841689a57f834d49b25e
 
 ![facebook hacked reporting page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-hacked-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you have any problems with hacking whatsoever, you should inform Facebook. Facebook is keen to know about hacks and wants to do its part to keep the site as safe and secure as possible. Facebook is constantly adapting and improving it's security,
 
  Facebook has a dedicated page for those who believe their account may have been compromised. This page can be found at [facebook.com/hacked](https://www.facebook.com/hacked) . Here, you can report people sending messages from your account, duplicate accounts, or a potential hack attempt.
@@ -71,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/8761d7ab814205b2f88e7841689a57f834d49b25e
 
 ![Photo of a person holding their phone with the Facebook login page showing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/using-facebook-on-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  If you have been unfortunate enough to suffer from a hacked Facebook account, don't worry. It is possible to rectify the issue.
 
 To minimize the damage you should:
@@ -98,9 +88,6 @@ To minimize the damage you should:
 
  Under the security settings, you can also set up two-factor authentication. Doing so requires a security code to be typed when logging in from an unknown device or browser, and is another powerful deterrent to consider. Just make sure you keep this updated with your current phone number.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Take Precautions When Browsing Facebook
 
  You also need to think about the preventative measures you can take to protect your Facebook account from hackers.
@@ -111,32 +98,23 @@ To minimize the damage you should:
 
  You should also avoid fake websites that are made to look like Facebook and could steal your sensitive information. If you enter your login details into such a site, your Facebook account will be hacked in seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Adjust Your Facebook Privacy Settings
 
  Another step you can take is to increase privacy settings on your profile page, photos, posts, and tags.
 
  Hiding these items from the public view improves your privacy on the platform. Doing so is a good way to ensure that your details are shown to specific people, and not to your entire list—or worse—the entire internet.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Safeguard Your Facebook Privacy and Security
 
  Hopefully, you now know how to tell if your Facebook account has been hacked and what to do about it.
 
  And remember, while nothing is ever 100 percent protected, Facebook offers lots of ways to safeguard your account. Doing so means that hackers will be hard-pressed to obtain your data or personal information. By taking the necessary security precautions, you're ensuring that you're as protected as possible.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +123,22 @@ To minimize the damage you should:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-filmmaking-for-the-future-adapting-videos-vertically-for-instagram/"><u>[New] In 2024, Filmmaking for the Future Adapting Videos Vertically for Instagram</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-download-to-edit-installing-videoleap-on-your-macbook/"><u>2024 Approved From Download to Edit Installing Videoleap on Your MacBook</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-viral-mastery-in-10-simple-tiktok-steps/"><u>2024 Approved Viral Mastery in 10 Simple TikTok Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-facebook-2fa-post-phone-loss/"><u>Bypassing Facebook 2FA Post-Phone Loss</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-expansion-a-future-headline/"><u>Cryptocurrency's Expansion: A Future Headline?</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-a-closer-look-at-facebook-files/"><u>Debunking Myths: A Closer Look at Facebook Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-logitech-sound-system-software-compatible-with-windows-11-7-and-8/"><u>Download Logitech Sound System Software Compatible with Windows 11, 7 & 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-calls-for-halt-to-facebooks-whatsapp-data-harvesting/"><u>Germany Calls for Halt to Facebook's WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-samsung-galaxy-s23-tactical-edition-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Samsung Galaxy S23 Tactical Edition To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-spark-interest-engage-followers-maximizing-tiktok-unboxer-appeal/"><u>In 2024, Spark Interest, Engage Followers Maximizing TikTok Unboxer Appeal</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-supreme-boundless-data-depot/"><u>In 2024, Supreme Boundless Data Depot</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-society-one-like-at-a-time/"><u>Strengthening Society One Like at a Time</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+</ul></div>
 

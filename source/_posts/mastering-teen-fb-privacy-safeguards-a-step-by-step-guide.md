@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2025-02-08T07:28:19.755Z
-updated: 2025-02-15T12:30:18.499Z
+date: 2025-02-25T16:10:15.197Z
+updated: 2025-03-04T19:11:51.140Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
@@ -74,23 +70,11 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -99,10 +83,6 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -125,22 +105,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-stealthily-stream-youtube-via-phones-autoplay-for-2024/"><u>[Updated] How to Stealthily Stream YouTube via Phone's Autoplay for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-a-viral-path-best-hashtags-for-youtube-riches/"><u>[Updated] In 2024, Crafting a Viral Path Best Hashtags for YouTube Riches</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/functionality-on-hold-not-for-whatsapp-without-privacy-agreement/"><u>Functionality on Hold? Not for WhatsApp Without Privacy Agreement</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-refriend-someone-you-blocked-on-facebook/"><u>How to Refriend Someone You Blocked on Facebook</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Honor Magic Vs 2? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-6-plus-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 6 Plus Properly</u></a></li>
-<li><a href="https://facebook.techidaily.com/iphone-users-preference-towards-privacy/"><u>IPhone Users' Preference Towards Privacy</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Oppo A38? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-privacy-settings-in-your-childs-facebook-messenger/"><u>Optimizing Privacy Settings in Your Child's Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/pairing-smartphones-with-home-entertainment/"><u>Pairing Smartphones with Home Entertainment</u></a></li>
-<li><a href="https://fox-links.techidaily.com/step-into-professional-photoshop-mastering-luts-in-cs6cc/"><u>Step Into Professional Photoshop Mastering LUTs in CS6/CC</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-strategy-expedite-your-online-purchase-reimbursement-via-fb/"><u>Stepwise Strategy: Expedite Your Online Purchase Reimbursement via FB</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/lueprint-for-building-an-iconic-online-identity-on-youtube/"><u>The Blueprint for Building an Iconic Online Identity on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-sheryl-sandbergs-role-at-facebook/"><u>Understanding Sheryl Sandberg’s Role at Facebook</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-time-travel-how-to-flip-videos-for-2024/"><u>YouTube Time Travel How to Flip Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-ad-based-revenue-tracking-for-youtubers-success/"><u>[Updated] 2024 Approved Ad-Based Revenue Tracking for YouTubers' Success</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-deep-dive-sonys-s6700-updates-review/"><u>[Updated] 2024 Approved Deep Dive Sony's S6700 Updates Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-photos-with-samsungs-latest-toolkit/"><u>[Updated] Mastering Photos with Samsung's Latest Toolkit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-capture-the-season-wardrobe-top-5-winter-yt-scenes/"><u>2024 Approved Capture the Season' Wardrobe Top 5 Winter YT Scenes</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ingenious-ways-to-turn-social-media-into-cash/"><u>5 Ingenious Ways to Turn Social Media Into Cash</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-critical-facebook-features-for-dynamic-workplace-collaboration/"><u>8 Critical Facebook Features for Dynamic Workplace Collaboration</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/a-comprehensive-review-of-the-lightroom-app-on-android-for-2024/"><u>A Comprehensive Review of the Lightroom App on Android for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-of-commerce-could-a-friendly-face-be-among-us/"><u>A New Era of Commerce: Could a Friendly Face Be Among Us?</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-every-layer-of-your-facebook-experience/"><u>Accessing Every Layer of Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/addressing-inoperative-fb-postmessage-indicators/"><u>Addressing Inoperative FB Post/Message Indicators</u></a></li>
+<li><a href="https://facebook.techidaily.com/anatomy-of-a-currency-the-world-of-crypto-stablecoins/"><u>Anatomy of a Currency: The World of Crypto Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/claim-prestige-metas-verified-status-stamp/"><u>Claim Prestige: Meta’s Verified Status Stamp</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-understanding-and-evading-online-shadowbans/"><u>Comprehensively Understanding and Evading Online Shadowbans</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-top-free-mov-video-rotation-apps/"><u>New In 2024, The Top Free MOV Video Rotation Apps</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/optimizing-windows-11-performance-addressing-surge-in-disk-usage-from-microsofts-telemetry-feature/"><u>Optimizing Windows 11 Performance: Addressing Surge in Disk Usage From Microsoft's Telemetry Feature</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Seamless Music Selection - Spotify Miniplayer on FB!
-date: 2024-08-28T02:58:57.396Z
-updated: 2024-08-29T02:58:57.396Z
+date: 2025-03-01T19:40:19.854Z
+updated: 2025-03-04T16:12:54.038Z
 tags:
   - facebook
 categories:
@@ -55,23 +55,17 @@ Close
 
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## More Audio Features Are Coming Soon
 
  To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-joymakerbox-sign-up-share-smiles-create/"><u>[Updated] 2024 Approved JoyMakerBox Sign Up, Share Smiles, Create</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-a-step-by-step-guide-for-effective-use-of-luts-in-adobe-suite/"><u>[Updated] In 2024, A Step-by-Step Guide for Effective Use of LUTs in Adobe Suite</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-elite-gaming-spectacle-cut-to-best-7-shooters/"><u>[Updated] In 2024, Elite Gaming Spectacle Cut to Best 7 Shooters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-essential-apps-for-invisible-story-watching/"><u>2024 Approved Essential Apps for Invisible Story Watching</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-make-your-pictures-speak-online-with-the-best-tools-recommended/"><u>2024 Approved Make Your Pictures Speak Online With the Best Tools Recommended</u></a></li>
+<li><a href="https://facebook.techidaily.com/audio-free-video-free-ig-live-experience/"><u>Audio-Free, Video-Free IG Live Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-authenticity-with-a-cleaner-facebook-slate/"><u>Boost Authenticity with a Cleaner Facebook Slate</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-art-and-tech-with-meta-drops-social-platform-testing/"><u>Bridging Art & Tech with Meta Drops' Social Platform Testing</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-more-clicks-on-fb-with-these-5-free-timetable-strategies/"><u>Get More Clicks on FB with These 5 Free Timetable Strategies</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-vivo-y100a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-8-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 8? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-minefield-of-facebooks-privacy-settings/"><u>Navigating the Minefield of Facebook's Privacy Settings</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-distort-degrade-and-disrupt-the-best-free-online-glitch-tools/"><u>New Distort, Degrade, and Disrupt The Best Free Online Glitch Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-leadership-with-new-page-administrators/"><u>Transform Leadership with New Page Administrators</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-upgrading-to-macos-1441-is-now-safer-for-your-apple-device-insights/"><u>Why Upgrading to macOS 14.4.1 Is Now Safer for Your Apple Device - Insights</u></a></li>
+</ul></div>
 

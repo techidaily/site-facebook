@@ -1,7 +1,7 @@
 ---
 title: "Balancing Your FB Friends List: Unfollow & Follow Dynamics Explained"
-date: 2024-08-28T02:56:18.569Z
-updated: 2024-08-29T02:56:18.569Z
+date: 2025-03-02T16:13:17.682Z
+updated: 2025-03-04T20:02:42.920Z
 tags:
   - facebook
 categories:
@@ -58,24 +58,14 @@ There are two reasons to use the follow feature.
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
@@ -94,9 +84,6 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
  You can make a post public by clicking on the dropdown menu below the text box when you're writing a message. You can adjust the visibility of pictures and videos in a similar way.
@@ -107,9 +94,6 @@ This same page contains three other settings you need to be aware of:
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Who Follows You on Facebook
 
  Seeing who is following you is much the same as seeing who you're following.
@@ -118,9 +102,6 @@ This same page contains three other settings you need to be aware of:
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
@@ -141,14 +122,11 @@ This same page contains three other settings you need to be aware of:
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,8 +135,26 @@ This same page contains three other settings you need to be aware of:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-streamlining-your-media-mastering-mp4-and-other-formats-in-vlc/"><u>[Updated] Streamlining Your Media Mastering MP4 & Other Formats in VLC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-from-sketches-to-screen-bringing-anime-filters-into-snaps/"><u>2024 Approved From Sketches to Screen Bringing Anime Filters Into Snaps</u></a></li>
+<li><a href="https://games-able.techidaily.com/bargain-hunters-guide-top-11-gaming-deals-online/"><u>Bargain Hunters' Guide: Top 11 Gaming Deals Online</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/become-a-photo-editing-wizard-with-lunapic-expertise/"><u>Become a Photo Editing Wizard with LunaPic Expertise</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-how-social-networkers-became-metamates/"><u>Behind the Scenes: How Social Networkers Became 'Metamates'</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-beyond-facebook-exploring-alternatives/"><u>Communication Beyond Facebook: Exploring Alternatives</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elegant-darkening-premieres-touch-for-2024/"><u>Elegant Darkening Premiere's Touch for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-safety-of-fb-messenger/"><u>Examining the Safety of FB Messenger</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-12-4g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 12 4G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-dollars-in-the-digital-domain-of-dialogue/"><u>Making Dollars in the Digital Domain of Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-community-maze-facebook-group-finds/"><u>Navigating the Digital Community Maze: Facebook Group Finds</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-10-best-apps-to-create-mind-bending-glitch-art-videos-on-mobile-for-2024/"><u>New 10 Best Apps to Create Mind-Bending Glitch Art Videos on Mobile for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/organize-and-share-music-how-to-make-youtube-playlists-easier-for-2024/"><u>Organize and Share Music How to Make YouTube Playlists Easier for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-social-gatherings-with-facebook-portal-tv/"><u>Simplifying Social Gatherings with Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-meticulous-route-through-metas-social-stewardship-nexus/"><u>The Meticulous Route Through Meta's Social Stewardship Nexus</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-dark-mode-in-paint/"><u>The Ultimate Guide to Dark Mode in Paint</u></a></li>
+<li><a href="https://facebook.techidaily.com/unique-mobile-app-linkage-how-facebook-surpasses-apple-payments-system/"><u>Unique Mobile App Linkage: How Facebook Surpasses Apple Payments System</u></a></li>
+<li><a href="https://techtrends.techidaily.com/upgrade-to-the-future-with-tcls-expanded-selection-of-19-innovative-q-and-s-series-smart-televisions/"><u>Upgrade to the Future with TCL’s Expanded Selection of 19 Innovative Q & S Series Smart Televisions</u></a></li>
+<li><a href="https://facebook.techidaily.com/yearly-summary-the-hottest-podcasts-reviewed-and-rated/"><u>Yearly Summary: The Hottest Podcasts Reviewed & Rated</u></a></li>
+</ul></div>
 

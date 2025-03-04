@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2025-02-14T07:44:09.170Z
-updated: 2025-02-15T01:52:22.414Z
+date: 2025-02-28T16:15:16.539Z
+updated: 2025-03-04T16:11:56.925Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Social Media Is Bad for You
 
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
@@ -44,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
@@ -62,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -74,17 +62,9 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -153,18 +133,22 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-traverse-costs-watch-anywhere-gratis-video-player-pcmac/"><u>[New] 2024 Approved Traverse Costs, Watch Anywhere - Gratis VIDEO Player (PC/Mac)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-increase-followers-on-facebook-10-effective-ways/"><u>[New] How to Increase Followers on Facebook (10 Effective Ways )</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-guide-to-quantum-hdr/"><u>[New] In 2024, The Ultimate Guide to Quantum HDR</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-unlocking-the-potential-of-your-itunes-recordings-for-2024/"><u>[New] Unlocking the Potential of Your iTunes Recordings for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-essential-zombies-unleashed-a-curated-list/"><u>[Updated] Essential Zombies Unleashed A Curated List</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/1-kostenlose-kopie-einer-sd-karte-mit-windows-versionen-11-10-8-und-7/"><u>1: Kostenlose Kopie Einer SD-Karte Mit Windows (Versionen 11, 10, 8 Und 7)</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/5yuv55s744gl44kj44kq44o844oh44kj44kq44g444gu5asj5oplusb44ks44kk44oj77ya5oml6acg44go44os44oz44oi/"><u>動画からオーディオへの変換ガイド：手順とヒント</u></a></li>
-<li><a href="https://facebook.techidaily.com/freedom-and-privacy-erase-yourself-from-facebook-memories/"><u>Freedom and Privacy: Erase Yourself From Facebook Memories</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-network-nuances-the-essentials-of-facebook-group-management-tools/"><u>Navigating Network Nuances: The Essentials of Facebook Group Management Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/overcoming-chatgpt-failures-in-apples-ecosystem/"><u>Overcoming ChatGPT Failures in Apple's Ecosystem</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-protocols-for-personal-photographs-on-fb/"><u>Privacy Protocols for Personal Photographs on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/shield-your-preferences-discreetly-expressing-support-online/"><u>Shield Your Preferences: Discreetly Expressing Support Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-fomo-the-real-tale-behind-fb-users/"><u>Unraveling FOMO: The Real Tale Behind FB Users</u></a></li>
+<li><a href="https://some-tips.techidaily.com/cerebras-deploys-andromeda-a-custom-built-supercomputer-for-enhancing-ai-language-model-performance/"><u>Cerebras Deploys Andromeda, a Custom-Built Supercomputer for Enhancing AI Language Model Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-media-insights-from-facebooks-openness-hub/"><u>Deciphering Social Media: Insights From Facebook's Openness Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-veiled-world-of-shadowbanned-content/"><u>Deciphering the Veiled World of Shadowbanned Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-profiles-versus-usernames-in-digital-spaces/"><u>Decoding Facebook Profiles Versus Usernames in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-web-of-connections-total-summary-of-your-facebook-history/"><u>Decoding the Web of Connections: Total Summary of Your Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/discard-your-fb-view-logs-procedure-and-advantages/"><u>Discard Your FB View Logs - Procedure & Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/ditch-the-digital-embrace-a-more-fulfilling-lifestyle-without-facebook/"><u>Ditch the Digital: Embrace a More Fulfilling Lifestyle without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodging-digital-deceptions-securing-transactions-in-the-social-swap-sphere/"><u>Dodging Digital Deceptions – Securing Transactions in the Social Swap Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-growth-with-a-robust-list-of-work-clients-via-facebook/"><u>Driving Growth with a Robust List of Work Clients via Facebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevating-film-colors-using-luts-methods/"><u>Elevating Film Colors Using Luts Methods</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exploring-the-future-of-tech-linus-torvalds-insights-on-artifice-intelligence-advancing-with-rust-and-why-he-believes-linux-is-paramount-featured-by-zdnet.m46/"><u>Exploring the Future of Tech: Linus Torvalds Insights on Artifice Intelligence, Advancing with Rust, and Why He Believes Linux Is Paramount - Featured by ZDNET</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-tecno-pop-8-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Tecno Pop 8</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-lineup-best-8-devices-for-superior-uhd-viewing/"><u>In 2024, Premium Lineup Best 8 Devices for Superior UHD Viewing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/learning-through-dialogue-can-chatgpt-adapt-from-conversations-with-people/"><u>Learning Through Dialogue: Can ChatGPT Adapt From Conversations With People?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/spark-advance-the-ignition-must-occur-before-tdc-to-ensure-peak-pressure-occurs-as-the-piston-starts-its-downward-stroke-for-maximum-leverage-power/"><u>Spark Advance: The Ignition Must Occur Before TDC to Ensure Peak Pressure Occurs as the Piston Starts Its Downward Stroke for Maximum Leverage (Power).</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-bcm207t2a0-wireless-network-adapter-driver-update-for-windows-systems/"><u>Step-by-Step BCM207t2A0 Wireless Network Adapter Driver Update for Windows Systems</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-realm-of-ring-vs-reality-stream/"><u>The Realm of Ring vs Reality Stream</u></a></li>
 </ul></div>
 

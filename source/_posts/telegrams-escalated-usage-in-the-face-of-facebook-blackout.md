@@ -1,7 +1,7 @@
 ---
 title: Telegram's Escalated Usage in the Face of Facebook Blackout
-date: 2025-02-08T10:06:05.238Z
-updated: 2025-02-15T02:57:29.506Z
+date: 2025-03-01T19:38:48.795Z
+updated: 2025-03-04T19:02:14.733Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -40,27 +36,15 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 
 But why did Telegram benefit so much more than any of its rivals?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
  Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and[many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
 
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Important Is This for Telegram?
 
@@ -86,10 +70,6 @@ But why did Telegram benefit so much more than any of its rivals?
 
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Can Telegram Continue Its Momentous Rise?
 
  While 70 million new users in a day is impressive, it would be folly to believe that they will all continue to use the service now that WhatsApp and Messenger are back online.
@@ -111,19 +91,18 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-the-100plus-best-zodiac-bio-ideas-for-messaging-enthusiasts/"><u>[New] 2024 Approved The 100+ Best Zodiac Bio Ideas for Messaging Enthusiasts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-superior-mkv-player-pcandroid-experience/"><u>[Updated] Superior MKV Player PC/Android Experience</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-approaches-to-background-blanketing-in-affinity-photo/"><u>2024 Approved Innovative Approaches to Background Blanketing in Affinity Photo</u></a></li>
-<li><a href="https://win-blog.techidaily.com/accelerate-your-play-fixed-techniques-for-skipping-forza-horizon-5s-load-screens/"><u>Accelerate Your Play: Fixed Techniques for Skipping Forza Horizon 5'S Load Screens</u></a></li>
-<li><a href="https://facebook.techidaily.com/fixing-the-inability-to-load-facebook-alertsupdates/"><u>Fixing the Inability to Load Facebook Alerts/Updates</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-all-you-need-to-know-about-adding-apple-music-to-video/"><u>In 2024, All You Need to Know About Adding Apple Music to Video</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-vip-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30 VIP Phone without Google Account?</u></a></li>
-<li><a href="https://article-files.techidaily.com/maximizing-visual-clarity-on-kinemaster-projects-for-2024/"><u>Maximizing Visual Clarity on Kinemaster Projects for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinventing-your-social-circle-without-facebook-top-10-proposals-for-quitting/"><u>Reinventing Your Social Circle Without Facebook - Top 10 Proposals for Quitting</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-vivo-y78t-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Vivo Y78t with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tipping-point-apples-ios-145-and-its-impact-on-facebook/"><u>The Tipping Point: Apple's iOS 14.5 and Its Impact on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/theft-from-social-networks-how-often/"><u>Theft From Social Networks: How Often?</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-safe-social-networking-sites/"><u>Top: Safe Social Networking Sites?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-facebook-ditch-news-feed-in-favor-of-just-feed/"><u>Why Did Facebook Ditch 'News Feed' In Favor of Just 'Feed'?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-comprehensive-ultimate-guide-to-instagram-stories/"><u>[New] 2024 Approved Comprehensive Ultimate Guide to Instagram Stories</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-effortless-voice-memo-creation-on-apple-devices/"><u>[New] Effortless Voice Memo Creation on Apple Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-captivating-youtube-presence-the-ultimate-guide-to-making-thumbnails-on-phones/"><u>[Updated] 2024 Approved Crafting Captivating YouTube Presence The Ultimate Guide to Making Thumbnails on Phones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-discover-the-best-15-youtube-science-think-tanks/"><u>[Updated] 2024 Approved Discover the Best 15 YouTube Science Think Tanks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unique-stories-crafting-powerful-yt-narratives/"><u>[Updated] 2024 Approved Unique Stories Crafting Powerful YT Narratives</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quintessential-5-filters-for-depth-video/"><u>[Updated] Quintessential 5 Filters for Depth Video</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-no-cost-high-quality-srt-editors/"><u>2024 Approved The Ultimate Guide to No-Cost, High-Quality Srt Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-leap-in-user-engagement-facebooks-informed-content-experiment/"><u>A Leap in User Engagement: Facebook’s Informed Content Experiment</u></a></li>
+<li><a href="https://facebook.techidaily.com/biden-unveils-vaccination-blitz-on-snapchat-and-twitter/"><u>Biden Unveils Vaccination Blitz on Snapchat & Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/confront-the-click-strategies-for-quitting-facebook/"><u>Confront the Click: Strategies for Quitting Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-positive-online-persona-on-social-media-sites/"><u>Crafting a Positive Online Persona on Social Media Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/customized-digital-access-facebooks-strategy-surpasses-apples-model/"><u>Customized Digital Access: Facebook's Strategy Surpasses Apple's Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144254299-digital-dollar-in-pasture-zuckerbergs-peculiar-choice/"><u>Digital Dollar in Pasture: Zuckerberg's Peculiar Choice.</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2025-02-09T17:53:57.690Z
-updated: 2025-02-15T00:40:05.212Z
+date: 2025-02-27T17:11:40.147Z
+updated: 2025-03-04T20:53:44.426Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook and the Metaverse
 
  When it comes to disruptive technologies, the pioneers often end up on top. Few companies understand this as much as Facebook, as the multi-billion-dollar tech behemoth owes much of its success to its pioneering status in social media.
@@ -48,17 +44,9 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -71,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  In addition to the data Meta already has on you, the company will get even more private information about you through MR devices. Meta might be able to estimate your physical characteristics, how you walk, talk, and think, and more intrusive details on your persona.
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Another Digital Addiction for Gen Z
 
@@ -95,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -133,21 +113,22 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-enhance-stories-interaction-with-custom-queries-design/"><u>[New] Enhance Stories Interaction with Custom Queries Design</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-exploring-lgs-ultra-hd-tech-27ud68-monitor-deep-dive-for-2024/"><u>[New] Exploring LG's Ultra HD Tech 27UD68 Monitor Deep Dive for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-intensive-analysis-sonys-high-def-action-cam/"><u>[Updated] Intensive Analysis Sony's High-Def Action Cam</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unlocking-the-secrets-to-building-trust-with-fb-giveaways/"><u>[Updated] Unlocking the Secrets to Building Trust with FB Giveaways</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/banish-flickering-effect-in-visuals/"><u>Banish Flickering Effect in Visuals</u></a></li>
-<li><a href="https://facebook.techidaily.com/fan-experience-elevated-with-fb-and-twt-coverage/"><u>Fan Experience Elevated with FB & Twt Coverage</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-find-the-exact-date-you-created-your-facebook-account/"><u>How to Find the Exact Date You Created Your Facebook Account</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-play-8t-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor Play 8T Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/peeling-back-the-layers-what-are-shadowbans-avoidance-guide/"><u>Peeling Back the Layers: What Are Shadowbans? Avoidance Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-reimagined-for-the-modern-mobile-world/"><u>Portal Reimagined for the Modern, Mobile World</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-peace-and-productivity-why-drop-facebook/"><u>Privacy, Peace & Productivity: Why Drop Facebook</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-7-plus-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 7 Plus Prevention & Solution</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-gaining-clients-on-social-media-focusing-on-fb/"><u>The Art of Gaining Clients on Social Media: Focusing on FB</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unmissable-offers-on-gadgets-and-displays-get-your-hands-on-an-apple-pencil-galaxy-s24-4k-tv-marvels-and-more/"><u>Unmissable Offers on Gadgets and Displays: Get Your Hands on an Apple Pencil, Galaxy S24, 4K TV Marvels & More!</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-whatsapp-and-instagram-went-offline-for-six-hours/"><u>Why Facebook, WhatsApp, and Instagram Went Offline for Six Hours</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-balancing-work-and-leisure-enhancing-podcast-listening/"><u>[New] Balancing Work and Leisure Enhancing Podcast Listening</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-the-basics-for-transforming-full-size-photos-into-efficient-thumbnails-for-2024/"><u>[New] The Basics for Transforming Full-Size Photos Into Efficient Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-headsets-a-new-hacked-account-reset-method/"><u>$300 Oculus Headsets, A New Hacked Account Reset Method</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-power-of-grading-insights-from-dr-john-doe/"><u>2024 Approved Unveiling the Power of Grading Insights From Dr. John Doe</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-zte-nubia-z60-ultra-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your ZTE Nubia Z60 Ultra</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-dislike-options-necessary-online/"><u>Are Dislike Options Necessary Online?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/boosting-performance-with-updated-hyperx-headset-drivers/"><u>Boosting Performance with Updated HyperX Headset Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-record-compilation-how-to-archive-your-facebook-life/"><u>Complete Record Compilation: How to Archive Your Facebook Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-foundations-of-facebooks-operational-plan/"><u>Exploring the Foundations of Facebook's Operational Plan</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-age-friendly-networking-spaces/"><u>Greatest Age-Friendly Networking Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-and-remove-shortcuts-on-facebook/"><u>How to Add and Remove Shortcuts on Facebook</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-offline-iphone-and-ipad-games-fun-without-wi-fi/"><u>In 2024, Top Offline iPhone & iPad Games – Fun Without Wi-Fi</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209671892-9781760871253-make-it-happen/"><u>Make It Happen | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211323052-9783689441050-the-basics-of-astrology/"><u>THE BASICS OF ASTROLOGY | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-2023-target-matters-in-the-e2e-encryption-schedule/"><u>Why Meta's 2023 Target Matters in the E2E Encryption Schedule</u></a></li>
 </ul></div>
 

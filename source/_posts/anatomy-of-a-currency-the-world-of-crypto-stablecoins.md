@@ -1,7 +1,7 @@
 ---
 title: "Anatomy of a Currency: The World of Crypto Stablecoins"
-date: 2024-08-28T02:54:15.950Z
-updated: 2024-08-29T02:54:15.950Z
+date: 2025-03-02T17:29:42.817Z
+updated: 2025-03-04T18:42:15.575Z
 tags:
   - facebook
 categories:
@@ -53,41 +53,26 @@ Image Credit: Tether
 
  Facebook's proposed Diem stablecoin (formerly Libra) would get around this issue in part by being backed by a basket of reserve currencies from around the world. If one or even a few of these assets experienced price instability, it would be checked by the stability of the other assets. That would allow Diem to maintain a more stable price than any individual asset backing the coin.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### CBDCs Are a Subset of Stablecoins
 
  When a government launches its own stablecoin, this class of stablecoin is called a "central bank digital currency" or "CBDC" for short. Right now, China is the only country with a CBDC, though India, the United Kingdom, the United States, and other countries have publicly considered the idea.
 
  While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## More Stablecoin Examples and Use Cases
 
  The benefits of using a stable coin often depend on the coin as well as who issues it. There are several stablecoins already out there, including those that have already been discussed in this article. However, some proposed stablecoins could offer even more utility in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### CBDCs Could Help Governments Regulate and Issue Currency
 
  Stablecoins, specifically CBDCs, have a huge draw for governments for many reasons, including giving the central bank more direct control over the currency. CBDCs could also reduce or eliminate the need for the government to print and maintain physical money.
 
  While China uses its CBDC as a surveillance tool, U.S. Fed Chair Jerome Powell has said that the private nature of cryptocurrencies is a reason for the U.S. not to build a CBDC.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Stablecoins Could Provide Financial Infrastructure to the Unbanked
 
 ![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
  On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
 
  People without easy access to physical banks or who don't trust banking institutions could access secure financial services through stablecoins. Stablecoins other than CBDCs can be used by individuals as a store of value when their own local currency was in flux, as discussed above, or by people who live in areas where multiple currencies are used.
@@ -100,21 +85,15 @@ Image Credit: Tether
 
  Stablecoins can allow vendors to accept payments in cryptocurrency for international online transactions without the need to account for price volatility or the hassle of transferring funds from one currency to another.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is a Stablecoin the Coin for You?
 
  If you like the sound of digital currencies but don't like the sound of the price volatility of coins like Bitcoin and Ethereum, stablecoins might be right for you. While solutions like Facebook's Diem and CBDCs still exist on paper for most readers, coins like USDC and Tether are available and traded on most exchanges.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,8 +102,26 @@ Image Credit: Tether
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-best-templates-no-cost-explore-premiere-pro-samples-free-for-2024/"><u>[New] Best Templates, No Cost! Explore Premiere Pro Samples (FREE) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-does-your-channel-benefit-from-regular-youtube-payments/"><u>[Updated] 2024 Approved Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-ultimate-seventh-selection-of-aquatic-cameras/"><u>[Updated] 2024 Approved The Ultimate Seventh Selection of Aquatic Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-tune-tracker-and-manager-android-companion/"><u>[Updated] 2024 Approved Top Tune Tracker & Manager, Android Companion</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-boosting-engagement-tailoring-backgrounds-on-google-meet-devices-for-2024/"><u>[Updated] Boosting Engagement Tailoring Backgrounds on Google Meet Devices for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[Updated] Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-breaking-into-the-periscope-livestream-arena/"><u>2024 Approved Breaking Into the Periscope Livestream Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-emails-ever-obsolete/"><u>Are Emails Ever Obsolete?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-the-mystery-behind-ai-black-boxes-and-their-processes/"><u>Decoding the Mystery Behind AI Black Boxes and Their Processes</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-your-digital-footprint-with-multiple-app-login-through-facebook/"><u>Dissecting Your Digital Footprint with Multiple App Login Through Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet.</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-new-privacy-center-and-why-you-should/"><u>How to Use Facebook's New Privacy Center (and Why You Should)</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-notifications-track-vanished-screenshots/"><u>Messenger Notifications: Track Vanished Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-signature-wars-claiming-victory-as-meta-gold-or-blue-ticked/"><u>Social Signature Wars: Claiming Victory as Meta-Gold or Blue-Ticked</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-eradicating-fb-notification-alerts/"><u>Steps for Eradicating Fb Notification Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-competition-in-a-post-antitrust-world/"><u>The Future of Competition in a Post-Antitrust World</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-nokia-150-2023-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Nokia 150 (2023) to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-7-editing-tools-to-craft-viral-tiktok-content-a-comprehensive-guide/"><u>Top 7 Editing Tools to Craft Viral TikTok Content: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-activating-the-facebook-shield/"><u>Understanding and Activating the Facebook Shield</u></a></li>
+</ul></div>
 

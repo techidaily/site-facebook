@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2025-02-13T02:21:24.115Z
-updated: 2025-02-15T05:00:22.923Z
+date: 2025-02-27T19:09:32.815Z
+updated: 2025-03-04T17:18:00.245Z
 tags:
   - facebook
 categories:
@@ -24,19 +24,11 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## US Adults Use Social Media Despite Believing It Divides People
 
  A nationwide poll conducted by[NBC News](https://www.nbcnews.com/politics/meet-the-press/poll-nearly-two-thirds-americans-say-social-media-platforms-are-n1266773) shows that most Americans use social media at every day, despite their belief that such platforms (e.g. Facebook, Twitter, TikTok, etc.) do more to divide people than unify them.
 
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
 
@@ -52,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Social Media Affect Your Life?
 
  The same poll also asked Americans how social media affects their quality of life. 49 percent say social media makes their lives better, while 37 percent say it makes their lives worse.
@@ -66,15 +54,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
 
@@ -99,16 +79,18 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-masters-choice-10-leading-photo-backdrop-swap-tools-for-2024/"><u>[New] Master's Choice 10 Leading Photo Backdrop Swap Tools for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-ultimate-guide-leading-4k-uhd-blu-ray-devices/"><u>[Updated] Ultimate Guide Leading 4K UHD Blu-Ray Devices</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-elevate-photo-fidelity-larger-not-lesser/"><u>2024 Approved Elevate Photo Fidelity - Larger, Not Lesser</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/comparative-review-top-cloud-services-prices/"><u>Comparative Review Top Cloud Services' Prices</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-motorola-moto-g23-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Motorola Moto G23</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-top-10plus-tools-to-record-your-pc-screen-seamlessly/"><u>In 2024, Top 10+ Tools to Record Your PC Screen Seamlessly</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-the-allure-of-facebook-reels/"><u>Overcoming the Allure of Facebook Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/riding-against-tides-why-facebook-may-survive/"><u>Riding Against Tides: Why Facebook May Survive</u></a></li>
-<li><a href="https://facebook.techidaily.com/sprucing-up-your-social-network-scene/"><u>Sprucing Up Your Social Network Scene</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-economics-of-engaging-with-each-other-online/"><u>The Economics of Engaging with Each Other Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-comprehensive-list-of-top-video-making-software-iphone-android-for-2024/"><u>[New] A Comprehensive List of Top Video-Making Software (iPhone, Android) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-of-the-most-useful-crowdfire-features-to-try/"><u>8 of the Most Useful Crowdfire Features to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-metas-account-oversight-hub/"><u>A Step-by-Step Guide to Meta's Account Oversight Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/audio-revolution-facebook-enhances-user-interaction/"><u>Audio Revolution: Facebook Enhances User Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-assessment-for-securityfacebookmailcom-as-a-secure-mail-service/"><u>Authenticity Assessment for @security@facebookmail.com as a Secure Mail Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-status-updates-exploring-the-top-6-metaspace-innovations-by-facebook/"><u>Beyond Status Updates: Exploring the Top 6 Metaspace Innovations by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/claim-your-cut-from-facebooks-725-million-class-action-settlement/"><u>Claim Your Cut From Facebook's $725 Million Class Action Settlement</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquer-slow-downloads-on-origin-expert-techniques-and-guides-for-superior-download-speeds/"><u>Conquer Slow Downloads on Origin - Expert Techniques and Guides for Superior Download Speeds</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/elevate-your-mac-usage-with-the-latest-nuphy-air75-v2-review-the-ultimate-mechanical-keyboard-designed-just-for-you/"><u>Elevate Your Mac Usage with the Latest NuPhy Air75 V2 Review: The Ultimate Mechanical Keyboard Designed Just for You!</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/lg-2n4lh4830-streaming-television-affordable-quality-without-compromises/"><u>LG 2N4lh4830 Streaming Television: Affordable Quality without Compromises</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/master-class-extracting-and-saving-vimeo-videos/"><u>Master Class Extracting and Saving Vimeo Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/troubleshooting-steps-for-reinstating-your-network-cards-driver-on-windows-10-devices/"><u>Troubleshooting Steps for Reinstating Your Network Card's Driver on Windows 10 Devices</u></a></li>
 </ul></div>
 

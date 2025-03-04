@@ -1,7 +1,7 @@
 ---
 title: "Beyond Buzzwords: Deconstructing Social Harm's Reality"
-date: 2024-08-28T02:54:37.324Z
-updated: 2024-08-29T02:54:37.324Z
+date: 2025-02-26T18:47:24.505Z
+updated: 2025-03-04T18:44:30.234Z
 tags:
   - facebook
 categories:
@@ -35,16 +35,10 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows [what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -55,9 +49,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  Learn [how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -66,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
@@ -85,9 +73,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -114,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
  If you're not sure whether you're addicted to social networks, try to remember the last time you went a full day without checking any social media accounts. Do you feel rejected if someone unfollows you? And if your favorite social networks completely disappeared tomorrow, would the absence make you feel empty and depressed?
@@ -132,14 +113,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  If you find that social media is having a negative impact on your life, stop using it. However, if you decide to stay, there are ways to waste less time on social media, and thus maintain a healthier relationship with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,8 +126,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-unwind-with-youtube-tricks-for-reducing-playback-velocity-49-chars-for-2024/"><u>[Updated] Unwind with YouTube Tricks for Reducing Playback Velocity (49 Chars) for 2024</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/acer-usb6/"><u>Acer USB存储设备恢复删除文件的秘密技巧：6个有效方法指南</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cing-act-tripod-use-for-stable-vlogging-for-2024/"><u>Balancing Act Tripod Use for Stable Vlogging for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-compassion-techs-5-million-aid-to-pandemic/"><u>Connecting Compassion: Tech's $5 Million Aid to Pandemic</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/deciding-between-ai-assistants-for-developers-chatgpt-versus-gemini-in-coding-abilities/"><u>Deciding Between AI Assistants for Developers: ChatGPT Versus Gemini in Coding Abilities</u></a></li>
+<li><a href="https://win11.techidaily.com/effective-strategies-to-rectify-windows-defender-engine-outage/"><u>Effective Strategies to Rectify Windows Defender Engine Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-factors-pre-deletion-reflections-for-a-social-media-break/"><u>Essential Factors: Pre-Deletion Reflections for a Social Media Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-future-of-advertising-with-reel-and-sticker-trials/"><u>Exploring the Future of Advertising with Reel & Sticker Trials</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/growth-excellence-in-valheim-optimal-seeds-unveiled-for-2024/"><u>Growth Excellence in Valheim Optimal Seeds Unveiled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reduce-targeted-ads-on-social-media/"><u>How to Reduce Targeted Ads on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-transform-your-online-nickname-on-facebook-effectively/"><u>How to Transform Your Online Nickname on Facebook Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-dwindling-threads-by-year-end-decision/"><u>Instagram's Dwindling Threads by Year-End Decision</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/overcoming-the-usb-connection-failure-top-strategies-for-fixing-unidentified-hardware-problems/"><u>Overcoming the USB Connection Failure - Top Strategies for Fixing Unidentified Hardware Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-brand-evolution-how-to-change-your-facebook-username/"><u>Personal Brand Evolution: How to Change Your Facebook Username</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/solucion-eficaz-para-problemas-de-copia-de-sectores-y-limitaciones-de-almacenamiento-utilizando-clonezilla/"><u>Solución Eficaz Para Problemas De Copia De Sectores Y Limitaciones De Almacenamiento Utilizando Clonezilla</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-honor-x50-gt-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Honor X50 GT with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistleblowers-report-fbs-suspected-prohibition-on-genuine-promos/"><u>Whistleblowers Report FB's Suspected Prohibition on Genuine Promos</u></a></li>
+</ul></div>
 

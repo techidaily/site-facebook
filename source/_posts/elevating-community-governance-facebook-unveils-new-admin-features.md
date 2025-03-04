@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2025-02-12T02:27:50.784Z
-updated: 2025-02-15T06:54:53.847Z
+date: 2025-02-25T17:46:49.769Z
+updated: 2025-03-04T18:10:28.828Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Launches New Admin Tools to Moderate Groups
 
  In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
@@ -36,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are Facebook's New Admin Tools?
 
  The most noticeable new tool is Facebook's AI-powered feature called "conflict alerts," which is currently in testing. The new feature will send group admins a notification when the AI detects "contentious or unhealthy conversations" in a group.
@@ -48,19 +40,11 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Facebook
 
  One new tool focuses on new members. Admins will have the ability to restrict new members from posting or commenting, although this is available for all other users too. Group admins can also decline promoted posts to stop unsolicited advertising in groups.
 
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
 
@@ -83,24 +67,19 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-diy-youtube-music-collection-a-comprehensive-online-and-app-method/"><u>[Updated] 2024 Approved DIY YouTube Music Collection A Comprehensive Online & App Method</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-art-of-assault-in-real-time-rivalry/"><u>[Updated] The Art of Assault in Real-Time Rivalry</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-10-prime-free-images-hosts-ensure-picture-longevity/"><u>2024 Approved 10 Prime Free Images Hosts, Ensure Picture Longevity</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-androids-best-top-ten-collage-creators/"><u>2024 Approved Android's Best Top-Ten Collage Creators</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/bisphosphonates-target-the-mevalonate-pathway-to-inhibit-osteoclast-function-while-denosumab-blocks-rankl-directly/"><u>Bisphosphonates Target the Mevalonate Pathway to Inhibit Osteoclast Function, While Denosumab Blocks RANKL Directly</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-wearable-tech-a-double-camera-smartwatch/"><u>Exploring Facebook's Wearable Tech: A Double-Camera Smartwatch?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Vivo S18 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/instagram-content-extractor-the-best-of-the-rest/"><u>Instagram Content Extractor The Best of the Rest</u></a></li>
-<li><a href="https://facebook.techidaily.com/live-the-game-fb-and-twt-collaborate-on-nbafeatures/"><u>Live the Game: FB & Twt Collaborate on NBAFeatures</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-your-fb-following-list/"><u>Navigating Your FB Following List</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-best-live-chat-apps-to-try-with-shopify-for-2024/"><u>New Best Live Chat Apps To Try With Shopify for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-new-oculus-quest-model-in-current-calendar/"><u>No New Oculus Quest Model in Current Calendar</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/premiere-pro-utilizing-lut-techniques/"><u>Premiere Pro Utilizing LUT Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/report-facebook-users-buying-300-oculus-rift-headsets-to-reset-hacked-accounts/"><u>Report: Facebook Users Buying $300 Oculus Rift Headsets to Reset Hacked Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/restore-your-feed-fixing-stuck-videos-on-facebook/"><u>Restore Your Feed: Fixing Stuck Videos on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/sony-buys-bungie-wardle-sells-wordle-facebook-quits-crypto-and-ebay-scams/"><u>Sony Buys Bungie, Wardle Sells Wordle, Facebook Quits Crypto, and eBay Scams</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/speak-like-a-londoner-or-scottish-lass/"><u>Speak Like a Londoner or Scottish Lass</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-choosing-effective-timeline-image-covers/"><u>The Art of Choosing Effective Timeline Image Covers</u></a></li>
-<li><a href="https://facebook.techidaily.com/whistleblower-exposes-hidden-facebook-truths/"><u>Whistleblower Exposes Hidden Facebook Truths</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-chaptered-cinema-the-essential-guide-to-vimeo-editing/"><u>[New] 2024 Approved Chaptered Cinema The Essential Guide to Vimeo Editing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-superior-selection-best-windows-videophone-apps-guide/"><u>[Updated] Superior Selection Best Windows Videophone Apps Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-samsung-galaxy-m34-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Samsung Galaxy M34 5G PC | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-we-blame-technology-for-personalized-marketing-prowess/"><u>Can We Blame Technology for Personalized Marketing Prowess?</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/como-transferir-su-sistema-operativo-de-hdd-a-ssd-en-windows-metodo-borrable/"><u>Cómo Transferir Su Sistema Operativo De HDD a SSD en Windows: Método BORRABLE</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-drivers-for-gigabyte-wb867d-motherboard-latest-version/"><u>Download Drivers for Gigabyte WB867D Motherboard - Latest Version</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/freeloading-without-breaking-your-budget-on-aes/"><u>Freeloading Without Breaking Your Budget on AEs</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-attract-candidates-posting-job-ads-on-facebook/"><u>How to Attract Candidates: Posting Job Ads on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-vivo-s18e-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Vivo S18e To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-enigma-understanding-vague-content-sharing/"><u>Social Media's Enigma - Understanding Vague Content Sharing</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-guide-to-solving-gta-n-online-functionality-errors/"><u>Step-by-Step Guide to Solving GTA N Online Functionality Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-smart-language-for-social-networking-success/"><u>The Ultimate Guide to SMART Language for Social Networking Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
 </ul></div>
 

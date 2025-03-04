@@ -1,7 +1,7 @@
 ---
 title: Facebook Adopts a Prompt for Informed, Thoughtful Sharing
-date: 2025-02-13T16:56:35.076Z
-updated: 2025-02-15T07:19:23.912Z
+date: 2025-02-27T20:11:00.121Z
+updated: 2025-03-04T17:44:42.456Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Prods Users to Read Before Sharing
 
  Facebook wants you to look past the headline, and actually read the news article you're about to share with your friends.
@@ -36,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Twitter Already Unveiled a Similar Prompt
 
  Facebook clearly took this prompt directly from Twitter's playbook. In September 2020,[Twitter launched a notification](https://www.makeuseof.com/twitter-encourages-to-read-before-retweeting/) that appears when users try to Retweet an article they didn't open. Surprisingly enough, Twitter saw some success with this feature—the prompt actually increased the likelihood of users reading the article before Retweeting it.
@@ -47,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  Twitter and Facebook have both been working to crack down on misinformation, with each employing similar measures to do so. The similarities in both platforms' responses became especially prominent amidst the COVID-19 pandemic.
 
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
 
@@ -73,24 +61,15 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-journey-to-digital-mastery-explore-best-10-android-drawing-apps/"><u>[New] 2024 Approved Journey to Digital Mastery Explore Best 10 Android Drawing Apps</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-window-wonders-how-to-capture-and-save-for-2024/"><u>[New] Window Wonders How to Capture & Save for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-from-silence-to-symphony-how-to-set-up-unique-ringtones-and-sounds-for-android/"><u>[Updated] 2024 Approved From Silence to Symphony How to Set Up Unique Ringtones & Sounds for Android</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/1-recupera-tus-contactos-de-microsoft-outlook-facilmente-con-estos-3-metodos-restauracion-desde-respaldo/"><u>1. Recupera Tus Contactos De Microsoft Outlook Fácilmente Con Estos 3 Métodos: Restauración Desde Respaldo</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-blades-high-dynamic-range-redefined-in-four-kaps/"><u>2024 Approved Blade's High Dynamic Range Redefined in Four Kaps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/a-step-by-step-guide-to-creating-unique-facebook-video-content/"><u>A Step-by-Step Guide to Creating Unique Facebook Video Content</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhance-everyday-living-with-these-9-power-moves-from-chatgpt/"><u>Enhance Everyday Living with These 9 Power Moves From ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-tweet-and-snap-the-new-frontiers-of-the-jb-strategy/"><u>Facebook, Tweet, and Snap: The New Frontiers of the JB Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-twitter-to-facebook-a-journey-toward-informed-sharing/"><u>From Twitter to Facebook: A Journey Toward Informed Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-manage-apps-and-websites-connected-to-your-facebook/"><u>How to Manage Apps and Websites Connected to Your Facebook</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/into-new-realities-the-emergence-and-explanation-of-metaverse-by-fb/"><u>Into New Realities: The Emergence and Explanation of Metaverse by FB</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/is-a-premium-chatgpt-experience-worth-the-extra-cost/"><u>Is a Premium ChatGPT Experience Worth the Extra Cost?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mind-over-feedback-the-top-10-reasons-to-escape-facebooks-clutches/"><u>Mind Over Feedback: The Top 10 Reasons to Escape Facebook's Clutches</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-gridlock-all-major-social-networks-down/"><u>Online Gridlock: All Major Social Networks Down</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-accountability-combating-covid-19-disinformation/"><u>Platform Accountability: Combating COVID-19 Disinformation</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-6-eco-friendly-affordable-4k-home-theaters-for-2024/"><u>Top 6 Eco-Friendly, Affordable 4K Home Theaters for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-still-photographs-into-diverse-textual-manifestations-facebook-ai/"><u>Transforming Still Photographs Into Diverse Textual Manifestations - Facebook AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-actual-user-drop-rates/"><u>Unveiling Facebook: Actual User Drop Rates?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-real-time-streaming-vs-recorded-videos-twitch-vs-youtube-showdown/"><u>[Updated] 2024 Approved Real-Time Streaming vs Recorded Videos Twitch vs YouTube Showdown</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-dynamic-display-and-distribution/"><u>[Updated] In 2024, Dynamic Display and Distribution</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-master-your-broadcast-top-obs-screencast-tools-explored/"><u>[Updated] In 2024, Master Your Broadcast Top OBS Screencast Tools Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-second-chance-trump-on-meta-platforms/"><u>A Second Chance: Trump on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-digital-employment-advertising/"><u>Best Practices in Digital Employment Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-ios-app-tracking-becomes-common-trend/"><u>Bypassing iOS App Tracking Becomes Common Trend</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/essential-steps-to-overcome-fb-video-transmission-failure-iosandroid-for-2024/"><u>Essential Steps to Overcome FB Video Transmission Failure (iOS/Android) for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/future-of-gaming-unveiled-top-consoles-to-watch/"><u>Future of Gaming Unveiled: Top Consoles to Watch</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-11-pro-drfone-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153085215-revelations-in-technology-youve-overlooked-top-4-must-have-knowledge/"><u>Revelations in Technology You've Overlooked - Top 4 Must-Have Knowledge</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "A Bold Bet on Content: Facebook's $5M Venture to Challenge Substack’s Writer Community"
-date: 2024-08-28T02:56:41.361Z
-updated: 2024-08-29T02:56:41.361Z
+date: 2025-03-02T17:19:55.010Z
+updated: 2025-03-04T18:36:49.210Z
 tags:
   - facebook
 categories:
@@ -39,14 +39,11 @@ thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822a
 
  Recently, Facebook clashed with the Australian government over whether it should be paying news outlets for content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -55,12 +52,24 @@ thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-unlock-the-power-of-online-interaction-essential-tips-for-successful-zoom-chats/"><u>[New] 2024 Approved Unlock the Power of Online Interaction Essential Tips for Successful Zoom Chats</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-discords-ultimate-selection-of-professional-emoji-makers/"><u>[New] In 2024, Discord's Ultimate Selection of Professional Emoji Makers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-top-20-hits-must-watch-tiktok-rappers-and-their-tracks-for-2024/"><u>[New] Top 20 Hits Must-Watch TikTok Rappers & Their Tracks for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-3-top-picks-of-voice-capture-apps-for-your-ipad/"><u>[Updated] In 2024, 3 Top Picks of Voice Capture Apps for Your iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-metaais-role-in-advancing-conversational-tech/"><u>Assessing MetaAI’s Role in Advancing Conversational Tech</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cinematic-journey-for-enhanced-communication-abilities/"><u>Cinematic Journey for Enhanced Communication Abilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-deeper-real-numbers-of-facebook-leavers/"><u>Delving Deeper: Real Numbers of Facebook Leavers</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-security-while-utilizing-connected-websites-and-apps-in-fb/"><u>Ensuring Security While Utilizing Connected Websites & Apps in FB</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/explore-the-comprehensive-flippdf-guide-and-tutorials-on-mac-your-ultimate-resource-at-flipbuildercom/"><u>Explore the Comprehensive FlipPDF Guide & Tutorials on Mac - Your Ultimate Resource at FlipBuilder.com</u></a></li>
+<li><a href="https://driver-install.techidaily.com/get-the-latest-netgear-a6210-driver-software-free-of-charge-for-enhanced-performance-on-windows-87-systems/"><u>Get the Latest Netgear A6210 Driver Software Free of Charge for Enhanced Performance on Windows 8/7 Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-autoplay-youtube-on-mobile-no-distractions/"><u>In 2024, AutoPlay YouTube on Mobile, No Distractions!</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-message-memorable-stylized-text-in-chats/"><u>Making Your Message Memorable: Stylized Text in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/precise-connections-curating-your-fb-circle/"><u>Precise Connections: Curating Your FB Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/scam-or-savvy-the-double-edged-sword-of-fb-cloning/"><u>Scam or Savvy? The Double-Edged Sword of FB Cloning</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/snapedit-a-beginners-guide-to-photo-mastery/"><u>Snapedit A Beginner's Guide to Photo Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-decoding-the-meanings-behind-key-smarts/"><u>The Language of Likes & Shares: Decoding the Meanings Behind Key SMARTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

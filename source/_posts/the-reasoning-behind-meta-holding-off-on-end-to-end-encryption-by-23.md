@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2025-02-09T02:34:19.434Z
-updated: 2025-02-14T23:28:25.429Z
+date: 2025-03-01T16:46:07.601Z
+updated: 2025-03-04T19:37:16.100Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Does Meta Want End-to-End Encryption?
 
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
 
@@ -43,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Related:[What Is End-to-End Encryption?](https://www.makeuseof.com/what-is-end-to-end-encryption/)
 
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
 
@@ -57,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Law enforcers in the US, Australia, and the UK have been urging Meta to ensure its E2EE plans would allow them to secretly read encrypted chats when necessary. Meta originally rejected the idea, but now seems willing to play ball with governments, which are determined not to be locked out.
 
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
 
@@ -85,17 +69,21 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/tep-into-successful-online-broadcasting-top-youtube-webcam-choices/"><u>[New] Step Into Successful Online Broadcasting Top YouTube Webcam Choices</u></a></li>
-<li><a href="https://win-answers.techidaily.com/common-fixes-to-stop-crashes-during-your-battles-in-samurai-warriors-5-on-desktop/"><u>Common Fixes to Stop Crashes During Your Battles in Samurai Warriors #5 on Desktop</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722958139228-get-your-free-focusrite-scarlett-18i20-drivers-for-pc-download-now/"><u>Get Your Free Focusrite Scarlett 18I20 Drivers for PC - Download Now!</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo V27? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-photobooks-creating-collages-for-social-sharing/"><u>Mastering Photobooks: Creating Collages for Social Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-digital-landscapes-smart-use-of-facebooks-timers/"><u>Navigating Digital Landscapes: Smart Use of Facebook’s Timers</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-name-change-process-in-the-social-sphere-of-fb/"><u>Navigating the Name Change Process in the Social Sphere of FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/reduce-user-specific-promotional-messages-online/"><u>Reduce User-Specific Promotional Messages Online</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/should-you-upgrade-to-iphone-16-pro-or-stick-with-iphone-e-14-a-comprehensive-review/"><u>Should You Upgrade to iPhone 16 Pro or Stick with iPhone E-14? A Comprehensive Review</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-fixes-for-xinput13dll-error-on-your-pc/"><u>Step-by-Step Fixes for xinput1_3.dll Error on Your PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-lies-beneath-your-facebook-timeline/"><u>What Lies Beneath Your Facebook Timeline?</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/zooming-out-your-guide-to-flawless-borders-for-2024/"><u>Zooming Out Your Guide to Flawless Borders for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-infuse-personality-into-your-content-with-custom-thumbnails/"><u>[New] 2024 Approved Infuse Personality Into Your Content with Custom Thumbnails</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-how-to-fix-logitech-mouse-scroll-wheel-not-working/"><u>[Solved] How to Fix Logitech Mouse Scroll Wheel Not Working</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-first-step-in-vlogging-tools-you-need/"><u>[Updated] 2024 Approved The First Step in Vlogging Tools You Need</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-games-and-networks-social-integration-on-xbox/"><u>Bridging Games and Networks: Social Integration on Xbox</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/doppelbildungsproblem-mit-usb-sticks-versteckte-grunde-and-einfach-losungen/"><u>Doppelbildungsproblem Mit USB-Sticks - Versteckte Gründe & Einfach Lösungen</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/elevate-your-entertainment-room-with-the-expanded-array-of-tcls-q-and-s-series-smart-televisions-now-boasting-19-refined-options/"><u>Elevate Your Entertainment Room With the Expanded Array of TCL's Q and S Series Smart Televisions, Now Boasting 19 Refined Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-foundation-for-healthy-fb-group-interactions/"><u>Establishing Foundation for Healthy FB Group Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cracks-down-new-penalties-against-misinforming-users/"><u>Facebook Cracks Down: New Penalties Against Misinforming Users</u></a></li>
+<li><a href="https://win-forum.techidaily.com/free-online-converter-change-mp4-videos-to-gif-format-using-movavi/"><u>Free Online Converter: Change MP4 Videos to GIF Format Using Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebooks-chat-works-behind-scenes/"><u>How Facebook's Chat Works Behind Scenes</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-iphone-6s-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling iPhone 6s Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-nubia-red-magic-9-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-pro-to-max-the-transformative-journey-of-apples-macbook-chips/"><u>In 2024, From Pro to Max The Transformative Journey of Apple’s MacBook Chips</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-subtleties-of-fb-icons-effectively/"><u>Interpreting the Subtleties of FB Icons Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-debunking-facebook-beliefs/"><u>Separating Fact From Fiction: Debunking Facebook Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-stellar-performance-amidst-a-social-media-pause/"><u>Telegram's Stellar Performance Amidst a Social Media Pause</u></a></li>
 </ul></div>
 

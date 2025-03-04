@@ -1,7 +1,7 @@
 ---
 title: Reach for Spotify Anywhere, Even the Miniplayer!
-date: 2024-08-28T02:56:56.472Z
-updated: 2024-08-29T02:56:56.472Z
+date: 2025-03-03T18:39:57.438Z
+updated: 2025-03-04T17:59:18.568Z
 tags:
   - facebook
 categories:
@@ -55,23 +55,17 @@ Close
 
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## More Audio Features Are Coming Soon
 
  To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-grasping-av1-starters-guidebook/"><u>[Updated] In 2024, Grasping AV1 Starter's Guidebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-hero5-vs-yi-evaluating-cutting-edge-cameras/"><u>[Updated] In 2024, Hero5 Vs. YI Evaluating Cutting-Edge Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-discovering-6-distinct-icon-and-logo-providers/"><u>2024 Approved Discovering 6 Distinct Icon and Logo Providers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-y200e-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo Y200e 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/friends-across-platforms-embodying-your-social-media-self-on-whatsapp/"><u>Friends Across Platforms: Embodying Your Social Media Self on WhatsApp</u></a></li>
+<li><a href="https://techidaily.com/samsung-galaxy-a25-5g-won-t-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Samsung Galaxy A25 5G won’t play AVCHD .mts files</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/tango-app-review-premium-communication-features-available-gratis/"><u>Tango App Review: Premium Communication Features Available Gratis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-essential-guide-to-zooming-with-gmail-emails-professionally-for-2024/"><u>The Essential Guide to Zooming with Gmail Emails Professionally for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-guide-top-5-ways-to-record-audio-in-windows-11/"><u>The Ultimate Guide Top 5 Ways to Record Audio in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/thorough-assessment-of-the-kootek-portable-air-blower-ideal-for-any-laptop/"><u>Thorough Assessment of the Kootek Portable Air Blower: Ideal for Any Laptop!</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-a-tool-against-piracy/"><u>Understanding PhotoDNA: A Tool Against Piracy</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150126533-unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-digital-hangout-vote-here/"><u>Your Ultimate Digital Hangout - Vote Here</u></a></li>
+</ul></div>
 

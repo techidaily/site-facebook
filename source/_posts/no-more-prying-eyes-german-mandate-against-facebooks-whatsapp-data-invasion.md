@@ -1,7 +1,7 @@
 ---
 title: "No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion"
-date: 2025-02-14T03:14:32.535Z
-updated: 2025-02-15T05:51:17.886Z
+date: 2025-02-27T19:44:36.526Z
+updated: 2025-03-04T16:51:38.353Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Germany Bans Facebook From Collecting WhatsApp Data
 
  Johannes Caspar, the head of the Hamburg privacy authority, led the new action against Facebook. The body has ruled that forcing users to accept additional data collection in WhatsApp's new privacy policy is unlawful.
@@ -42,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Where Does Facebook Go From Here?
 
  Facebook already delayed the rollout of WhatsApp's new privacy policy after an online backlash against it. With the policy once again being called into question, perhaps it would be wise for Facebook to reconsider WhatsApp's new privacy policy.
@@ -55,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  However, in an email statement, WhatsApp called Caspar's claims "wrong", and made it clear that the ban won't stop the rollout of the new privacy policy. Continuing, the platform said that the actions the German regulator is taking are "based on a fundamental misunderstanding" of the purpose of the new policy.
 
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
 
@@ -81,19 +69,24 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-essential-tips-for-vimeo-video-logging/"><u>[Updated] 2024 Approved Essential Tips for Vimeo Video Logging</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mastering-macs-green-screen-fix-for-youtube-videos/"><u>[Updated] 2024 Approved Mastering Mac's Green Screen Fix for YouTube Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-ultimate-guide-to-thriving-amidst-the-world-of-podcasts/"><u>[Updated] The Ultimate Guide to Thriving Amidst the World of Podcasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-slovak-master-speech-minutes-not-hours/"><u>Daily Dose of Slovak - Master Speech, Minutes Not Hours</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fix-missing-gsl-errors-a-guide-to-repairing-gdxtools360dll-issues/"><u>Fix Missing GSL Errors: A Guide to Repairing gdxtools360.dll Issues</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mastering-virtual-meetings-expert-tips-for-using-zoom-win10/"><u>Mastering Virtual Meetings Expert Tips for Using Zoom (Win10)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/mastering-windows-pc-live-tv-recording-tips-and-tricks/"><u>Mastering Windows PC Live TV Recording Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/most-promising-places-for-finding-freelance-jobs/"><u>Most Promising Places for Finding Freelance Jobs</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-exit-strategy-pre-delete-protocols-for-fb/"><u>Social Media Exit Strategy: Pre-Delete Protocols for FB</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-setting-up-the-newsmaxtv-plugin-on-your-android-tv-and-streaming-gadgets/"><u>Step-by-Step Guide: Setting Up the NewsmaxTV Plugin on Your Android TV & Streaming Gadgets</u></a></li>
-<li><a href="https://facebook.techidaily.com/surreptitious-gadgets-exploring-facebooks-smartwatch-development/"><u>Surreptitious Gadgets: Exploring Facebook's Smartwatch Development</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-growing-distrust-of-ios-tracking-features/"><u>The Growing Distrust of iOS Tracking Features</u></a></li>
-<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-nubia-red-magic-9-pro-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Nubia Red Magic 9 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-our-observed-world-economy/"><u>Understanding Our Observed World Economy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-list-makeup-tutorials-who-to-watch/"><u>[New] 2024 Approved A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-guide-to-mastering-asmr-experience/"><u>[Updated] Essential Guide to Mastering ASMR Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-innovative-uses-of-facebook-in-modern-project-coordination/"><u>8 Innovative Uses of Facebook in Modern Project Coordination</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/a-beginners-path-to-creating-engaging-fb-covers-for-2024/"><u>A Beginner’s Path to Creating Engaging FB Covers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-bold-bet-on-content-facebooks-5m-venture-to-challenge-substacks-writer-community/"><u>A Bold Bet on Content: Facebook's $5M Venture to Challenge Substack’s Writer Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-digital-wellness-utilize-facebooks-break-timer/"><u>Achieving Digital Wellness: Utilize Facebook’s Break Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-your-fb-birthdate-step-by-step-guide/"><u>Adjusting Your FB Birthdate: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-gap-image-descriptions-on-social-networking-sites/"><u>Bridging the Gap: Image Descriptions on Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/career-boosting-effective-social-networking-techniques/"><u>Career Boosting: Effective Social Networking Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/counteract-facebook-account-compromise-with-these-steps/"><u>Counteract Facebook Account Compromise with These Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-commentary-for-online-communities/"><u>Covert Commentary for Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-the-ideal-fb-avatar/"><u>Crafting the Ideal FB Avatar</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descargando-videos-hd-4k-o/"><u>Descargando Videos HD, 4K O</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effortless-entertainment-setup-your-guide-to-watching-hulu-on-an-lg-smart-screen/"><u>Effortless Entertainment Setup: Your Guide to Watching Hulu on an LG Smart Screen</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/googles-ai-gemini-exposed-scope-functions-and-progress/"><u>Google's AI Gemini Exposed: Scope, Functions & Progress</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/1719360178726-navigate-and-rectify-common-errors-using-snip-and-sketch-on-windows/"><u>Navigate and Rectify Common Errors Using Snip & Sketch on Windows</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-reno-10-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Reno 10 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-player-couldnt-find-any-sources-to-play-on-your-windows-pc/"><u>Resolve 'Player Couldn’t Find Any Sources to Play' On Your Windows PC</u></a></li>
 </ul></div>
 

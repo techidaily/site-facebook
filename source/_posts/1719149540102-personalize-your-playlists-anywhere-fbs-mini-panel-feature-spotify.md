@@ -1,7 +1,7 @@
 ---
 title: Personalize Your Playlists Anywhere - FB's Mini-Panel Feature, Spotify!
-date: 2024-08-28T02:59:12.093Z
-updated: 2024-08-29T02:59:12.093Z
+date: 2025-02-26T16:25:50.989Z
+updated: 2025-03-04T19:11:39.535Z
 tags:
   - facebook
 categories:
@@ -55,23 +55,17 @@ Close
 
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## More Audio Features Are Coming Soon
 
  To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-hub.techidaily.com/dvd-no19/"><u>邦画・洋画全部投入! DVDコピーソフトの新時代: 実力No1ランキングトップ9</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/apple-iphone-14-icloud-activation-lock-bypass-by-drfone-ios/"><u>Apple iPhone 14 iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-clampdown-on-big-tech-understanding-us-antitrust-measures/"><u>Assessing the Clampdown on Big Tech: Understanding U.S. Antitrust Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-the-copycat-con-artists-on-facebook/"><u>Beware the Copycat Con Artists on Facebook</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/boosting-surface-pro-capacity-without-breaking-the-bank-effortless-storage-expansion-in-just-7-steps-tech-savvy-wallet/"><u>Boosting Surface Pro Capacity Without Breaking the Bank: Effortless Storage Expansion in Just 7 Steps | Tech Savvy Wallet</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-world-of-ray-ban-stories-through-facebook/"><u>Discovering the World of Ray-Ban Stories Through Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/explore-best-selections-for-youtube-ringtone-downloads-for-2024/"><u>Explore Best Selections for YouTube Ringtone Downloads for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151494245-favorite-social-hub-share-your-choice/"><u>Favorite Social Hub: Share Your Choice!</u></a></li>
+<li><a href="https://facebook.techidaily.com/feedback-for-the-future-how-does-news-impact-you-on-facebook/"><u>Feedback for the Future: How Does News Impact You on Facebook?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/how-to-edit-wmv-video-files-without-cost-a-guide-to-free-online-and-offline-tools/"><u>How to Edit WMV Video Files Without Cost: A Guide to Free Online and Offline Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/intertwining-dimensions-what-is-the-metaverse/"><u>Intertwining Dimensions: What Is the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-member-overlooked-the-art-of-group-recognition-in-social-media/"><u>No Member Overlooked: The Art of Group Recognition in Social Media</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/stopping-games-from-pop-up-on-your-win11-screen/"><u>Stopping Games From Pop-Up on Your Win11 Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-better-business-connections-linkedin-vs-facebook/"><u>The Battle for Better Business Connections: LinkedIn Vs. Facebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transformer-un-fichier-3gp-a-laide-de-movavi-conversion-gratuite-sur-le-web/"><u>Transformer Un Fichier 3GP À L'aide De Movavi - Conversion Gratuite Sur Le Web</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unlock-optimal-performance-with-these-key-tricks/"><u>Unlock Optimal Performance with These Key Tricks</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2025-02-10T21:45:29.759Z
-updated: 2025-02-14T18:36:32.538Z
+date: 2025-03-03T20:46:12.765Z
+updated: 2025-03-04T21:02:02.829Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
 ## How to Make Italic Text in Messenger
@@ -54,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
@@ -66,27 +58,15 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
  Most texts you'll see online will have proportional spacing—where each character occupies only as much width as it needs. Monospaced text has each character occupying the same amount of space.
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -121,21 +101,20 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-screen-recording-for-snapchat-stories-on-mobile-for-2024/"><u>[New] Step-by-Step Screen Recording for Snapchat Stories on Mobile for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-transforming-brands-with-language-mastery-techniques/"><u>[New] Transforming Brands with Language Mastery Techniques</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-build-a-fortified-mc-base-plan-6-10/"><u>[Updated] 2024 Approved Build a Fortified MC Base Plan #6-10</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-thrifty-fliers-list-best-drones-for-the-price-point-for-2024/"><u>[Updated] Thrifty Flier's List Best Drones for the Price Point for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-transforms-the-top-six-advantages-of-its-envisioned-metaverse/"><u>Facebook Transforms: The Top Six Advantages of Its Envisioned Metaverse</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-f34-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy F34 5G Phone?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the iPhone 12 mini Without Previous Owner?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-insta-magic-rotation-elevate-your-video-game/"><u>In 2024, Insta-Magic Rotation Elevate Your Video Game</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-motorola-moto-e13-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Motorola Moto E13 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://network-issues.techidaily.com/lenovos-lackluster-display-no-more/"><u>Lenovo's Lackluster Display No More</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-policies-on-display-in-new-facebook-governance-center/"><u>Platform Policies on Display in New Facebook Governance Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/preserving-or-purging-managing-late-family-members-on-fb/"><u>Preserving or Purging: Managing Late Family Members on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/recognizing-teen-behavior-on-online-platforms-facebook/"><u>Recognizing Teen Behavior on Online Platforms, Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-duplicate-personalities-on-social-media/"><u>Spotting Duplicate Personalities on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-altered-significance-in-facebooks-recent-pages-updates/"><u>Understanding the Altered Significance in Facebook's Recent Pages Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/will-future-self-edit-past-blogs/"><u>Will Future Self Edit Past Blogs?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-seven-finest-stardew-valley-customizations-unveiled/"><u>[New] The Seven Finest Stardew Valley Customizations Unveiled</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-effortless-access-download-tactics-for-live-social-feeds-for-2024/"><u>[Updated] Effortless Access Download Tactics for Live Social Feeds for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-picturemosaic-maker-blend-videos-and-pics-macos/"><u>[Updated] In 2024, PictureMosaic Maker Blend Videos & Pics macOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-digital-universe-understanding-and-evaluating-facebooks-metaverse/"><u>A New Digital Universe: Understanding and Evaluating Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-telegrams-sudden-spurt-amidst-social-media-crisis/"><u>Analyzing Telegram’s Sudden Spurt Amidst Social Media Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-sheryl-sandberg-effect-at-facebook/"><u>Analyzing the Sheryl Sandberg Effect at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/capitalisms-newest-frontier-monitoring-markets/"><u>Capitalism's Newest Frontier: Monitoring Markets</u></a></li>
+<li><a href="https://facebook.techidaily.com/cease-all-mass-notification-on-facebook/"><u>Cease All Mass Notification on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-course-top-podcasts-reviewed-and-analyzed-for-22/"><u>Charting the Course: Top Podcasts Reviewed & Analyzed for '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/covid-disinformation-the-12-influencer-connection/"><u>Covid Disinformation: The 12 Influencer Connection</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/easily-upgrade-to-directx-on-windows-11-and-10-swift-and-straightforward-download-process/"><u>Easily Upgrade to DirectX on Windows 11 & 10: Swift and Straightforward Download Process</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-itel-p40plus-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Itel P40+ Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-correct-semaphore-timeout-issue-error-0x80l0079/"><u>How to Troubleshoot and Correct Semaphore Timeout Issue (Error 0X80L0079)</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-common-problems-with-the-logitech-g-pro-x-microphone/"><u>Solve Common Problems with the Logitech G PRO X Microphone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
 </ul></div>
 

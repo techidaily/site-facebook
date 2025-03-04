@@ -1,7 +1,7 @@
 ---
 title: Ending Facial ID at Meta, But Why? Uncover The Story
-date: 2024-08-28T02:59:10.896Z
-updated: 2024-08-29T02:59:10.896Z
+date: 2025-02-27T19:01:33.447Z
+updated: 2025-03-04T16:24:03.776Z
 tags:
   - facebook
 categories:
@@ -51,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
  Meta is not abandoning facial recognition. It will continue to use it, but under a narrower set of circumstances.
@@ -64,14 +61,11 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,18 @@ thumbnail: https://thmb.techidaily.com/4c1b7ae799c3eb4ebbe55615e8284400f0c118d4f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-unexpected-video-pitch-flipped-images-on-instagram/"><u>[New] In 2024, Unexpected Video Pitch Flipped Images on Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ro-video-essentials-the-finest-portable-laptop-brands-for-2024/"><u>[New] Pro Video Essentials The Finest Portable Laptop Brands for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-accessing-the-ultimate-10-lists-of-vector-pics-sites/"><u>[Updated] 2024 Approved Accessing the Ultimate 10 Lists of Vector Pics Sites</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-review-updated-lg-360-camera-specs-and-usage/"><u>[Updated] The Ultimate Review Updated LG 360 Camera Specs & Usage</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-content-discovery-the-tubebuddy-way-for-2024/"><u>Elevate Content Discovery The TubeBuddy Way for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-commits-5-million-in-support-of-pandemic-efforts/"><u>Facebook Commits $5 Million in Support of Pandemic Efforts</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-issue-of-sticky-keyboard-buttons-in-windows-a-comprehensive-guide/"><u>Fixing the Issue of Sticky Keyboard Buttons in Windows: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/making-memorable-impressions-with-fb-slideshow-features-for-2024/"><u>Making Memorable Impressions with FB Slideshow Features for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-relationship-timelines-on-fb/"><u>Navigating Relationship Timelines on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-fair-competition-separating-tech-titans/"><u>The Battle for Fair Competition: Separating Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-culprits-behind-chat-and-social-outages/"><u>The Invisible Culprits Behind Chat and Social Outages</u></a></li>
+</ul></div>
 

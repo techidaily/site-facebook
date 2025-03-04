@@ -1,7 +1,7 @@
 ---
 title: "Alternatives to Messenger: No Social Media Required"
-date: 2024-08-28T02:54:08.899Z
-updated: 2024-08-29T02:54:08.899Z
+date: 2025-03-01T20:29:04.078Z
+updated: 2025-03-04T18:59:01.881Z
 tags:
   - facebook
 categories:
@@ -45,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/b9ef13db0d4015b8f432338d38cc3c79dffc2187f
 
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Download Messenger Without an Active Facebook Account
 
  Things used to be simpler. The process of using Facebook Messenger without having Facebook itself was easy: you could sign up using your phone number. Sorted. But Facebook quietly phased this option out in 2019, so now, you have to have a Facebook account. But don't panic: you can work around this.
@@ -58,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/b9ef13db0d4015b8f432338d38cc3c79dffc2187f
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 Next, you need to know how to sign up for Messenger.
 
  When you open the app for the first time, it will encourage you to log into a Facebook account using either your email address or phone number. Instead, click on**Create New Account** . This will redirect you into creating a Facebook account.
@@ -69,9 +63,6 @@ Next, you need to know how to sign up for Messenger.
 
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up Messenger Without an Active Facebook Account
 
  After you activate your account, there are still a few settings to finalize so that you can take full advantage of the app.
@@ -92,10 +83,6 @@ Next, you need to know how to sign up for Messenger.
 
 ![how to delete or deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Deactivate-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  Don't make this decision lightly. Before you begin the process, you need to know what it means when you [deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
  In a nutshell, deactivating Facebook still allows you time to think about whether you want to permanently delete your account (as your data is still stored, ready for reactivation). It also means Messenger will continue to work. When you deactivate Facebook, you should be asked if you want to continue using Messenger.
@@ -108,9 +95,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  You'll see your two options with warnings about what happens when you follow either method. Select**Deactivate account** so you can still use Messenger on your smartphone.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can I Use Messenger Without Facebook on my PC?
 
  Sadly, you can only use Messenger via your browser if you've got an active Facebook account.
@@ -119,23 +103,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  If you're concerned about too many people finding you,[you can toggle your privacy settings](https://www.makeuseof.com/how-to-manage-facebook-privacy-settings-for-specific-posts/) . And if you're troubled by the amount of data Facebook can find out about you, you really need to limit what goes onto your Facebook page, including who can actually post to it and tag you in status updates or photos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## And That's How You Can Download Messenger Without Using Facebook
 
  The apps are intrinsically tied to each other, so you can't actually use Messenger without a Facebook account anymore. That doesn't mean the latter has to be**active** , though.
 
  Nonetheless, because this little loophole allows you to carry on using Messenger even after deactivating your main Facebook profile, it's not the end of the world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,8 +122,19 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-unleash-your-inner-videographer-with-these-4-methods-on-xbox-for-2024/"><u>[Updated] Unleash Your Inner Videographer with These 4 Methods on Xbox for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/easy-steps-to-recover-and-reset-your-email-password-with-two-factor-authentication-in-gmail/"><u>Easy Steps to Recover and Reset Your Email Password with Two-Factor Authentication in Gmail</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-functionality-of-facebook-portal-for-virtual-meetups/"><u>Exploring the Functionality of Facebook Portal for Virtual Meetups</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-defiance-why-it-wont-go-dead/"><u>Facebook's Defiance: Why It Won't Go 'Dead'</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/funnyface-creator/"><u>FunnyFace Creator</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-locate-people-youve-shut-out-of-your-fb-life/"><u>How To Locate People You’ve Shut Out of Your FB Life</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-6s-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonic-starting-points-10-song-picks-for-engaging-podcast-openers/"><u>In 2024, Harmonic Starting Points 10 Song Picks for Engaging Podcast Openers</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-virtual-world-be-selective-dont-accept-everyone/"><u>Safeguarding Your Virtual World: Be Selective, Don't Accept Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-demystified-utilizing-facebooks-transparency-hub-features/"><u>Social Media Demystified: Utilizing Facebook's Transparency Hub Features</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-art-of-crafting-superior-srt-documents-for-2024/"><u>The Art of Crafting Superior SRT Documents for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-techniques-for-an-eye-catching-cursor-on-windows/"><u>Unveiling Techniques for an Eye-Catching Cursor on Windows</u></a></li>
+</ul></div>
 

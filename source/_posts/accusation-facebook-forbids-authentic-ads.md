@@ -1,7 +1,7 @@
 ---
 title: "Accusation: Facebook Forbids Authentic Ads"
-date: 2024-08-28T02:55:45.060Z
-updated: 2024-08-29T02:55:45.060Z
+date: 2025-02-28T17:50:05.054Z
+updated: 2025-03-04T16:50:57.216Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,6 @@ Facebook responded with the following statement to the media:
 
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -50,9 +47,6 @@ Facebook responded with the following statement to the media:
 
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
  Signal wrapped it up nicely with the following passage in its blog post:
@@ -63,14 +57,11 @@ Facebook responded with the following statement to the media:
 
  Signal is a secure messaging app that uses end-to-end encryption, vanishing messages, and other features to prevent eavesdropping. While not as popular as WhatsApp or Viber, Signal saw a sudden surge in popularity following Facebook's controversial privacy policy update on WhatsApp which drove some WhatsApp users away from that platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,8 +70,19 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-behind-the-scenes-mastering-cinematic-techniques-in-24/"><u>[New] Behind the Scenes Mastering Cinematic Techniques in '24</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-inside-the-world-of-zdsoft-video-capturing/"><u>[New] In 2024, Inside the World of ZDSoft Video Capturing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-undercover-audio-gems-top-6-non-public-mobile-voice-capturers/"><u>[New] In 2024, Undercover Audio Gems Top 6 Non-Public Mobile Voice Capturers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210297891-9781645593300-a-quote-of-evidence/"><u>A Quote of Evidence | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-the-too-many-different-cell-formats-error-in-excel-2013-by-stellar-guide/"><u>Fix the Too many different cell formats Error in Excel 2013?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-eliminating-online-track-record-on-facebook/"><u>Master the Art of Eliminating Online Track Record on Facebook</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/mp4-videos-wiederfinden-lerne-verlorene-mp4-dateien-leicht-wiederherzustellen/"><u>MP4 Videos Wiederfinden? Lerne, Verlorene MP4-Dateien Leicht Wiederherzustellen</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-echo-chambranle-how-networking-unites-people/"><u>Online Echo Chambranle: How Networking Unites People</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-relief-7-ways-to-ease-the-overload/"><u>Social Media Relief: 7 Ways to Ease the Overload</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-windows-ms-office-erase-error-code-0x80041015/"><u>Unlocking Windows MS Office: Erase Error Code 0X80041015</u></a></li>
+</ul></div>
 

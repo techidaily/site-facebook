@@ -1,7 +1,7 @@
 ---
 title: A Different Day Without Daily Updates on FB
-date: 2024-08-28T02:55:25.276Z
-updated: 2024-08-29T02:55:25.276Z
+date: 2025-02-25T19:20:36.893Z
+updated: 2025-03-04T16:36:23.262Z
 tags:
   - facebook
 categories:
@@ -45,18 +45,12 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
 
  How do you make sure your deactivated Facebook profile disappears? Try a simple search, either through a friend's profile or using Google. The former is a better option; otherwise, it could take a lot of time scouring results featuring others with the same name as you. This should tell you if others can still find you, even after deactivating your account.
 
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can [complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Do My Comments Disappear if I Deactivate Facebook?
 
  If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
@@ -79,27 +73,12 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
 ![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
  So how do you know if someone has blocked you on Facebook or deactivated their account?
 
  Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
 
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can I Still Use Messenger Without Facebook?
 
  You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
@@ -112,18 +91,12 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
  So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## Can People See My Messages if I Deactivate Facebook?
 
  Yes, you can still use Messenger, so it follows that your messages will appear after deactivating your account. In fact, when you press "Send," as long as you have internet access, the message will go straight to the recipient's inbox.
 
  However, if you delete Facebook, your previous messages will read "Facebook User". The recipient won't be able to respond. Incidentally, this is the same thing that happens if you block someone.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Can You Reactivate a Facebook Account?
 
  If you've deactivated your Facebook account, all you need to do is log back in to reactivate it. You can change your password if you've forgotten it. Your profile still exists, as does your personal information. Previous messages and comments typically re-appear too.
@@ -152,14 +125,11 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,8 +138,24 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-win-and-mac-users-rejoice-with-our-top-8-subtitles-to-srtr-converter-tools/"><u>[New] Win & Mac Users, Rejoice with Our Top 8 Subtitles-to-SRTR Converter Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/avchd-on-samsung-galaxy-s23-fe-convert-mts-for-samsung-galaxy-s23-fe-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD on Samsung Galaxy S23 FE-convert MTS for Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recognize-and-stop-facebook-fraudsters/"><u>How to Recognize and Stop Facebook Fraudsters</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-iphone-layout-artistry/"><u>In 2024, Mastering iPhone Layout Artistry</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-optimal-energy-kits-for-gopro-hero5-genuine-and-third-party-brands/"><u>In 2024, Optimal Energy Kits for GoPro Hero5 – Genuine and Third-Party Brands</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-the-sleek-and-powerful-valkyrie-al125-cpu-cooling-solution-crisp-ips-display-dazzling-rgb-light-effects-all-for-less-than-twenty-bucks/"><u>Introducing the Sleek and Powerful Valkyrie AL125 CPU Cooling Solution: Crisp IPS Display, Dazzling RGB Light Effects, All for Less than Twenty Bucks!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-mourning-disconnecting-your-fb-commerce-profile/"><u>Mastery of Mourning: Disconnecting Your FB Commerce Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-center-highlighting-facebooks-commitment-to-policy-clarity/"><u>New Center Highlighting Facebook's Commitment to Policy Clarity</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/procedures-de-recouvrance-pour-les-fichiers-audiovideo-et-images-delestes-sur-un-support-formate/"><u>Procédures De Recouvrance Pour Les Fichiers Audio/Vidéo Et Images Délestés Sur Un Support Formaté</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-spread-conversation-wings-add-friends-on-facebook-messenger/"><u>Swiftly Spread Conversation Wings: Add Friends on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-scene-top-tips-for-a-personalized-fb-experience/"><u>Tailoring Your Social Scene: Top Tips for a Personalized FB Experience</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-when-events-are-not-visible-on-iphone-calendar/"><u>Troubleshooting Tips When Events Are Not Visible on iPhone Calendar</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-metas-updated-approach-to-user-privacy/"><u>Unraveling Meta's Updated Approach to User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
+</ul></div>
 

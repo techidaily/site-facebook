@@ -1,7 +1,7 @@
 ---
 title: New Methods for Logging Into Facebook Without Codes
-date: 2025-02-14T08:04:09.125Z
-updated: 2025-02-14T18:47:33.443Z
+date: 2025-03-01T19:13:12.897Z
+updated: 2025-03-04T17:21:10.188Z
 tags:
   - facebook
 categories:
@@ -40,19 +40,11 @@ You can obtain a Facebook login code in three different ways:
 
  Beyond codes, you can create a physical second-factor security key to log into Facebook through USB or NFC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lost Access to Code Generator or Your Authentication Tool?
 
  Code Generator used to be a convenient way to access two-factor authentication codes without a mobile number. While you may still see its remnants in the mobile app, Facebook has recently retired Code Generator.
 
  When you've set up your phone to be the key to your Facebook account, losing or breaking it could be a problem. Here's what you can do in the event that you lose access to Code Generator or your third-party authentication tool.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Let Facebook Text You a Confirmation Code
 
@@ -63,10 +55,6 @@ You can obtain a Facebook login code in three different ways:
  From the screen asking you for the login code, select**Need another way to authenticate?** (bottom left), then click**Text me a login code** , and wait for the text to come in. You can also let Facebook call you.
 
 ![Facebook Two-Factor Authentication Required screen upon trying to log in.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Required.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Use a Saved Recovery Code
 
@@ -96,10 +84,6 @@ You can obtain a Facebook login code in three different ways:
 
 ![Confirm your identity using an email address or ID.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Confirm-Your-Identity.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can also access the above recovery route through any browser, on desktop or mobile. Go to[m.facebook.com](http://m.facebook.com) and log into your account using your mobile number, email, or username and password. When prompted for the login code, click **Having trouble? > I don't have my phone > Continue** .
 
 ![Facebook Can't Get Your Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Cant-Get-Your-Code.jpg)
@@ -110,19 +94,11 @@ You can obtain a Facebook login code in three different ways:
 
  Did you manage to log back into Facebook? Remember to save recovery codes, set up a new authentication app, and update your other recovery options.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Back on Facebook, But Lost Your Mobile Device?
 
  To prevent access to your Facebook account from a lost phone or laptop, terminate the app's Facebook session. Head to Facebook's[Accounts Center](https://accountscenter.facebook.com/?entry%5Fpoint=app%5Fsettings) , under**Password and security** select**Where you're logged in** , choose your account, and log yourself out of your lost phone.
 
 ![Facebook Accounts Center Where You're Logged In Logging Out](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-accounts-center-where-you-re-logged-in-logging-out.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  At this point, you should**Remove** the number of the lost phone and update your Facebook password to be safe.
 
@@ -151,15 +127,20 @@ You can obtain a Facebook login code in three different ways:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-livestreaming-sovereigns-clash/"><u>[New] 2024 Approved LiveStreaming Sovereigns Clash</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-effortless-youtube-content-crafting-10-basic-video-ideas-for-all-for-2024/"><u>[New] Effortless YouTube Content Crafting 10 Basic Video Ideas for All for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-idea-to-income-metrics-and-money-making-magic-with-creator-reels/"><u>From Idea to Income: Metrics and Money-Making Magic with Creator Reels</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-nokia-c12-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Nokia C12 Pro to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/lost-in-social-media-triggers-for-fb-ban/"><u>Lost in Social Media: Triggers for FB Ban</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/professionals-choice-best-top-10-4k-monitors-for-2024/"><u>Professional's Choice Best Top 10 4K Monitors for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-status-symbol-purchased-verified-badge/"><u>Secure Status Symbol: Purchased Verified Badge</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-severe-application-crashes-windows-11-solution-unveiled/"><u>Troubleshooting Severe Application Crashes - Windows 11 Solution Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleash-potential-best-budget-apps-to-manage-social-sites/"><u>Unleash Potential - Best Budget Apps to Manage Social Sites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-close-up-filmmaking-zooming-into-details/"><u>[Updated] Close-Up Filmmaking Zooming Into Details</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unmasking-phony-fans-in-social-media/"><u>[Updated] Unmasking Phony Fans in Social Media</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-thriving-on-youtube-the-guide-to-affiliates/"><u>2024 Approved Thriving on YouTube The Guide to Affiliates</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-public-friend-access-to-profile/"><u>Adjusting Public Friend Access to Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-and-facebook-charting-two-unrelated-futures/"><u>Apple and Facebook: Charting Two Unrelated Futures</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-online-presence-with-privacy-a-pre-deletion-guide/"><u>Balancing Online Presence with Privacy: A Pre-Deletion Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-gain-foothold-with-instagram-and-facebook-ad-integrations/"><u>Brands Gain Foothold with Instagram and Facebook Ad Integrations</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-shareholders-of-facebook/"><u>Current Shareholders of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-defenders-guide-skip-three-snooping-apps/"><u>Data Defender's Guide: Skip Three Snooping Apps</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-iphone-14-pro-max-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass iPhone 14 Pro Max Passcode Easily Video Inside</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-how-to-record-internal-audio-on-android-video-or-gameplay/"><u>In 2024, How to Record Internal Audio on Android [Video or Gameplay]</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-on-your-iphone-x-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID on Your iPhone X?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-podplay-writing-treasures/"><u>In 2024, Premier Podplay Writing Treasures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtubes-glamour-guild-comprehensive-style-compendium/"><u>In 2024, Youtube's Glamour Guild Comprehensive Style Compendium</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubers-toolkit-essential-setup-guidelines-for-2024/"><u>Youtubers' Toolkit Essential Setup Guidelines for 2024</u></a></li>
 </ul></div>
 

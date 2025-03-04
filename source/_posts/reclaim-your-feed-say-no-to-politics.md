@@ -1,7 +1,7 @@
 ---
 title: Reclaim Your Feed, Say No to Politics
-date: 2025-02-09T13:07:02.769Z
-updated: 2025-02-14T23:53:45.152Z
+date: 2025-02-27T19:43:35.072Z
+updated: 2025-03-04T17:33:59.338Z
 tags:
   - facebook
 categories:
@@ -30,29 +30,17 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
 
  Here's the problem: if you don't have very strong views on these issues, all of these posts are incredibly annoying. If you do have strong views on these issues, at least half of these posts are still incredibly annoying. And the other half isn't really telling you anything new.
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
@@ -72,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
  The good news is you can remove this piece of information from your profile pretty easily. Log into your Facebook account and go to your profile. There will be an option to edit your profile just under your cover photo. Click on**Edit Profile** to proceed.
@@ -93,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Creating a Facebook Feed You Enjoy
 
@@ -117,22 +97,22 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-basic-tactics-to-archive-webcam-chats/"><u>[New] Basic Tactics to Archive Webcam Chats</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/eamless-addition-youtube-videos-into-google-slides-for-2024/"><u>[New] Seamless Addition YouTube Videos Into Google Slides for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-skys-dynamic-range-wonders-top-10-sites-guide/"><u>[Updated] Sky's Dynamic Range Wonders - Top 10 Sites Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/can-multiple-users-listen-to-the-same-song-on-spotify-at-once/"><u>Can Multiple Users Listen to the Same Song on Spotify at Once?</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/customizing-your-system-with-yl-softwares-control-panel-settings/"><u>Customizing Your System with YL Software's Control Panel Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-footprint-on-our-lives-a-mixed-bag/"><u>Facebook's Footprint on Our Lives: A Mixed Bag</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-swiping-features-are-they-worth-it/"><u>Facebook's Swiping Features: Are They Worth It?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-unhook-yourself-from-fb-on-android-phones/"><u>How to Unhook Yourself From FB on Android Phones</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-first-timers-blueprint-for-youtube-income/"><u>In 2024, The First-Timer's Blueprint for YouTube Income</u></a></li>
-<li><a href="https://facebook.techidaily.com/metascape-vs-bluefield-unveiling-top-titans-of-twitter-and-meta/"><u>Metascape Vs. Bluefield: Unveiling Top Titans of Twitter and Meta</u></a></li>
-<li><a href="https://win-help.techidaily.com/microsoft-tech-update-roundup-exciting-new-developments-from-this-weeks-surface-and-artificial-intelligence-event/"><u>Microsoft Tech Update Roundup: Exciting New Developments From This Week's Surface and Artificial Intelligence Event</u></a></li>
-<li><a href="https://facebook.techidaily.com/reaching-a-plateau-in-social-media-popularity/"><u>Reaching a Plateau in Social Media Popularity</u></a></li>
-<li><a href="https://facebook.techidaily.com/steer-clear-understanding-the-dangers-of-random-friendships/"><u>Steer Clear: Understanding the Dangers of Random Friendships</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthening-online-communities-through-refined-fb-administration/"><u>Strengthening Online Communities Through Refined FB Administration</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-art-of-iphone-cinematography-transforming-fast-motion-into-sluggish-sequences/"><u>The Art of iPhone Cinematography Transforming Fast Motion Into Sluggish Sequences</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-free-tools-for-youtube-audio-conversion-to-wav-for-2024/"><u>Top 4 Free Tools for YouTube Audio Conversion to WAV for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-for-data-driven-decision-making/"><u>Top 8 CrowdFlower Tools for Data-Driven Decision Making</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-rgb-to-srgb-transition-what-it-means-for-visual-media/"><u>[New] 2024 Approved Rgb to Srgb Transition What It Means for Visual Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-laugh-out-loud-essential-comedy-channels-for-endless-fun-for-2024/"><u>[Updated] Laugh Out Loud Essential Comedy Channels for Endless Fun for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-rhythmic-rendezvous-combining-beat-and-visuals-on-tiktok/"><u>2024 Approved Rhythmic Rendezvous Combining Beat and Visuals on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/analysis-q2-sales-surge-oculus-quests-purchased-by-facebook-users/"><u>Analysis: Q2 Sales Surge - Oculus Quests Purchased by Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-hidden-dangers-of-social-media-quizzes/"><u>Assessing the Hidden Dangers of Social Media Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-comments-maintaining-content-integrity-on-fb/"><u>Banishing Comments: Maintaining Content Integrity on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/beats-and-bonds-what-might-be-coming-from-fb-and-spotifys-boombox/"><u>Beats and Bonds: What Might Be Coming From FB and SPOTIFY’s Boombox?</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-belief-fact-checking-facebooks-user-numbers/"><u>Beyond Belief: Fact-Checking Facebook's User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/braving-the-storm-for-facebook-news/"><u>Braving the Storm for Facebook News</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-fb-profile-a-guide-to-designing-with-your-avatar/"><u>Crafting Your FB Profile: A Guide to Designing With Your Avatar</u></a></li>
+<li><a href="https://driver-error.techidaily.com/driver-fix-wsd-device-on-windows-os/"><u>Driver Fix: WSD Device on Windows OS</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-lava-storm-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Lava Storm 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-the-top-5-corporate-concerns-with-ai-conversation-tools/"><u>Exploring the Top 5 Corporate Concerns with AI Conversation Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-tecno-phantom-v-flip-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Tecno Phantom V Flip For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210992498-resolved-issues-with-total-war-rome-remastered-no-more-crashing/"><u>Resolved Issues with Total War: Rome Remastered - No More Crashing</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719143829217-why-joining-forces-on-facebook-heres-the-proof/"><u>Why Joining Forces on Facebook? Here's the Proof</u></a></li>
 </ul></div>
 

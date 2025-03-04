@@ -1,7 +1,7 @@
 ---
 title: TikTok's Rapid Climb Cuts Into Facebook's Profits Deeply
-date: 2025-02-12T08:15:48.823Z
-updated: 2025-02-15T06:25:24.719Z
+date: 2025-03-03T16:17:44.875Z
+updated: 2025-03-04T17:52:05.567Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook’s Revenues Are Down and User Growth Has Stalled
 
  If you look through[Meta’s press release](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx) , you’ll see that the social network's revenues have fallen since 2021\. According to[CNBC](https://www.cnbc.com/2022/07/27/meta-ceo-mark-zuckerberg-we-seem-to-have-entered-economic-downturn.html) , Mark Zuckerberg indicated that the economic conditions are worse than they were in Q2, 2021.
@@ -33,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
  Facebook has also seen a decline in the number of new users registering on the platform because the number of monthly active users hasn’t changed much in the past few quarters before 2022, as illustrated in the graph you can see on[DataReportal](https://datareportal.com/essential-facebook-stats) .
 
 ![Facebook Q2 2022 User Statistics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Facebook-Q2-2022-User-Statistics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit:[Meta](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx)
 
@@ -47,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
  The picture is quite the opposite for TikTok in the quarters before Q2, 2022\. According to[Bloomberg](https://www.bloomberg.com/news/features/2022-06-23/tiktok-becomes-cash-machine-with-revenue-tripling-to-12-billion) , TikTok's annual revenues were $4.6 billion in 2021, and they're expected to reach $12 billion by the end of 2022\. The Chinese-owned social video app also has a rapidly growing user count, as noted by[Insider Intelligence](https://www.insiderintelligence.com/charts/global-tiktok-user-stats/) .
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
 
@@ -66,15 +54,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can Facebook Fight Back Against TikTok?
 
@@ -97,20 +77,19 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-maximize-impact-with-professional-360-video-uploads-for-youtube/"><u>[New] 2024 Approved Maximize Impact with Professional 360° Video Uploads for YouTube</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-preferred-options-superior-mac-video-capture-apps/"><u>[New] Preferred Options Superior Mac Video Capture Apps</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-understanding-the-underrated-downsides-of-vr-for-2024/"><u>[New] Understanding the Underrated Downsides of VR for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-rejuvenate-your-pictures-the-most-powerful-10-online-edits/"><u>[Updated] Rejuvenate Your Pictures The Most Powerful 10 Online Edits</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-cloud-to-hard-drive-your-facebook-photos-and-videos-journey/"><u>From Cloud to Hard Drive: Your Facebook Photos & Videos Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-meta-manages-misdirected-moments-in-the-web-space/"><u>How Meta Manages Misdirected Moments in the Web Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-illuminators-which-shines-brighter-metalogue-gold-or-twitter-luster/"><u>Identity Illuminators: Which Shines Brighter, Metalogue Gold or Twitter Luster?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/inaccessible-online-spaces-discover-the-3-no-facebook-nations/"><u>Inaccessible Online Spaces: Discover the 3 No-Facebook Nations</u></a></li>
-<li><a href="https://games-able.techidaily.com/optimize-your-steam-deck-dock-mastery-techniques/"><u>Optimize Your Steam Deck: Dock Mastery Techniques</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/resurrect-your-data-expert-tips-for-retrieving-items-after-iphones-reboot-with-factory-settings/"><u>Resurrect Your Data: Expert Tips for Retrieving Items After iPhones Reboot with Factory Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategizing-your-events-with-a-focus-on-facebooks-features/"><u>Strategizing Your Events with a Focus on Facebook's Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-facebooks-emoji-keyboard/"><u>The Language of Facebook's Emoji Keyboard</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unleashing-your-potential-with-troubleshootable-chatgpt-issues/"><u>Unleashing Your Potential with Troubleshootable ChatGPT Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-voyage-charting-facebooks-course-to-meta/"><u>Virtual Voyage: Charting Facebook's Course to Meta</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-20plus-digital-hubs-unlimited-image-access-for-all/"><u>[Updated] 2024 Approved 20+ Digital Hubs Unlimited Image Access for All</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-expert-recommendations-top-5-windows-screen-cutting-apps-for-2024/"><u>[Updated] Expert Recommendations Top 5 Windows Screen Cutting Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-skyrocket-your-channel-the-ultimate-guide-to-youtube-backlinks/"><u>[Updated] Skyrocket Your Channel The Ultimate Guide to YouTube Backlinks</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhanced-performance-using-the-latest-cookiebot-features/"><u>Enhanced Performance Using the Latest Cookiebot Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/memes-unleashed-ranking-the-best-templates-10/"><u>Memes Unleashed Ranking the Best Templates #10</u></a></li>
+<li><a href="https://fox-that.techidaily.com/navigating-apples-restrictions-a-look-at-why-gifting-is-tricky-on-ios-devices/"><u>Navigating Apple's Restrictions: A Look at Why Gifting Is Tricky on iOS Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-paradigm-shift-top-strategies-for-wealth-building-on-social-media/"><u>Profit Paradigm Shift: Top Strategies for Wealth-Building on Social Media</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-persistent-crashes-in-age-of-empires-iv-pc-edition/"><u>Resolved: Persistent Crashes in Age of Empires IV – PC Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
+<li><a href="https://app-tips.techidaily.com/ultimate-guide-building-your-ideal-windows-11-vm-tutorial/"><u>Ultimate Guide: Building Your Ideal Windows 11 VM [Tutorial]</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-spotify-from-your-fb-account-a-step-by-step-guide/"><u>Unlinking Spotify From Your FB Account: A Step-by-Step Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-calls-for-judicial-review-on-indian-communication-policy/"><u>WhatsApp Calls for Judicial Review on Indian Communication Policy</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Hidden Stories That Could Change Your Perception of Tech Today
-date: 2024-08-28T02:58:48.072Z
-updated: 2024-08-29T02:58:48.072Z
+date: 2025-03-01T19:17:15.319Z
+updated: 2025-03-04T18:51:52.289Z
 tags:
   - facebook
 categories:
@@ -47,15 +47,9 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Welcome to the Metaverse
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
  The company is looking at the metaverse as the next significant shift in tech, which changes the way humans interact with the internet. Instead of accessing the internet through disparate apps, services, and hardware, the metaverse links them together to meld a seamless experience almost similar to physical reality.
@@ -66,16 +60,9 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Apple and Facebook's Privacy War
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
  The iOS 15 update further exacerbated this conflict, allowing users to see which apps access which data and sensors, and when. You can even see whether these apps share your data with third-party entities.
@@ -86,32 +73,17 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Tech News Will We See in 2022?
 
  These are some of the biggest tech news stories of 2021, and we're looking forward to a more exciting 2022\. While many of us won't feel the immediate impact of these developments, they will shape how we use and interact with technology in the near future.
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,8 +92,26 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-excellence-in-selfies-the-top-8-for-iphone/"><u>[New] In 2024, Excellence in Selfies The Top #8 for IPhone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-captivating-intros-on-mobile-platforms/"><u>[Updated] 2024 Approved Crafting Captivating Intros on Mobile Platforms</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-comprehensive-guide-to-nvidia-screener-use-for-2024/"><u>[Updated] Comprehensive Guide to NVIDIA Screener Use for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-filmographys-finest-shots-the-best-camera-and-lighting-tips/"><u>[Updated] Filmography's Finest Shots The Best Camera & Lighting Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagrams-music-stickers-integration/"><u>[Updated] In 2024, Mastering Instagram's Music Stickers Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicling-googles-moments-that-shook-the-world/"><u>Chronicling Google's Moments That Shook the World</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-excess-enhancing-your-feed-focus/"><u>Cut the Excess: Enhancing Your Feed Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-era-chronicle-facebooks-2004-beginnings-to-meta-future/"><u>Digital Era Chronicle: Facebook’s 2004 Beginnings to Meta Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-concept-to-celebration-structuring-fb-events/"><u>From Concept to Celebration: Structuring FB Events</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-iphone-13-pro-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone 13 Pro Lock Screen</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-htc-u23-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on HTC U23 Prowith/without a PC</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-latest-podcast-question-bank-for-engaging-audiences/"><u>In 2024, Latest Podcast Question Bank for Engaging Audiences</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-photobooth-playback-hang-up-seeking-solutions/"><u>In 2024, Photobooth Playback Hang-Up - Seeking Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/section-4b-five-facts-to-remember/"><u>Section 4B: Five Facts to Remember</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-standards-right-to-suspend-trump-with-time-capsule/"><u>Social Networking Standards: Right to Suspend Trump, With Time Capsule</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-on-telegram-from-facebook-outage-a-study/"><u>The Impact on Telegram From Facebook Outage: A Study</u></a></li>
+</ul></div>
 

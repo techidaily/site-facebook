@@ -1,7 +1,7 @@
 ---
 title: Leveraging Facebook's Today Memory Recollection
-date: 2025-02-14T11:11:42.791Z
-updated: 2025-02-15T10:24:03.666Z
+date: 2025-02-25T18:31:00.959Z
+updated: 2025-03-04T20:05:38.062Z
 tags:
   - facebook
 categories:
@@ -54,15 +54,7 @@ To share a memory from the On This Day feature:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -92,10 +84,6 @@ To access your saved memories:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
 Close
@@ -110,10 +98,6 @@ Close
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Customization Options for the On This Day Feature
 
  If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
@@ -126,15 +110,7 @@ Close
 
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
 
@@ -173,24 +149,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-top-5-essential-mac-live-streaming-apps/"><u>[New] In 2024, Top 5 Essential Mac Live Streaming Apps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-becoming-part-of-the-global-community-your-guide-to-facebook/"><u>[Updated] In 2024, Becoming Part of the Global Community Your Guide to Facebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-navigating-through-youtubes-minis/"><u>2024 Approved Navigating Through YouTube's Minis</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-via-shortcut-customization/"><u>Enhancing Your Facebook Experience via Shortcut Customization</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-big-secret-an-examination-of-its-files/"><u>Facebook's Big Secret: An Examination of Its Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/free-methods-to-enhance-facebook-update-frequency-and-placement/"><u>Free Methods to Enhance Facebook Update Frequency and Placement</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-name-on-facebook/"><u>How to Change Your Name on Facebook</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-oppo-f23-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Oppo F23 5G phone? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-7-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone 7 with iTunes | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-15-plus-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 15 Plus when Phone is Broken?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-cyberpunk-2077s-improved-performance-addressing-and-preventing-input-delays/"><u>Mastering Cyberpunk 2077'S Improved Performance: Addressing and Preventing Input Delays</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-approach-extending-e2e-encryption-default-to-next-year-why/"><u>Meta's Approach: Extending E2E Encryption Default to Next Year, Why?</u></a></li>
-<li><a href="https://howto.techidaily.com/samsung-galaxy-f34-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy F34 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-rated-selfie-stick-breakdown-unpacking-the-features-of-fugeteks-ft-568/"><u>Top Rated Selfie Stick Breakdown: Unpacking the Features of Fugetek's FT-568</u></a></li>
-<li><a href="https://facebook.techidaily.com/unity-and-progress-unveiling-7-social-benefits/"><u>Unity and Progress: Unveiling 7 Social Benefits</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-messengers-without-a-facebook-account/"><u>Unlocking Messengers Without a Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/winning-back-your-money-requesting-a-refund-on-facebook/"><u>Winning Back Your Money: Requesting a Refund on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/wnb-players-online-fb-twt-unite-for-broadcasts/"><u>WNB Players Online: FB, Twt Unite for Broadcasts</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-instatrends-update-staying-ahead-with-fresh-reel-ideas/"><u>[New] In 2024, InstaTrends Update Staying Ahead with Fresh Reel Ideas</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-remote-recording-techniques-for-podcasts/"><u>[Updated] Remote Recording Techniques for Podcasts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1726029983181-1/"><u>初めてのビデオ編集：一度に1つの音源を分離するプロセスガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-need-for-touch-in-modern-social-networks/"><u>Assessing the Need for Touch in Modern Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-communication-within-virtual-circles/"><u>Covert Communication Within Virtual Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-social-media-experience-unfollow-techniques/"><u>Customizing Social Media Experience: Unfollow Techniques</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-issues-with-nonfunctional-keyboard-leds-on-macos-and-windows-pcs/"><u>Fixing Issues with Nonfunctional Keyboard LEDs on macOS & Windows PCs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-infinix-smart-7-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Infinix Smart 7 Phones with/without a PC</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-fix-for-defender-error-code-0x80004004/"><u>Quick FIX for Defender Error Code 0X80004004</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/screen-recording-through-built-in-features-of-huaweis-mate-and-p-devices-p20-p10-for-2024/"><u>Screen Recording Through Built-In Features of Huawei's Mate and P Devices (P20, P10) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147233555-social-media-governance-panel-prepares-verdict-on-trump-ban/"><u>Social Media Governance Panel Prepares Verdict on Trump Ban.</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-no-cost-privacy-activating-google-one-vpn-on-android-and-chrome-devices-insiders-guide/"><u>Unlocking No-Cost Privacy: Activating Google One VPN on Android & Chrome Devices - Insider's Guide</u></a></li>
 </ul></div>
 

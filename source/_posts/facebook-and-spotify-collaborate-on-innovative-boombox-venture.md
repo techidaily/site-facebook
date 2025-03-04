@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2025-02-13T12:49:16.116Z
-updated: 2025-02-15T10:47:43.150Z
+date: 2025-02-28T17:36:32.629Z
+updated: 2025-03-04T20:11:11.734Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook and Spotify Team up on Project Boombox
 
 [Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
@@ -39,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  TechCrunch reporters also noted that the built-in player isn't only for music—it will support podcasts as well. The player has already been tested in countries like Mexico and Thailand, and may officially launch in about a week or so.
 
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
 
@@ -67,18 +59,18 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/updated-business-slide-show-essentials-free-access-and-customization/"><u>[Updated] Business Slide Show Essentials Free Access & Customization</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-smartphone-identity-iphone-x-and-galaxy-phones-through-the-lens-of-faces/"><u>[Updated] In 2024, Smartphone Identity IPhone X and Galaxy Phones Through the Lens of Faces</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-joins-the-rust-foundation-to-help-grow-the-programming-language/"><u>Facebook Joins the Rust Foundation to Help Grow the Programming Language</u></a></li>
-<li><a href="https://win-dash.techidaily.com/guide-to-resolve-unrecognized-usb-devices-on-windows-11/"><u>Guide to Resolve Unrecognized USB Devices on Windows 11</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-apple-iphone-6s-plus-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset Apple iPhone 6s Plus to Factory Settings? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/melodic-sharing-on-instagram-legalities-for-2024/"><u>Melodic Sharing on Instagram Legalities for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-journey-backwards-revoking-access-then-vanishing-your-facebook-business-page/"><u>The Journey Backwards: Revoking Access, Then Vanishing Your Facebook Business Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-shift-how-meta-plans-to-kill-off-fbs-face-tech/"><u>The Shift: How Meta Plans to Kill Off FB’s Face Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-social-spot-how-to-silence-your-fb-visibility/"><u>The Unseen Social Spot: How to Silence Your FB Visibility</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/transform-your-word-docs-into-professional-pdfs-using-yl-software-solutions/"><u>Transform Your Word Docs Into Professional PDFs Using YL Software Solutions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-replies-with-ai-merging-gpt-3-and-whatsapp-help/"><u>Transforming Replies with AI: Merging GPT-3 and WhatsApp Help</u></a></li>
-<li><a href="https://facebook.techidaily.com/verified-victory-quest-who-reigns-supreme-gold-metas-or-silver-twitters/"><u>Verified Victory Quest: Who Reigns Supreme, Gold Metas or Silver Twitters?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-social-media-personalization-is-unchangeable/"><u>Why Social Media Personalization Is Unchangeable?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-exploring-the-world-of-youtube-channel-naming-innovative-ideas-for-vloggers-and-filmmakers-no-more-than-156-characters/"><u>[New] 2024 Approved Exploring the World of YouTube Channel Naming Innovative Ideas For Vloggers & Filmmakers (No More than 156 Characters)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-revolutionizing-creativity-premier-tablet-apps-for-ipados/"><u>[New] 2024 Approved Revolutionizing Creativity Premier Tablet Apps for iPadOS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pull-the-right-strings-increasing-likes-on-unboxed-tiktoks/"><u>[New] Pull the Right Strings Increasing Likes on Unboxed TikToks</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-mirthful-methodology-making-memes-for-free/"><u>[Updated] Mirthful Methodology Making Memes for Free</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-the-insiders-move-to-effortless-discord-calls-for-2024/"><u>[Updated] The Insider's Move to Effortless Discord Calls for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/adopting-a-fresh-username-with-facebook/"><u>Adopting a Fresh Username with Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/aphaca-bt69-wireless-car-bluetooth-fm-transmitter-review/"><u>Aphaca BT69 Wireless Car Bluetooth FM Transmitter Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/archery-athletes-disengage-from-online-platforms/"><u>Archery Athletes Disengage From Online Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/claims-facebook-stands-against-dishonest-commerce-posts/"><u>Claims: Facebook Stands Against Dishonest Commerce Posts</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719172860509-diy-revamping-your-xbox-controllers/"><u>DIY: Revamping Your Xbox Controllers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/gratuita-conversione-trp-a-mp4-on-line-con-movavi-prova-ora/"><u>Gratuita Conversione Trp a Mp4 On-Line Con Movavi - Prova Ora!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-becoming-an-expert-in-lut-technology/"><u>In 2024, Becoming an Expert in LUT Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151882486-navigate-new-ways-transporting-fb-stories-and-notebooks-effortlessly/"><u>Navigate New Ways: Transporting FB Stories & Notebooks Effortlessly</u></a></li>
 </ul></div>
 

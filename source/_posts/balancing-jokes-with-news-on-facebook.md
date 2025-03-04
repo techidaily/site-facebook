@@ -1,7 +1,7 @@
 ---
 title: Balancing Jokes with News on Facebook
-date: 2024-08-28T02:55:27.624Z
-updated: 2024-08-29T02:55:27.624Z
+date: 2025-02-26T19:03:24.833Z
+updated: 2025-03-04T16:57:41.722Z
 tags:
   - facebook
 categories:
@@ -47,14 +47,11 @@ thumbnail: https://thmb.techidaily.com/7111378cc0205319da99cc8db3992a3d311982c55
 
  You can read Facebook's full post on the upcoming changes on the [Transparency Center](https://transparency.fb.com/oversight/oversight-board-cases/comment-related-to-armenian-people-and-the-armenian-genocide/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,12 +60,16 @@ thumbnail: https://thmb.techidaily.com/7111378cc0205319da99cc8db3992a3d311982c55
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-camera-stabilizers-for-youtube-for-2024/"><u>[Updated] Best Camera Stabilizers for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-novices-pathway-to-writing-youtube-video-plans/"><u>[Updated] In 2024, A Novice's Pathway to Writing YouTube Video Plans</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/haul-videography-unlocked-step-by-step-guide-for-enthusiasts-for-2024/"><u>Haul Videography Unlocked Step-by-Step Guide for Enthusiasts for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-xiaomi-redmi-note-12-pro-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Xiaomi Redmi Note 12 Pro 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-iphone-ringtones-a-guide-to-personalized-sound-choices/"><u>In 2024, IPhone Ringtones A Guide to Personalized Sound Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-every-shared-photo-permanent-archive/"><u>Is Every Shared Photo Permanent Archive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/premium-metas-gain-verified-identity-badge/"><u>Premium Metas: Gain Verified Identity Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-world-of-non-facebook-direct-messaging/"><u>The World of Non-Facebook Direct Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

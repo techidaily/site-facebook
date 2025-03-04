@@ -1,7 +1,7 @@
 ---
 title: The New Era of Community Management Unveiled by Facebook
-date: 2025-02-13T22:05:14.855Z
-updated: 2025-02-15T07:15:34.208Z
+date: 2025-02-26T19:40:16.392Z
+updated: 2025-03-04T16:00:53.049Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Launches New Admin Tools to Moderate Groups
 
  In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
@@ -36,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are Facebook's New Admin Tools?
 
  The most noticeable new tool is Facebook's AI-powered feature called "conflict alerts," which is currently in testing. The new feature will send group admins a notification when the AI detects "contentious or unhealthy conversations" in a group.
@@ -48,19 +40,11 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Facebook
 
  One new tool focuses on new members. Admins will have the ability to restrict new members from posting or commenting, although this is available for all other users too. Group admins can also decline promoted posts to stop unsolicited advertising in groups.
 
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
 
@@ -83,24 +67,20 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-the-basic-blueprint-for-win-based-fishy-vocal-shifts-for-2024/"><u>[New] The Basic Blueprint for Win-Based Fishy Vocal Shifts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-cut-costs-increase-impact-strategic-fb-posting/"><u>[Updated] Cut Costs, Increase Impact Strategic FB Posting</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-curtail-unrequested-youtube-content-streams/"><u>[Updated] In 2024, Curtail Unrequested YouTube Content Streams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-simplify-collaboration-with-mematics-cloud-notes-for-2024/"><u>[Updated] Simplify Collaboration with Mematic’s Cloud Notes for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unbeatable-prices-for-top-budget-4k-cameras-(1000/"><u>[Updated] Unbeatable Prices for Top Budget 4K Cameras (<$1,000)</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2022-ice-dancing-showcase-review-for-2024/"><u>2022 Ice Dancing Showcase Review for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-amateurs-to-pros-transformative-steps-in-gopro-timelapses/"><u>2024 Approved From Amateurs to Pros Transformative Steps in GoPro Timelapses</u></a></li>
-<li><a href="https://facebook.techidaily.com/elusive-engagement-keeping-fb-content-out-of-public-view/"><u>Elusive Engagement: Keeping Fb Content Out of Public View</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-well-be-points-without-facebooks-presence/"><u>Enhancing Your Well-Be Points Without Facebook's Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/fencing-leagues-withdraw-online-presence/"><u>Fencing Leagues Withdraw Online Presence</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/harmonize-visuals-and-melodies-in-facebook-media-posts-for-2024/"><u>Harmonize Visuals & Melodies in Facebook Media Posts for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-protection-system-features-on-facebook-platform/"><u>Harnessing Protection System Features on Facebook Platform</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/master-the-art-of-tiktok-pfps-30-game-changing-concepts-for-2024/"><u>Master the Art of TikTok PFPs 30 Game-Changing Concepts for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebooks-blocked-user-search/"><u>Mastering Facebook's Blocked User Search</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-your-entire-facebook-experience/"><u>Navigating Through Your Entire Facebook Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-evolution-continues/"><u>Social Media's Evolution Continues</u></a></li>
-<li><a href="https://facebook.techidaily.com/stream-your-favorites-spotify-mini-panel-right-from-facebook/"><u>Stream Your Favorites: Spotify Mini Panel, Right From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-blunders-of-the-tech-world-this-year/"><u>The Biggest Blunders of the Tech World This Year</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unexpected-delight-the-surprising-performance-of-the-ring-spotlight-cam-pro-a-review/"><u>Unexpected Delight: The Surprising Performance of the Ring Spotlight Cam Pro - A Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-straightforward-methods-to-save-insta-story-videos-for-2024/"><u>[New] Straightforward Methods to Save Insta Story Videos for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-obs-and-instagram-integration-the-essential-how-to-manual/"><u>[Updated] OBS and Instagram Integration The Essential How To Manual</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-leveraging-the-power-of-visual-storytelling-in-fb-covers/"><u>2024 Approved Leveraging the Power of Visual Storytelling in FB Covers</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/1728497774333-windows-11/"><u>利用Windows 11功能：有效地备份和更新已安装的软件，减少重装次数</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152115012-awaiting-the-call-facebook-orders-ruling-on-prohibited-access/"><u>Awaiting the Call: Facebook Orders Ruling on Prohibited Access.</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-dates-on-facebooks-nostalgic-moments/"><u>Blocking Dates on Facebook's Nostalgic Moments</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-virtual-divide-8-ways-to-connect-digitally/"><u>Bridging the Virtual Divide: 8 Ways to Connect Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-a-trusted-virtual-gathering-place/"><u>Choosing a Trusted Virtual Gathering Place</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectors-guide-to-facebooks-emerging-zones/"><u>Connectors' Guide to Facebook’s Emerging Zones</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-private-visual-footprint-on-facebook/"><u>Crafting a Private Visual Footprint on Facebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-insights-on-fugeteks-exceptional-ft-amoji-a-superior-selfie-capture-device/"><u>Expert Insights on Fugetek's Exceptional FT-Amoji, A Superior Selfie Capture Device</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/superalloys-composites-and-advanced-coatings-are-materials-that-can-enhance-pump-performance-and-durability-under-extreme-conditions/"><u>Superalloys, Composites, and Advanced Coatings Are Materials that Can Enhance Pump Performance and Durability Under Extreme Conditions.</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-7-herramientas-de-extraccion-y-conversion-para-dvd-en-mac-guia-completa-2024/"><u>Top 7 Herramientas De Extracción Y Conversión Para DVD en Mac: Guía Completa 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150018154-unlocking-private-chats-new-end-to-end-encryption-rollout-by-facebook-for-direct-and-call-services/"><u>Unlocking Private Chats: New End-to-End Encryption Rollout by Facebook for Direct & Call Services.</u></a></li>
 </ul></div>
 

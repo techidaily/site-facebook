@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2025-02-08T01:05:40.927Z
-updated: 2025-02-14T19:23:18.022Z
+date: 2025-02-27T18:22:14.085Z
+updated: 2025-03-04T19:57:00.296Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A Beloved Programming Language
 
  In a[statement](https://developers.facebook.com/blog/post/2021/04/29/facebook-joins-rust-foundation/) , Ashley Williams, Interim Executive Director of the Rust Foundation, said that:
@@ -37,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Rust developed from a personal project started in 2006 by Mozilla employee Graydon Hoare. It has been[hugely successful since then](https://www.makeuseof.com/tag/reasons-rust-exciting-programming-language/) , having been voted the "most loved" coding language as part of the Stack Overflow Developer Survey for every year since 2016\. Aside from the newly joining Facebook, other members of the Rust Foundation---which launched this year---include Mozilla, Huawei, Google, Microsoft, and Amazon Web Services (AWS).
 
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Embracing Rust
 
@@ -61,20 +53,14 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-expert-techniques-for-streamers-on-macos/"><u>[New] Expert Techniques for Streamers on macOS</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-depth-instructions-installing-countdown-clocks-in-obs-for-2024/"><u>[Updated] In-Depth Instructions Installing Countdown Clocks in OBS for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-crafting-the-perfect-soundtrack-for-your-vimeo-content/"><u>2024 Approved Crafting the Perfect Soundtrack for Your Vimeo Content</u></a></li>
-<li><a href="https://win11.techidaily.com/guide-to-overwriting-game-achievements-on-steam/"><u>Guide to Overwriting Game Achievements on Steam</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-broadcast-your-location-in-a-chat-room/"><u>How to Broadcast Your Location in a Chat Room</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-note-30-pro-phone-without-password-by-drfone-android/"><u>How To Unlock Infinix Note 30 Pro Phone Without Password?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-poco-c65-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Poco C65? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-htc-u23-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From HTC U23 to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interpreting-shifts-in-meaning-for-facebook-page-names/"><u>Interpreting Shifts in Meaning for Facebook Page Names</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-image-permissions/"><u>Navigating Facebook Image Permissions</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-compress-mpeg2-files-with-virtualdub-a-step-by-step-guide/"><u>New Compress MPEG2 Files with VirtualDub A Step-by-Step Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/solve-the-user-account-control-prompt-operation-requires-administrator-level-issue-on-your-windows-machine/"><u>Solve the 'User Account Control Prompt: Operation Requires Administrator Level' Issue on Your Windows Machine</u></a></li>
-<li><a href="https://facebook.techidaily.com/tuning-up-your-social-media-visibility/"><u>Tuning Up Your Social Media Visibility</u></a></li>
-<li><a href="https://facebook.techidaily.com/validation-of-(securityfacebookmailcom)-for-authenticity-and-protection/"><u>Validation of @<security@facebookmail.com> for Authenticity and Protection</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-the-new-us-antitrust-laws-and-how-will-they-takedown-big-tech/"><u>What Are the New US Antitrust Laws and How Will They Takedown Big Tech?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/avi-mp4/"><u>转换 AVI 文件为 MP4 的四个无成本方法 - 最有效的指南</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-joining-an-expat-community-on-social-media-platforms/"><u>A Closer Look at Joining an Expat Community on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/clubhouse-rivals-facebook-introduces-new-listening-tools/"><u>Clubhouse Rivals: Facebook Introduces New Listening Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-your-neighborhood-experience-fbs-next-retail-revolution/"><u>Could Your Neighborhood Experience FB's Next Retail Revolution?</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-collaborative-spaces-via-facebook-networks/"><u>Creating Collaborative Spaces via Facebook Networks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/cutting-edge-code-helpers-top-7-alternatives-to-chatgpt/"><u>Cutting-Edge Code Helpers: Top 7 Alternatives to ChatGPT</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ignite-passion-a-selection-of-10-invigorating-films/"><u>In 2024, Ignite Passion A Selection of 10 Invigorating Films</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/resolving-network-path-and-pxe-errors-a-comprehensive-guide/"><u>Resolving Network Path and PXE Errors - A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transform-text-to-trendy-memes-kapwings-magic-tool/"><u>Transform Text to Trendy Memes - Kapwing’s Magic Tool</u></a></li>
 </ul></div>
 

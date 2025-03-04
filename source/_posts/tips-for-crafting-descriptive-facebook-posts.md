@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2025-02-14T12:46:04.716Z
-updated: 2025-02-15T10:16:06.442Z
+date: 2025-02-28T17:12:23.148Z
+updated: 2025-03-04T20:04:37.922Z
 tags:
   - facebook
 categories:
@@ -40,19 +40,11 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
@@ -73,10 +65,6 @@ Here’s how you add alt text to images while uploading them:
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Here’s how to add alt text to your photos on Facebook's web browser.
 
 1. Log in to[Facebook](https://www.facebook.com) on your browser.
@@ -89,17 +77,9 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -139,20 +119,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-unveiling-linuxs-leading-screen-capture-apps-for-2024/"><u>[New] Unveiling Linux’s Leading Screen Capture Apps for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-laugh-loops-crafting-comical-content-for-brevity-based-videos/"><u>2024 Approved Laugh Loops Crafting Comical Content for Brevity-Based Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-infinix-hot-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-samsung-galaxy-m14-4g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Samsung Galaxy M14 4G</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/authors-recommended-the-best-text-voice-generators-for-all-platforms-for-2024/"><u>Authors Recommended The Best Text Voice Generators for All Platforms for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-analytics-with-8-crowdfire-innovative-functions/"><u>Enhancing Analytics with 8 Crowdfire Innovative Functions</u></a></li>
-<li><a href="https://facebook.techidaily.com/expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly.</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/free-end-credits-maker-the-1-video-closers-guide-in-2024/"><u>Free End Credits Maker - The #1 Video Closers Guide, In 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-likes-and-shares-without-overstepping-boundaries/"><u>Leveraging Likes & Shares Without Overstepping Boundaries</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-your-whatsapp-experience-by-not-accepting-new-rules/"><u>Maintaining Your WhatsApp Experience by Not Accepting New Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-strategic-leap-in-artificial-intelligence-mastery/"><u>Meta's Strategic Leap in Artificial Intelligence Mastery</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-comprehensive-beginners-manual-to-social-media-dating/"><u>The Comprehensive Beginner’s Manual to Social Media Dating</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-the-potential-of-chatgpt-activating-new-beta-functions-for-enhanced-web-navigation-and-plug-ins/"><u>Unlocking the Potential of ChatGPT: Activating New Beta Functions for Enhanced Web Navigation & Plug-Ins</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-latest-in-computing-with-toms-electronics-analysis/"><u>Unveiling the Latest in Computing with Tom’s Electronics Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-saying-goodbye-to-facebook-could-mean-a-better-you-a-top-10-list/"><u>Why Saying Goodbye to Facebook Could Mean a Better You - A Top 10 List</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-cinematic-edge-edging-your-vt-footage-on-final-cut-x/"><u>[New] In 2024, The Cinematic Edge Edging Your VT Footage on Final Cut X</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tone-and-pitch-control-on-chrome-os-select-the-best-online-speech-converters/"><u>[New] Tone and Pitch Control on Chrome OS Select the Best Online Speech Converters</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-what-is-periscope-is-it-free-and-how-to-sign-up-it/"><u>[New] What Is Periscope? Is It Free and How to Sign up It?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-boost-your-visibility-with-a-cutting-edge-set-of-banners/"><u>[Updated] In 2024, Boost Your Visibility with a Cutting-Edge Set of Banners</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastermind-whatsapp-advanced-techniques-and-undisclosed-features/"><u>[Updated] Mastermind WhatsApp Advanced Techniques and Undisclosed Features</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/11-tools/"><u>11 Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-social-media-revolution-removing-politicalreligious-posts/"><u>A Social Media Revolution: Removing Political/Religious Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/affordable-content-scheduling-top-5-tricks-for-facebook-timing/"><u>Affordable Content Scheduling: Top 5 Tricks for Facebook Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-facebook-pages-avatar-and-title/"><u>Altering Facebook Page's Avatar & Title</u></a></li>
+<li><a href="https://facebook.techidaily.com/chatting-in-a-new-age-facebooks-latest-tech-boosts-instagram-and-messenger-messaging/"><u>Chatting in a New Age: Facebook's Latest Tech Boosts Instagram and Messenger Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-to-authenticity-in-online-profiles/"><u>Cracking the Code to Authenticity in Online Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-content-and-cashflow-how-meta-boosts-money-making-reels/"><u>Creating Content and Cashflow: How Meta Boosts Money-Making Reels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expert-evaluation-of-vsdc-features-and-best-competitor-software/"><u>Expert Evaluation of VSDC Features and Best Competitor Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154159871-facebook-prioritizes-privacy-introduces-end-to-end-encryption-to-messaging-and-direct-chats/"><u>Facebook Prioritizes Privacy: Introduces End-to-End Encryption to Messaging & Direct Chats.</u></a></li>
+<li><a href="https://common-error.techidaily.com/facing-printer-issues-with-pdfs-here-are-fast-remedies/"><u>Facing Printer Issues with PDFs? Here Are Fast Remedies</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/top-3-android-office-suite-apps-surpassing-google-docs-comprehensive-test-reviews-zdnet/"><u>Top 3 Android Office Suite Apps Surpassing Google Docs: Comprehensive Test Reviews - ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150163224-upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban.</u></a></li>
 </ul></div>
 

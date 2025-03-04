@@ -1,7 +1,7 @@
 ---
 title: "Revising Profile Rules: Forward, No Backward to Faith or Politics"
-date: 2025-02-09T19:18:56.407Z
-updated: 2025-02-14T20:30:52.221Z
+date: 2025-03-01T20:13:49.887Z
+updated: 2025-03-04T18:07:59.336Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook to Remove Sensitive Information
 
  Facebook gathers plenty of data from users and has extensive profile fields that allow users to link to family members, show their job history, and flag major life milestones. However, the social media site has attracted controversy in the past for how advertisers were able to use more sensitive data about users to target ads.
@@ -35,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  But the notice has also started appearing to more users, including MUO staff. Depending on what sensitive information you have on your profile, the notice may differ. However, it confirms that the information will be removed starting 1 December 2022\. Fields that will be removed include**Address** ,**Political Views** ,**Religious Views** , and**Interested In** .
 
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
 
@@ -51,10 +43,6 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 > "Starting January 19, 2022 we will remove Detailed Targeting options that relate to topics people may perceive as sensitive, such as options referencing causes, organizations, or public figures that relate to health, race or ethnicity, political affiliation, religion, or sexual orientation."
 
  But the new update seems to take a step further, removing this information from profiles completely.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
 
@@ -75,24 +63,15 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-flourishing-on-a-beauty-youtube-channel/"><u>[New] 2024 Approved Flourishing on a Beauty YouTube Channel</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-crafting-prime-tiktok-openings-using-macos-for-2024/"><u>[New] Crafting Prime TikTok Openings Using MacOS for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-strategies-for-effective-content-promotion-on-youtube-for-2024/"><u>[New] Strategies for Effective Content Promotion on YouTube for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-how-to-archive-video-team-hangouts-effectively/"><u>2024 Approved How to Archive Video Team Hangouts Effectively</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/boosting-clarity-in-web-exhibits-and-presentations/"><u>Boosting Clarity in Web Exhibits and Presentations</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-hp-pagewide-pro-477dw-printer-drivers-for-windows-11-10-and-8/"><u>Download HP PageWide Pro 477DW Printer Drivers for Windows 11, 10 & 8</u></a></li>
-<li><a href="https://some-tips.techidaily.com/essential-insights-on-reliance-and-responsibility-in-cloud-security-why-you-cant-trust-your-data-solely-to-cloud-services-learn-the-risks/"><u>Essential Insights on Reliance and Responsibility in Cloud Security: Why You Can't Trust Your Data Solely to Cloud Services - Learn the Risks!</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-cybersecurity-implications-in-online-quizzes/"><u>Examining Cybersecurity Implications in Online Quizzes</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/introducing-efficient-speech-to-text-utilization-in-powerpoint/"><u>Introducing Efficient Speech-to-Text Utilization in PowerPoint</u></a></li>
-<li><a href="https://facebook.techidaily.com/nbafoundry-integrating-facebooktwitter-for-watch-parties/"><u>NBAFoundry: Integrating Facebook/Twitter for Watch Parties</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-user-forgot-code-regain-entry-to-facebook/"><u>New User, Forgot Code! - Regain Entry to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/opt-out-methods-to-lessen-precision-marketing-in-cyberspace/"><u>Opt-Out Methods to Lessen Precision Marketing in Cyberspace</u></a></li>
-<li><a href="https://facebook.techidaily.com/revival-trumps-facebook-and-instagram-via-meta/"><u>Revival: Trump’s Facebook & Instagram via Meta</u></a></li>
-<li><a href="https://howto.techidaily.com/samsung-galaxy-s23plus-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy S23+ Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-overhaul-banishing-biased-politicalreligious-posts/"><u>Social Media Overhaul: Banishing Biased Political/Religious Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-united-web-7-strategies-of-digital-community-building/"><u>The United Web: 7 Strategies of Digital Community Building</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-features-to-supercharge-your-campaign-strategy/"><u>Top 8 Features to Supercharge Your Campaign Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-privacy-mastery-of-fb-photo-settings/"><u>Unlocking Privacy: Mastery of Fb Photo Settings</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/upgrade-safely-how-macos-1441-secures-your-system-before-the-latest-update-insights/"><u>Upgrade Safely: How macOS 14.4.1 Secures Your System Before the Latest Update - Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hannel-specific-choices-top-microphone-picks-adapted-to-each-youtube-niche/"><u>[New] Channel-Specific Choices Top Microphone Picks Adapted To Each YouTube Niche</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-spectrumsewn-studio-photo-montage-expertise/"><u>[Updated] SpectrumSewn Studio Photo Montage Expertise</u></a></li>
+<li><a href="https://games-able.techidaily.com/1-top-65-unbeatable-christmas-bargain-guides-on-television-discovered-by-zdnet/"><u>1. Top 65 Unbeatable Christmas Bargain Guides on Television - Discovered by ZDNet</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-how-to-maximize-your-cricket-viewing-with-premium-livestreams/"><u>2024 Approved How to Maximize Your Cricket Viewing with Premium Livestreams</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-compelling-reasons-to-stay-active-on-facebook/"><u>6 Compelling Reasons to Stay Active on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-shift-toward-data-privacy-on-iphones/"><u>A Shift Toward Data Privacy on iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-desk-unveiling-metamates-of-facebook/"><u>Beyond the Desk: Unveiling Metamates of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-connections-instagram-and-facebook-merge/"><u>Cross-Platform Connections: Instagram & Facebook Merge</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/swift-solution-for-faulty-windows-0x80072af9-fix/"><u>Swift Solution for Faulty Windows: 0X80072AF9 Fix</u></a></li>
 </ul></div>
 

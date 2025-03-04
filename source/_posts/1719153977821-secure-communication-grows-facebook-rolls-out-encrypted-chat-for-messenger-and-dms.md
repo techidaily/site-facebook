@@ -1,7 +1,7 @@
 ---
 title: "Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs"
-date: 2024-08-23T02:09:11.415Z
-updated: 2024-08-24T02:09:11.415Z
+date: 2025-02-26T18:48:26.269Z
+updated: 2025-03-04T16:09:39.916Z
 tags:
   - facebook
 categories:
@@ -41,14 +41,11 @@ thumbnail: https://thmb.techidaily.com/60aeb73e6646ca7cba89b069f503754c9115c11cb
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -57,12 +54,18 @@ thumbnail: https://thmb.techidaily.com/60aeb73e6646ca7cba89b069f503754c9115c11cb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/riumph-in-the-digital-arena-discovering-youtubes-top-five-tactics-for-2024/"><u>[New] Triumph in the Digital Arena - Discovering YouTube’s Top Five Tactics for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-all-about-lightroom-a-comprehensive-android-study/"><u>[Updated] 2024 Approved All About Lightroom A Comprehensive Android Study</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tips-for-higher-youtube-traction-with-persistent-creative-commons-usage/"><u>[Updated] 2024 Approved Tips for Higher YouTube Traction with Persistent Creative Commons Usage</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigate-the-metaverse-with-friends-top-10-games/"><u>[Updated] Navigate the Metaverse with Friends - Top 10 Games</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-effortless-guide-how-to-automate-recording-of-your-google-gatherings/"><u>2024 Approved Effortless Guide How to Automate Recording of Your Google Gatherings</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-new-legal-framework-curtailing-big-techs-power/"><u>America's New Legal Framework: Curtailing Big Tech's Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-stance-on-metaverse-a-decision-of-distinction/"><u>Apple’s Stance on Metaverse - A Decision of Distinction</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-free-application-review-maximizing-social-efficacy/"><u>Exclusive Free Application Review: Maximizing Social Efficacy</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fix-chrome-error-with-fb-videos-for-2024/"><u>Fix Chrome Error with FB Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigative-study-oculus-q2-uptake-among-hacked-facebookers/"><u>Investigative Study: Oculus Q2 Uptake Among Hacked Facebookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-etiquette-for-business-pages-blocking-users/"><u>Social Etiquette for Business Pages: Blocking Users</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

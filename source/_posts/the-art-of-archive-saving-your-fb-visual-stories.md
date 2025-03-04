@@ -1,7 +1,7 @@
 ---
 title: "The Art of Archive: Saving Your Fb Visual Stories"
-date: 2025-02-12T21:13:37.862Z
-updated: 2025-02-15T08:16:21.001Z
+date: 2025-02-25T18:29:49.522Z
+updated: 2025-03-04T16:19:18.166Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Download Facebook Photos
 
 ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -44,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
  You can use this method to download Facebook photos. It's as simple as that.
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Download Facebook Albums
 
@@ -80,10 +68,6 @@ Follow these steps to download your Facebook album:
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
 4. Click**Request a download** from the pop-up.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
 
@@ -97,10 +81,6 @@ Follow these steps to download your Facebook album:
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  After submitting the request, Facebook will take you back to the**Download your information** page, indicating you have a pending request.
 
@@ -156,17 +136,19 @@ Here's how to use it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unravel-enigmas-your-guide-to-elite-escape-spaces/"><u>[New] 2024 Approved Unravel Enigmas Your Guide to Elite Escape Spaces</u></a></li>
-<li><a href="https://android-frp.techidaily.com/amd-raises-the-bar-with-epyc-chips-outshining-nvidias-arm-based-grace-cpu-in-benchmark-speeds-by-200/"><u>AMD Raises the Bar with EPYC Chips, Outshining Nvidia's Arm-Based Grace CPU in Benchmark Speeds by 200%</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-methods-to-discover-new-social-media-clusters/"><u>Essential Methods to Discover New Social Media Clusters</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-advertising-head-carolyn-everson-announces-her-resignation/"><u>Facebook Advertising Head Carolyn Everson Announces Her Resignation</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/gratis-wav-to-swf-konverteren-betrouwbare-online-toegang-movavi/"><u>Gratis WAV-to-SWF Konverteren: Betrouwbare Online Toegang - Movavi</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-realme-c51-drfone-by-drfone-android/"><u>How to Screen Mirroring Realme C51? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/reverting-card-invalid-status-in-sony-gaming-system/"><u>Reverting Card Invalid Status in Sony Gaming System</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviewing-past-friendships-on-fb-platform/"><u>Reviewing Past Friendships on FB Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pathway-to-obscurity-ending-the-facebook-era/"><u>The Pathway to Obscurity: Ending the Facebook Era</u></a></li>
-<li><a href="https://facebook.techidaily.com/uk-soccer-teams-quit-instagram-in-protest-of-cyberbullying-tactics/"><u>UK Soccer Teams Quit Instagram in Protest of Cyberbullying Tactics</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-11-unifying-device-use-for-effortless-stickies/"><u>Windows 11: Unifying Device Use for Effortless Stickies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-elite-selection-of-ultra-hd-4k-mirrorless-cams-for-2024/"><u>[New] The Elite Selection of Ultra-HD 4K Mirrorless Cams for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instantaneous-instagram-video-experience/"><u>[Updated] 2024 Approved Instantaneous Instagram Video Experience</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722879830344-android-phone-no-call-functionality-follow-these-steps-to-fix-it/"><u>Android Phone No Call Functionality? Follow These Steps to Fix It!</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-your-personal-data-like-phone-no-at-risk-from-facebook/"><u>Are Your Personal Data, Like Phone No., At Risk From Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-digital-dustbin-efficiently-erase-facebook-comments/"><u>Avoid Digital Dustbin: Efficiently Erase Facebook Comments</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-google-pixel-8-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Google Pixel 8? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/chamber-conquest-strategies-for-communication-newbies/"><u>Chamber Conquest Strategies for Communication Newbies</u></a></li>
+<li><a href="https://facebook.techidaily.com/closing-the-door-on-public-to-your-fb-photos/"><u>Closing the Door on Public to Your Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-circles-hide-your-fb-connections/"><u>Covert Circles: Hide Your Fb Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-social-ties-facebook-memory-blocking-guide/"><u>Cut Social Ties: Facebook Memory Blocking Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhance-mobile-conversations-with-unique-whatsapp-alerts-for-ios-and-android/"><u>Enhance Mobile Conversations with Unique WhatsApp Alerts for iOS & Android</u></a></li>
+<li><a href="https://article-files.techidaily.com/enhance-photo-clarity-with-snapchats-zoom-function/"><u>Enhance Photo Clarity with Snapchat's Zoom Function</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/step-by-step-tutorial-on-self-guided-iphone-data-deletion/"><u>Step-by-Step Tutorial on Self-Guided iPhone Data Deletion</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932764-9781855844995-the-east-in-the-light-of-the-west/"><u>The East in the Light of the West | Free Book</u></a></li>
 </ul></div>
 

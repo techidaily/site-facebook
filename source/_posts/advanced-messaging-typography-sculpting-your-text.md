@@ -1,7 +1,7 @@
 ---
 title: "Advanced Messaging Typography: Sculpting Your Text"
-date: 2024-08-28T02:56:28.918Z
-updated: 2024-08-29T02:56:28.918Z
+date: 2025-03-01T18:15:10.087Z
+updated: 2025-03-04T20:12:02.024Z
 tags:
   - facebook
 categories:
@@ -39,18 +39,12 @@ thumbnail: https://thmb.techidaily.com/46f8f3c70815f152419419ddd699d5297d1d12c7e
 
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
 ## How to Use Strikethrough Text in Messenger
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
@@ -59,25 +53,16 @@ thumbnail: https://thmb.techidaily.com/46f8f3c70815f152419419ddd699d5297d1d12c7e
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
  Most texts you'll see online will have proportional spacing—where each character occupies only as much width as it needs. Monospaced text has each character occupying the same amount of space.
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
 To send text in a block of code:
@@ -90,25 +75,17 @@ To send text in a block of code:
 
  This will send your text with code formatting. This is just one of the many [things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## Customize Your Facebook Messages With Text Formatting
 
  Text formatting can really change how people interpret your messages. While you won't be using a typographical emphasis in Messenger all the time, it's handy knowledge to have for when you do need it.
 
  Just remember that while you can send formatted text on the app, it only appears in the formatted style on the web version of Messenger.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,8 +94,22 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/onquer-the-crowd-initiating-your-top-ranked-gaming-channel-for-2024/"><u>[New] Conquer the Crowd Initiating Your Top-Ranked Gaming Channel for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-essential-first-steps-for-mastering-insta-chat-rooms-for-2024/"><u>[Updated] Essential First Steps for Mastering Insta Chat Rooms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/businesses-ready-for-a-social-revolution-facebooks-newsfeed-evolution/"><u>Businesses Ready for a Social Revolution: Facebook's Newsfeed Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-one-platform-to-another-introducing-metas-digital-evolution/"><u>From One Platform to Another: Introducing Meta's Digital Evolution</u></a></li>
+<li><a href="https://win-special.techidaily.com/getting-to-know-kelsey-a-deep-dive-into-the-biography-of-a-renowned-writer/"><u>Getting to Know Kelsey: A Deep Dive Into the Biography of a Renowned Writer</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-facebooks-tool-for-mindful-boundary-setting/"><u>Harnessing Facebook’s Tool for Mindful Boundary Setting</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-safe-is-my-phone-info-from-social-media-leaks/"><u>How Safe Is My Phone Info From Social Media Leaks?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-samsung-galaxy-a14-4g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Samsung Galaxy A14 4G Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-trending-images-tales-behind-the-graphics/"><u>In 2024, Top Trending Images Tales Behind the Graphics</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-new-password-implementation-on-facebook/"><u>Instructions: New Password Implementation on Facebook</u></a></li>
+<li><a href="https://discover-able.techidaily.com/losung-fur-nicht-erkannte-sata-festplatten-im-bios-system/"><u>Lösung Für Nicht Erkannte SATA-Festplatten Im BIOS-System</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-trusted-user-program-now-for-us-members/"><u>Meta's Trusted User Program: Now for U.S. Members</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-canadian-telecom-how-fongo-outperforms-other-voip-services/"><u>Navigating Canadian Telecom: How Fongo Outperforms Other VoIP Services</u></a></li>
+<li><a href="https://fox-access.techidaily.com/syncing-visual-elements-across-platforms/"><u>Syncing Visual Elements Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-stories-behind-4-major-declines-in-facebook-usage/"><u>The Hidden Stories Behind 4 Major Declines in Facebook Usage</u></a></li>
+</ul></div>
 

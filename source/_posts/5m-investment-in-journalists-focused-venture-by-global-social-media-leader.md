@@ -1,7 +1,7 @@
 ---
 title: $5M Investment in Journalists-Focused Venture by Global Social Media Leader
-date: 2024-08-23T02:09:47.538Z
-updated: 2024-08-24T02:09:47.538Z
+date: 2025-03-01T18:19:52.273Z
+updated: 2025-03-04T20:24:19.003Z
 tags:
   - facebook
 categories:
@@ -39,14 +39,11 @@ thumbnail: https://thmb.techidaily.com/b744c16caf8d91ab5e04778eef04ae38bd5e09c87
 
  Recently, Facebook clashed with the Australian government over whether it should be paying news outlets for content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -55,12 +52,20 @@ thumbnail: https://thmb.techidaily.com/b744c16caf8d91ab5e04778eef04ae38bd5e09c87
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-advanced-guide-to-excellence-full-screen-preview-in-premiere/"><u>[New] In 2024, Advanced Guide to Excellence Full Screen Preview in Premiere</u></a></li>
+<li><a href="https://article-tips.techidaily.com/chuckling-chronicles-your-essential-meme-tools-list/"><u>Chuckling Chronicles Your Essential Meme Tools List</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-hurdles-in-your-social-network/"><u>Dismantling Hurdles in Your Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-reload-trump-era/"><u>Facebook & Instagram Reload Trump Era</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/get-clear-coffee-stain-free-images-using-ioss-free-app/"><u>Get Clear, Coffee Stain-Free Images Using iOS's Free App</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-deskjet-2755e-printer-software-download-and-install-guide-for-windows/"><u>HP DeskJet 2755E Printer Software Download & Install Guide for Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-evading-cybernetic-swindlers/"><u>Master the Art of Evading Cybernetic Swindlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/shield-personal-data-dont-use-these-3-suspect-apps/"><u>Shield Personal Data: Don't Use These 3 Suspect Apps</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-the-issue-city-skylines-2-wont-start/"><u>Solving the Issue: City Skylines 2 Won't Start</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-modifying-your-facebook-handle/"><u>Step-by-Step Guide to Modifying Your Facebook Handle</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-tecno-spark-20c-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Tecno Spark 20C</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-for-resolving-twitch-error-4000/"><u>Troubleshooting Guide for Resolving Twitch Error 4000</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-economics-of-music-sharing-on-facebook/"><u>Unveiling The Economics of Music Sharing on Facebook</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

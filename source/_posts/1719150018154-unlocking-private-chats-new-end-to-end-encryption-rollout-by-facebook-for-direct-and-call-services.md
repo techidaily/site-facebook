@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Private Chats: New End-to-End Encryption Rollout by Facebook for Direct & Call Services."
-date: 2024-08-28T02:58:44.525Z
-updated: 2024-08-29T02:58:44.526Z
+date: 2025-03-03T17:27:46.063Z
+updated: 2025-03-04T20:32:52.148Z
 tags:
   - facebook
 categories:
@@ -41,14 +41,11 @@ thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca35642
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -57,12 +54,24 @@ thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca35642
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-sony-blu-ray-player-s3700-analysis-updated/"><u>[New] Sony Blu-Ray Player S3700 Analysis (Updated)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-best-linux-screen-capture-software-ranked/"><u>[Updated] 2024 Approved Best Linux Screen Capture Software Ranked</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-stream-like-a-champion-top-3-techniques-for-successful-lol-gameplay-capture/"><u>[Updated] In 2024, Stream Like a Champion Top 3 Techniques for Successful LOL Gameplay Capture</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/avoiding-security-pitfalls-why-chatgpt-may-not-be-trustworthy-for-personal-details/"><u>Avoiding Security Pitfalls: Why ChatGPT May Not Be Trustworthy for Personal Details</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expert-tips-for-utilizing-luts-within-adobe-after-effects/"><u>Expert Tips for Utilizing LUTs Within Adobe After Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-wearable-experiment-could-include-two-detachable-cameras/"><u>FB's Wearable Experiment: Could Include Two Detachable Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-ban-a-profile-from-your-facebook-page/"><u>How to Ban a Profile From Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/into-the-metaverse-understanding-6-significant-facebook-changes/"><u>Into the Metaverse: Understanding 6 Significant Facebook Changes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-the-skies-of-star-wars-squadrons-how-to-avoid-and-solve-game-crashes/"><u>Mastering the Skies of Star Wars Squadrons - How to Avoid and Solve Game Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/refine-your-facebook-experience-ideal-mobile-settings/"><u>Refine Your Facebook Experience: Ideal Mobile Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/system-shutdown-fb-wa-ig-services-offline/"><u>System Shutdown: FB, WA, IG Services Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
+<li><a href="https://win11.techidaily.com/the-complete-guide-to-mastering-backdrop-blur-on-w11-photo-interface/"><u>The Complete Guide to Mastering Backdrop Blur on W11 Photo Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-setting-up-fbs-2fa-system/"><u>The Ultimate Guide to Setting Up FB's 2FA System</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transforming-belief-into-binary-the-top-8-ways-artificial-intelligence-makes-fiction-a-reality/"><u>Transforming Belief Into Binary: The Top 8 Ways Artificial Intelligence Makes Fiction a Reality</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-filmora-13-free-download-professional-video-editing-software-for-2024/"><u>Updated Filmora 13 Free Download Professional Video Editing Software for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->

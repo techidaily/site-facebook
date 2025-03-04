@@ -1,7 +1,7 @@
 ---
 title: Accessing Ancestral Social Ties in Facebook Timeline
-date: 2024-08-28T02:54:39.739Z
-updated: 2024-08-29T02:54:39.739Z
+date: 2025-03-03T18:29:33.880Z
+updated: 2025-03-04T20:47:30.811Z
 tags:
   - facebook
 categories:
@@ -43,19 +43,10 @@ thumbnail: https://thmb.techidaily.com/afa50b24e25ed08989c229ae73d3b233da6ab60b7
 
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
  Using the URL is a little more complicated, but still useful. Follow these steps:
@@ -69,23 +60,8 @@ Close
 
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -94,23 +70,6 @@ Close
 
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -119,14 +78,11 @@ Key features:
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,8 +91,23 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-essential-guide-recording-netflix-videos-on-a-mac/"><u>[New] Essential Guide Recording Netflix Videos on a Mac</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-premium-online-platforms-for-effective-discord-recordings/"><u>[New] Premium Online Platforms for Effective Discord Recordings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-pro-stream-wars-choosing-between-vmix-and-wirecast/"><u>[Updated] In 2024, Pro-Stream Wars Choosing Between VMix and Wirecast</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-5-best-apps-blending-visual-storytelling-and-music/"><u>2024 Approved 5 Best Apps Blending Visual Storytelling & Music</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-fight-for-finesse-the-best-of-royale-battles/"><u>2024 Approved Fight for Finesse The Best of Royale Battles</u></a></li>
+<li><a href="https://win-webster.techidaily.com/choose-the-iso-file-you-want-to-use-for-creating-the-boot-disk/"><u>Choose the ISO File You Want to Use for Creating the Boot Disk.</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-messengers-evolution-embrace-soundmojis/"><u>Decoding Messenger's Evolution: Embrace Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facts-facebooks-impending-name-switch/"><u>Dissecting Facts: Facebook’s Impending Name Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-interaction-with-customizable-url-pairings-on-facebook/"><u>Enhancing Interaction with Customizable URL Pairings on Facebook</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-advice-how-to-diagnose-and-fix-crashing-problems-in-forza-horizon-5-for-personal-computers/"><u>Expert Advice: How to Diagnose and Fix Crashing Problems in Forza Horizon 5 for Personal Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-impact-a-double-edged-sword/"><u>Facebook's Impact: A Double-Edged Sword</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-apple-device-orientation-issues-landscape-mode-not-responding/"><u>Fix Apple Device Orientation Issues - Landscape Mode Not Responding?</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-cyber-world-elude-this-trio-of-intruders/"><u>Guard Your Cyber World: Elude This Trio of Intruders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-deal-with-youtube-trolls-and-negative-comments/"><u>How To Deal with YouTube Trolls and Negative Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencer-impact-covid-misinformation-spread/"><u>Influencer Impact: Covid Misinformation Spread</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-facebook-disablement-mysteries/"><u>Untangling Facebook Disablement Mysteries</u></a></li>
+</ul></div>
 

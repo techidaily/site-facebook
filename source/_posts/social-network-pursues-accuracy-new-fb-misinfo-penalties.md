@@ -1,7 +1,7 @@
 ---
 title: "Social Network Pursues Accuracy: New FB Misinfo Penalties"
-date: 2025-02-11T13:30:12.777Z
-updated: 2025-02-14T16:23:50.977Z
+date: 2025-02-28T17:50:42.850Z
+updated: 2025-03-04T19:44:26.499Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Makes Misinformation Less Attractive
 
  Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
@@ -36,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
  This means that anyone who is friends with or follows that user will really have to dig through their News Feed in order to find that person's posts, whether they contain misinformation or not. Facebook's new penalty might be a bit extreme, but the platform clearly believes that this will put a stop to the spread of misinformation.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Is Also Pushing New Notifications
 
  Facebook has also rolled out a new notification that informs users if they're about to like a Page that has been repeatedly fact-checked. If a user tries to follow a Page that has shared misinformation multiple times, Facebook will ask the user to reconsider their decision.
@@ -48,27 +40,15 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 ![Facebook Pages misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-misinformation-pages.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Facebook
 
  Facebook has also revamped its notification that tells users if a post they shared was later debunked by fact-checkers. Now, the notification will tell users why a post was fact-checked, and will also include a brief explanation from the fact-checker.
 
 ![Fact checker notification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fact-checker-notification.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Facebook
 
  The notification also warns users that people "who repeatedly share false information might have their posts moved lower in News Feed so other people are less likely to see them." Users will then have the choice to either delete their post, or they can click a link to find out more about Facebook's fact-checking policies.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Will Facebook's Strict Misinformation Policies Pay Off?
 
@@ -91,21 +71,21 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-crafting-content-that-captivates-instagrams-roadmap-to-success/"><u>[New] 2024 Approved Crafting Content that Captivates Instagram’s Roadmap to Success</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-behind-the-scenes-how-to-master-voice-manipulation-with-free-tools-for-2024/"><u>[New] Behind the Scenes How to Master Voice Manipulation with Free Tools for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-enhancing-iphone-x-usability-fixing-face-id-issues/"><u>[New] Enhancing iPhone X Usability Fixing Face ID Issues</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-how-to-capture-a-screenshot-or-video-of-whats-showing-on-your-mac-computer/"><u>[Updated] 2024 Approved How to Capture a Screenshot or Video of What's Showing On Your Mac Computer</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-why-do-my-photoshoot-videos-grind-to-a-halt-in-2024/"><u>[Updated] Why Do My Photoshoot Videos Grind to a Halt, In 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-facebooks-popularity-stability-point/"><u>Evaluating Facebook’s Popularity Stability Point</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-the-effectiveness-and-limitations-of-using-facebook-for-events/"><u>Evaluating the Effectiveness and Limitations of Using Facebook for Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-digital-evolution-the-top-six-metaverse-highlights/"><u>Facebook's Digital Evolution: The Top Six Metaverse Highlights</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-download-youtube-videos-without-any-software-13-proven-ways-for-2024/"><u>How to Download YouTube Videos without Any Software [13 Proven Ways] for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-overcome-continuous-system-lag-and-keep-your-computer-running-smoothly/"><u>How to Overcome Continuous System Lag and Keep Your Computer Running Smoothly</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-techniques-for-moving-media-from-iphones/"><u>In 2024, Comprehensive Techniques for Moving Media From iPhones</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-chronicles-dispelling-social-media-myths/"><u>The Metaverse Chronicles: Dispelling Social Media Myths</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-social-impact-of-dislike-buttons/"><u>Understanding the Social Impact of Dislike Buttons</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-your-facebook-fanbase/"><u>Unveiling Your Facebook Fanbase</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/venturing-beyond-reality-understanding-vr-basics-for-2024/"><u>Venturing Beyond Reality Understanding VR Basics for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-ray-ban-stories-facebook-explains-and-pricing-details/"><u>What Are Ray-Ban Stories? Facebook Explains & Pricing Details</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-keeping-viewers-hooked-the-ultimate-guide-for-enhanced-audience-loyalty-on-youtube/"><u>[Updated] 2024 Approved Keeping Viewers Hooked The Ultimate Guide for Enhanced Audience Loyalty on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-youtube-presentations-with-imovie-editing-skills/"><u>2024 Approved Elevate Your YouTube Presentations with iMovie Editing Skills</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-enhancing-your-social-presence-facebook-bios-101/"><u>2024 Approved Enhancing Your Social Presence Facebook Bios 101</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-perfecting-game-capture-techniques-and-tricks/"><u>2024 Approved Perfecting Game Capture Techniques & Tricks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-social-media-influencers-secret-creating-captivating-facebook-biographies/"><u>2024 Approved Social Media Influencers' Secret Creating Captivating Facebook Biographies</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-smart-social-networking-balancing-favorites-and-blocks-on-facebook/"><u>A Guide to Smart Social Networking: Balancing Favorites & Blocks on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-forum-messages-lasting-impressions/"><u>Are Forum Messages Lasting Impressions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/battling-fake-news-facebook-introduces-stricter-rules/"><u>Battling Fake News: Facebook Introduces Stricter Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-unpacking-metamate-meanings/"><u>Behind-The-Scenes: Unpacking 'Metamate' Meanings</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-productivity-and-peace-using-facebooks-reminder-feature/"><u>Boost Productivity and Peace Using Facebook’s Reminder Feature</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cing-engagement-professional-pc-techniques-for-youtube-editors-for-2024/"><u>Enhancing Engagement Professional PC Techniques for YouTube Editors for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-reactivate-printer-spooler-service-after-halt-message/"><u>How to Reactivate Printer Spooler Service After Halt Message</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-dot-file-document-online-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign a .dot file document online</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150150084-panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing.</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149918094-protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls.</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-to-setting-up-the-crew-sports-extension-in-kodi-version-190-matrix/"><u>Step-by-Step Guide to Setting Up The Crew Sports Extension in Kodi Version 19.0 Matrix</u></a></li>
 </ul></div>
 

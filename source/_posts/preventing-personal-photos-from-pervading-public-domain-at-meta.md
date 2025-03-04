@@ -1,7 +1,7 @@
 ---
 title: Preventing Personal Photos From Pervading Public Domain at Meta
-date: 2025-02-08T03:45:23.038Z
-updated: 2025-02-14T23:37:55.006Z
+date: 2025-02-28T18:30:39.557Z
+updated: 2025-03-04T18:41:25.580Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Meta Joins Take It Down To Prevent Sextortion
 
 ![a woman with her son at a desktop computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/parenta-control-featured.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Meta announced in a February 2023 press release that they will be joining an effort to stop and prevent the spread of young people’s intimate images online. Instagram and Facebook will be founding members of Take It Down, the new platform initiative from the National Center for Missing and Exploited Children (NCMEC).
 
@@ -46,25 +38,13 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 
  Intimate images, like those including nudity, and content that exploits young people, are already not allowed on Meta’s platforms. Meta’s work with NCMEC will hopefully prevent more content like this from being posted. The enforcement of the guidelines before this was largely retroactive instead of proactive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Meta Also Announces Safety Update to Instagram
 
 ![User using iPhone Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/theives-stealing-iphones-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Instagram also introduced safety updates to make it more difficult for suspicious adults to interact with teens on the app including direct messages and comments. Teen accounts will also receive notifications to update their privacy settings if a suspicious adult tries to interact with their account.
 
  These features are in addition to other safety features on Instagram, including many specifically for teens like[activating parental supervision on teen Instagram accounts](https://www.makeuseof.com/instagram-how-to-activate-parental-supervision/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Meta Is Working to Prevent Intimate Image Sharing
 
@@ -85,19 +65,20 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-enhancing-video-quality-with-right-lighting-for-2024/"><u>[New] Enhancing Video Quality with Right Lighting for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-blades-vivid-palette-now-in-stunning-4k-clarity/"><u>[Updated] In 2024, Blade's Vivid Palette, Now in Stunning 4K Clarity</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-micro-music-moments-character-compositions/"><u>[Updated] Micro-Music Moments Character Compositions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-streamlining-video-content-with-effective-xml-ttml-and-srt-solutions-for-2024/"><u>[Updated] Streamlining Video Content with Effective XML, TTML & SRT Solutions for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-practical-guide-to-downloading-audio-content-from-pinterest/"><u>A Practical Guide to Downloading Audio Content From Pinterest</u></a></li>
-<li><a href="https://facebook.techidaily.com/fresh-laws-on-the-horizon-for-americas-big-tech-firms/"><u>Fresh Laws on the Horizon for America's Big Tech Firms</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-galaxy-m34-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Galaxy M34 5G</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo X Fold 2? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrated-content-management-sharing-instagram-reels-with-fb-friends/"><u>Integrated Content Management: Sharing Instagram Reels with FB Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/method-to-muffle-facebook-history-footprints/"><u>Method to Muffle Facebook History Footprints</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/techniques-to-procure-free-visual-frame-videos/"><u>Techniques to Procure Free Visual Frame Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-imperative-for-more-stringent-online-fraud-control-by-tech-firms/"><u>The Imperative for More Stringent Online Fraud Control by Tech Firms</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-mystery-of-shadowbanning-definition-and-prevention/"><u>The Mystery of Shadowbanning: Definition & Prevention</u></a></li>
-<li><a href="https://facebook.techidaily.com/upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-become-a-streaming-guru-utilizing-zooms-features-for-effective-youtube-broadcasts/"><u>[New] 2024 Approved Become a Streaming Guru Utilizing Zoom's Features for Effective YouTube Broadcasts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-an-inside-look-at-magix-vpxs-advanced-techniques/"><u>[New] In 2024, An Inside Look at Magix VPX's Advanced Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-secret-to-professional-video-calls-on-zoom/"><u>[Updated] 2024 Approved The Secret to Professional Video Calls on Zoom</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-enhance-professionalism-update-google-meet-displays/"><u>[Updated] In 2024, Enhance Professionalism Update Google Meet Displays</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-one-airpod-not-working-how-to-fix-it/"><u>2024 Approved One Airpod Not Working How to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-digital-dissonance-against-facebook-like-platforms/"><u>Delving Into the Digital Dissonance Against Facebook-Like Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-diaries-what-instagrams-advice-to-unplug-reveals/"><u>Digital Detox Diaries: What Instagram's Advice to Unplug Reveals</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dynamics-making-friends-without-feuds/"><u>Digital Dynamics: Making Friends without Feuds</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-expression-a-double-edged-sword/"><u>Digital Expression: A Double-Edged Sword</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-finest-free-tools-for-socio-networking/"><u>Discover the Finest Free Tools for Socio Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebook-for-event-management-successes-and-failures/"><u>Dissecting Facebook for Event Management Successes and Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-methods-to-retract-online-tales-on-fb/"><u>Efficient Methods to Retract Online Tales on FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-sony-xperia-5-v-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Sony Xperia 5 V Phone?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/no-more-clutter-go-barebone-with-windows-11/"><u>No More Clutter: Go Barebone with Windows 11</u></a></li>
 </ul></div>
 

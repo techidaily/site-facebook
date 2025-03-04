@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2025-02-08T02:10:58.196Z
-updated: 2025-02-15T00:11:31.061Z
+date: 2025-03-02T20:01:24.902Z
+updated: 2025-03-04T19:20:30.678Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Growing the Independent Creator Space
 
  The publishing platform was initially announced by Facebook in March. Among its features for writers is a free, self-publishing tool for creating and sending newsletters, integration with Facebook Pages, the ability for journalists to create Facebook Groups to grow community support, a dashboard to help writers understand how their content is performing, and more.
@@ -39,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  Facebook is reportedly looking to promote independent journalism from underrepresented voices. Initially, it is open to journalists in the United States to apply for---beginning Thursday, April 29---with priority given to those who cover news for "Black, Indigenous, Latinx, Asian or other audiences of color." Weighting will also be in favor of geographic locations which do not currently have news outlets.
 
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's News Drive
 
@@ -67,24 +59,20 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-best-15-luts-for-enhanced-gopro-footage-quality/"><u>[New] Best 15 LUTs for Enhanced GoPro Footage Quality</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-snap-a-different-shot-11-best-instagram-tools/"><u>[New] In 2024, Snap A Different Shot - 11 Best Instagram Tools</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-heaviest-airborran-aerial-haulers-ultimate-choices/"><u>[Updated] Heaviest Airborran Aerial Haulers - Ultimate Choices</u></a></li>
-<li><a href="https://program-issues.techidaily.com/beat-the-hurdles-of-non-responsive-logitech-gaming-applications-expert-fixes-inside/"><u>Beat the Hurdles of Non-Responsive Logitech Gaming Applications – Expert Fixes Inside</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>Boosting Your Channel Strategies for Skyrocketing View Counts</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-llifes-viability-as-we-step-into-the-metaverse/"><u>Examining LLife's Viability As We Step Into the Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-digital-presence-practical-steps-to-add-2fa-to-gmail-and-outlook-accounts/"><u>Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-video-merger-software-alternatives-online-tools-you-need/"><u>In 2024, Free Video Merger Software Alternatives Online Tools You Need</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/mac-video-editing-made-easy-vn-video-editor-and-its-alternatives-for-2024/"><u>Mac Video Editing Made Easy VN Video Editor and Its Alternatives for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/maximize-efficiency-with-our-top-rated-power-strip-now-available-for-a-steal-on-amazon-zdnets-picks/"><u>Maximize Efficiency with Our Top-Rated Power Strip, Now Available for a Steal on Amazon (ZDNET's Picks)!</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethinking-whispers-insights-on-fb-investigations/"><u>Rethinking Whispers: Insights on FB Investigations</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/solo-mode-living-without-a-facebook-pal/"><u>Solo Mode: Living Without a Facebook Pal</u></a></li>
-<li><a href="https://facebook.techidaily.com/sync-up-sports-facebook-twitter-unite-for-the-league/"><u>Sync-Up Sports: Facebook, Twitter Unite for the League</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls.</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/techniques-to-improve-focal-depth-in-online-platforms/"><u>Techniques to Improve Focal Depth in Online Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-the-art-of-facebook-seo-top-ten-must-knows-for-2024/"><u>[New] Mastering the Art of Facebook SEO Top Ten Must-Knows for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-experts-guide-quick-removal-of-your-youtube-comments/"><u>[New] The Expert's Guide Quick Removal of Your Youtube Comments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-the-visual-storyteller-youtube-cinematic-training/"><u>2024 Approved Mastering the Visual Storyteller YouTube Cinematic Training</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-samsung-galaxy-a54-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-xiaomi-14-ultra-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Xiaomi 14 Ultra Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-step-by-step-tutorial-to-monitor-popular-interactions-on-youtube/"><u>In 2024, A Step-by-Step Tutorial to Monitor Popular Interactions on YouTube</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-honor-90-gt-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Honor 90 GT to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-social-network-to-honor-all-groupies/"><u>Leveraging Social Network to Honor All Groupies</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-solidity-amidst-storms-what-are-crypto-stability-tokens/"><u>Seeking Solidity Amidst Storms: What Are Crypto Stability Tokens?</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-social-space-management-with-facebooks-latest-tools/"><u>Streamlining Social Space Management with Facebook's Latest Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-face-whistleblower-and-their-message/"><u>The Face Whistleblower and Their Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-and-implementation-of-sleep-mode-on-messenger-kids-platform/"><u>The Importance & Implementation of Sleep Mode on Messenger Kids Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-internet-connection-expert-advice-from-yl-computing/"><u>Troubleshooting Guide: How to Fix an Unresponsive Internet Connection - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-the-tables-on-fb-with-off-facebook-activity-insight/"><u>Turn the Tables on FB with Off-Facebook Activity Insight</u></a></li>
 </ul></div>
 

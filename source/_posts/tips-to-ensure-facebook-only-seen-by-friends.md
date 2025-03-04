@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2025-02-14T08:15:33.795Z
-updated: 2025-02-14T16:34:13.950Z
+date: 2025-02-25T19:27:58.840Z
+updated: 2025-03-04T16:17:11.154Z
 tags:
   - facebook
 categories:
@@ -37,15 +37,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -84,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Change Your Facebook Post Settings
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
@@ -100,14 +88,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
 
@@ -130,22 +110,17 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-getting-started-with-snapchat-a-mac-users-guide/"><u>[Updated] 2024 Approved Getting Started with Snapchat A Mac User's Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-precision-videography-at-your-fingertips-phones-with-top-tier-image-stabilization/"><u>[Updated] Precision Videography at Your Fingertips Phones with Top-Tier Image Stabilization</u></a></li>
-<li><a href="https://facebook.techidaily.com/harness-your-platforms-5-revenue-generating-strategies-for-fb-and-insta/"><u>Harness Your Platforms: 5 Revenue-Generating Strategies for FB and Insta</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-motorola-edge-2023-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Motorola Edge 2023 to PC? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-google-pixel-fold-phone-by-drfone-android/"><u>How to Unlock a Network Locked Google Pixel Fold Phone?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-tecno-spark-20-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Tecno Spark 20 by Name | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-a1x-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo A1x 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-look-how-social-media-pros-became-social-innovators/"><u>Inside Look: How Social Media Pros Became 'Social Innovators'</u></a></li>
-<li><a href="https://facebook.techidaily.com/ios-145-update-introduces-new-problems-for-facebook/"><u>IOS 14.5 Update Introduces New Problems for Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/samsung-galaxy-watch-call-troubleshooting-techniques-what-to-do-when-you-cant-receive-calls/"><u>Samsung Galaxy Watch Call Troubleshooting Techniques: What to Do When You Can't Receive Calls</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-facebook-presence-after-unauthorized-access/"><u>Secure Your Facebook Presence After Unauthorized Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplifying-the-removal-of-fb-news-updates/"><u>Simplifying the Removal of FB News Updates</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-gamer-friendly-smartphones-features-and-reviews-techradar/"><u>Top 5 Gamer-Friendly Smartphones - Features and Reviews | TechRadar</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitters-approach-sparks-facebooks-info-share-initiative/"><u>Twitter's Approach Sparks Facebook's Info-Share Initiative</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-even-when-codes-are-gone/"><u>Unlocking Your Facebook, Even When Codes Are Gone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unveiling-the-top-12-low-cost-video-apps-for-devices-everywhere/"><u>Unveiling the Top 12 Low-Cost Video Apps for Devices Everywhere</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-qualifies-for-participation-in-facebook-communities/"><u>Who Qualifies for Participation in Facebook Communities?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-exclusive-moba-selection-for-android-gamers/"><u>[New] Exclusive MOBA Selection for Android Gamers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boosting-income-through-effective-video-marketing/"><u>[Updated] Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-youtube-video-quality-minimize-distractions/"><u>[Updated] Elevate YouTube Video Quality, Minimize Distractions</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-clean-conversations-utilizing-facebooks-groups-moderation-innovations/"><u>A Guide to Clean Conversations: Utilizing Facebook's Groups Moderation Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-visual-dictionary-understanding-online-social-symbolism/"><u>A Visual Dictionary: Understanding Online Social Symbolism</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-breakdown-a-comprehensive-list-of-30-must-know-abbreviations-for-users/"><u>Buzzword Breakdown: A Comprehensive List of 30 Must-Know Abbreviations for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-cord-deletion-steps-for-virtual-communities/"><u>Cutting the Cord: Deletion Steps for Virtual Communities</u></a></li>
+<li><a href="https://win-forum.techidaily.com/essential-steps-to-abruptly-end-hanging-windows-apps-without-revouninstaller/"><u>Essential Steps to Abruptly End Hanging Windows Apps Without RevoUninstaller</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-prevent-age-of-empires-4-from-continuously-crashing-on-windowsmacos/"><u>How to Prevent Age of Empires 4 From Continuously Crashing on Windows/MacOS</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-motorola-razr-40-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Motorola Razr 40</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-startup-problems-with-back-4-blood-a-step-by-nstep-guide-for-windows-devices/"><u>Resolving Startup Problems with 'Back 4 Blood': A Step-by-nStep Guide for Windows Devices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/step-by-step-guide-converting-tod-videos-into-mp4-avi-and-other-formats/"><u>Step-by-Step Guide: Converting TOD Videos Into MP4, AVI, and Other Formats</u></a></li>
 </ul></div>
 

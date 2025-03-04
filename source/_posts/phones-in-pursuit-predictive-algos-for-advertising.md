@@ -1,7 +1,7 @@
 ---
 title: "Phones in Pursuit: Predictive Algos for Advertising?"
-date: 2025-02-11T22:49:52.308Z
-updated: 2025-02-14T20:38:25.940Z
+date: 2025-02-26T16:48:43.546Z
+updated: 2025-03-04T19:20:11.591Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -43,10 +39,6 @@ What is going on?
  They believe that smartphone microphones are being used to record what they say, with the information used to[better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
 
@@ -63,10 +55,6 @@ What is going on?
 > _The next day, all my ads on chrome were about Nespresso.. I have no issues with ads popping up related to things I've searched by voice or type. But it did feel a bit invasive being constantly listened to and for private conversations to be used as a means to target ads at me."_
 
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is My Smartphone Really Listening to Me for Ads?
 
@@ -85,10 +73,6 @@ What is going on?
  Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can You Prove If an App Is Listening to You?
 
@@ -128,10 +112,6 @@ What is going on?
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -159,22 +139,19 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-simple-steps-to-record-your-youtube-streams/"><u>[New] 2024 Approved Simple Steps to Record Your YouTube Streams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-the-upgraded-2023-samsung-bd-j5900/"><u>[New] In 2024, Unveiling the Upgraded 2023 Samsung BD-J5900</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-in-depth-analyzing-lgs-4k-wuhd-hdr-performance/"><u>[New] In Depth Analyzing LG's 4K WUHD HDR Performance</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nnovative-editing-strategies-to-transform-your-youtube-channel/"><u>[New] Innovative Editing Strategies to Transform Your YouTube Channel</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-rectified-hidden-status-of-shorts/"><u>[Updated] Rectified Hidden Status of Shorts</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-community-governance-facebook-unveils-new-admin-features/"><u>Elevating Community Governance: Facebook Unveils New Admin Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-security-get-instagrams-2fa-verification-on-whatsapp/"><u>Enhance Security: Get Instagram's 2FA Verification on WhatsApp</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/exclusive-guide-best-8-cameras-for-dynamic-livestreams/"><u>Exclusive Guide Best 8 Cameras for Dynamic Livestreams</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-funding-writers-platform-as-a-direct-response-to-substacks-growth/"><u>Facebook Funding Writers Platform as a Direct Response to Substack's Growth</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interweaving-your-digital-presence-link-accounts-through-xbox/"><u>Interweaving Your Digital Presence: Link Accounts Through Xbox</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/into-other-worlds-androids-cutting-edge-15-simulation-list-for-2024/"><u>Into Other Worlds Android's Cutting-Edge 15 Simulation List for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-away-from-facebook-data-tracking/"><u>Navigating Away From Facebook Data Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/revelation-poll-indicates-distrust-in-big-technology-firms/"><u>Revelation: Poll Indicates Distrust in Big Technology Firms</u></a></li>
-<li><a href="https://facebook.techidaily.com/suspicious-signs-of-pc-or-email-overuse/"><u>Suspicious Signs of PC or Email Overuse</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-vacation-deleting-the-drama-from-digital-dialogue/"><u>Virtual Vacation: Deleting the Drama From Digital Dialogue</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-snippet-income-breakdown-whats-your-profit-share-for-2024/"><u>YouTube Snippet Income Breakdown What's Your Profit Share for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-best-in-class-streaming-capture-software-for-youtubers/"><u>[Updated] 2024 Approved Best-in-Class Streaming Capture Software For YouTubers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-insights-into-huawei-p10s-software-optimization-and-updates/"><u>[Updated] Insights Into Huawei P10’s Software Optimization and Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrease-personalized-promotions-on-social-platforms/"><u>Decrease Personalized Promotions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-hate-button-pros-and-cons/"><u>Disabling 'Hate' Button: Pros & Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnwhileengage-top-5-revenue-generating-strategies-for-social-media/"><u>EarnwhileEngage: Top 5 Revenue-Generating Strategies for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-implement-2fa-on-facebook-platform/"><u>Easy Steps to Implement 2FA on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-privacy-game-facebooks-secure-strategies-explained/"><u>Elevate Your Privacy Game: Facebook's Secure Strategies Explained</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-pink-screen-of-death-error-on-windows/"><u>How to Fix the Pink Screen of Death Error on Windows</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-no-wi-fi-no-worries-discover-the-best-offline-gaming-on-android/"><u>In 2024, No Wi-Fi, No Worries! Discover the Best Offline Gaming on Android</u></a></li>
+<li><a href="https://win-top.techidaily.com/solution-pour-un-hdd-bruyant-et-qui-ne-demarre-pas/"><u>Solution Pour Un HDD Bruyant Et Qui Ne Démarre Pas</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-oppo-a1x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/why-cant-my-tv-display-dvd-mode-solving-mode-not-supported-error/"><u>Why Can't My TV Display DVD Mode? Solving 'Mode Not Supported' Error</u></a></li>
 </ul></div>
 

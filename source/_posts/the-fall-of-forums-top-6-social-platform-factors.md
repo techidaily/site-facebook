@@ -1,7 +1,7 @@
 ---
 title: "The Fall of Forums: Top 6 Social Platform Factors"
-date: 2025-02-10T06:27:47.420Z
-updated: 2025-02-15T07:52:53.680Z
+date: 2025-03-03T19:55:45.124Z
+updated: 2025-03-04T18:47:47.116Z
 tags:
   - facebook
 categories:
@@ -30,17 +30,9 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Social Media Is Designed to be Attention-Grabbing
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
@@ -52,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
@@ -66,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
@@ -79,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  Facebook Groups are extremely popular, with over[1.8 billion people using them monthly](https://www.searchenginejournal.com/1-8-billion-people-use-facebook-groups-every-month/397109/) . It's no surprise; they are well-designed and make it simple to keep up with conversations. As they are typically narrowly focused on a certain subject, it means that you can get information or conversation on specific subjects without even having to leave the Facebook app.
 
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
 
@@ -105,14 +85,16 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-shortcut-to-engagement-analyzing-facebooks-video-trends/"><u>[Updated] 2024 Approved Shortcut to Engagement Analyzing Facebook's Video Trends</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-superior-smartphone-editors-elevating-your-gopro-shots/"><u>[Updated] Superior Smartphone Editors Elevating Your GoPro Shots</u></a></li>
-<li><a href="https://os-tips.techidaily.com/access-denied-heres-how-you-can-reveal-and-answer-blocked-numbers-on-ios-devices/"><u>Access Denied? Here's How You Can Reveal and Answer Blocked Numbers on iOS Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-clarifies-laugh-worthy-limits/"><u>Facebook Clarifies Laugh-Worthy Limits</u></a></li>
-<li><a href="https://techtrends.techidaily.com/password-woes-step-by-step-guide-to-recover-fb-access-without-emailphone/"><u>Password Woes? Step-by-Step Guide to Recover FB Access Without Email/Phone</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-does-fbcta-mean-for-you-online/"><u>What Does FBCTA Mean for You Online?</u></a></li>
-<li><a href="https://facebook.techidaily.com/zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency.</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153181758-satoshi-sheep-the-ceos-animal-mashup-moniker/"><u>'Satoshi Sheep': The CEO's Animal Mashup Moniker</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-vibrant-video-vibes-merging-melodies-with-media/"><u>[New] 2024 Approved Vibrant Video Vibes Merging Melodies with Media</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-find-peace-and-power-the-10-greatest-yoga-channels-online/"><u>[Updated] 2024 Approved Find Peace & Power The 10 Greatest Yoga Channels Online</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-group-gallery-gatherer/"><u>[Updated] Group Gallery Gatherer</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-high-ranking-investment-for-badge/"><u>Achieve High Ranking: Investment for Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-tech-life-pausing-on-facebook/"><u>Balancing Tech Life: Pausing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metamorphosis-be-beneficial-meta-ai-meets-social-networks/"><u>Can Metamorphosis Be Beneficial: Meta AI Meets Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-sleuthing-for-safety-decoding-the-9-signs-of-account-hijacking/"><u>Cyber Sleuthing for Safety: Decoding the 9 Signs of Account Hijacking</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-futures-virtual-frontier-predicted-top-5-new-ps-vr-titles/"><u>In 2024, Future's Virtual Frontier Predicted Top 5 New PS VR Titles</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/recovering-the-solitary-sound-device-for-2024/"><u>Recovering the Solitary Sound Device for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/understanding-and-solving-windows-process-termination-issue-error-1067/"><u>Understanding and Solving Windows Process Termination Issue, Error 1067</u></a></li>
 </ul></div>
 

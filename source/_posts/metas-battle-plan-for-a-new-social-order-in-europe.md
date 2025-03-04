@@ -1,7 +1,7 @@
 ---
 title: Meta's Battle Plan for a New Social Order in Europe
-date: 2025-02-13T20:36:18.765Z
-updated: 2025-02-14T20:52:36.144Z
+date: 2025-02-28T21:04:19.242Z
+updated: 2025-03-04T20:18:35.024Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Is Meta Threatening to Pull Facebook and Instagram From Europe?
 
  In the full[SEC filing](https://d18rn0p25nwr6d.cloudfront.net/CIK-0001326801/14039b47-2e2f-4054-9dc5-71bcc7cf01ce.pdf) , Meta explains that the recent changes to Privacy Shield will fundamentally alter their business model, making it impossible to offer existing "products and services" to its European users.
@@ -37,10 +33,6 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 > If a new transatlantic data transfer framework is not adopted and we are unable to continue to rely on SCCs or rely upon other alternative means of data transfers from Europe to the United States, we will likely be unable to offer a number of our most significant products and services, including Facebook and Instagram, in Europe, which would materially and adversely affect our business, financial condition, and results of operations.
 
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Is the Privacy Shield No Longer Legal?
 
@@ -51,10 +43,6 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
  Roll forwards to 2020, and the EU Court of Justice found that Privacy Shield, the law that enables US companies and authorities to collect information on EU citizens, was fundamentally flawed. Privacy Shield did not provide enough safeguarding for EU user data (in the EU, user data protection laws are more stringent than the US) and it did not provide adequate means for EU citizens to content issues with the US government regarding personal data privacy breaches.
 
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Will Meta Pull Facebook and Instagram?
 
@@ -83,20 +71,24 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-from-stills-to-movies-a-pixiz-tutorial-for-photo-animators/"><u>[New] From Stills to Movies A Pixiz Tutorial for Photo Animators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-strategies-for-editing-and-elevating-youtube-profiles/"><u>[Updated] In 2024, Strategies for Editing and Elevating YouTube Profiles</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-to-the-rescue-effective-strategies-for-troubleshooting-computer-issues/"><u>ChatGPT to the Rescue: Effective Strategies for Troubleshooting Computer Issues</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-ai-progress-comparing-and-contrasting-key-features-in-gpt-4-versus-gpt-35/"><u>Decoding AI Progress: Comparing and Contrasting Key Features in GPT-4 versus GPT-3.5</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-exercise-routine-with-the-samsung-galaxy-fit-the-top-pick-for-health-tracking/"><u>Elevate Your Exercise Routine with the Samsung Galaxy Fit - The Top Pick for Health Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/erosion-of-trust-in-technology-titans-especially-facebook/"><u>Erosion of Trust in Technology Titans, Especially Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/fact-or-hype-rethinking-our-perceptions-about-facebook-documents/"><u>Fact or Hype? Rethinking Our Perceptions About Facebook Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/forever-lost-post-facebook-data-destiny/"><u>Forever Lost: Post-Facebook Data Destiny</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-tiktoks-meteoric-growth-poses-threat-to-facebooks-revenue/"><u>How TikTok's Meteoric Growth Poses Threat to Facebook's Revenue</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-iphone-15-pro-max-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From iPhone 15 Pro Max? Complete Guide | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stay-incognito-evading-facebooks-eye/"><u>How to Stay Incognito: Evading Facebook’s Eye</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-vr-classics-dont-miss-out/"><u>Top VR Classics - Don’t Miss Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-latest-social-space-design/"><u>Unveiling Facebook's Latest Social Space Design</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-awaits-in-facebooks-news-feed-reels-and-rooms-for-stories/"><u>What Awaits in Facebook's News Feed? Reels & Rooms for Stories</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1740477-9781118701973-you-can-do-this/"><u>You Can Do This | Free Book</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-ultimate-psd-layer-control/"><u>[New] In 2024, Ultimate PSD Layer Control</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-understanding-and-meeting-aspect-ratios-on-twitter/"><u>[New] In 2024, Understanding and Meeting Aspect Ratios on Twitter</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-visual-storytelling-key-shot-techniques-for-beginners/"><u>[Updated] Mastering Visual Storytelling Key Shot Techniques for Beginners</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-screen-capture-central-apowsort-vs-competitors-explored/"><u>[Updated] Screen Capture Central Apowsort vs Competitors Explored</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-who-offers-least-expensive-cloud-storage/"><u>[Updated] Who Offers Least Expensive Cloud Storage ?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-peeling-back-the-layers-of-magix-image-suite/"><u>2024 Approved Peeling Back the Layers of MAGIX Image Suite</u></a></li>
+<li><a href="https://driver-download.techidaily.com/approach-evaluate-how-these-devices-interact-with-structural-elements-during-an-earthquake/"><u>Approach: Evaluate How These Devices Interact with Structural Elements During an Earthquake</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-figures-understanding-facebooks-real-impact/"><u>Beyond Figures: Understanding Facebook’s Real Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-interaction-on-social-platforms-using-ripl/"><u>Boost Interaction on Social Platforms Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-message-privacy-facebooks-latest-features-enable-secure-chat-and-call-communications/"><u>Boosting Your Message Privacy: Facebook's Latest Features Enable Secure Chat and Call Communications.</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-excessive-fb-reel-watching/"><u>Breaking Free From Excessive FB Reel Watching</u></a></li>
+<li><a href="https://facebook.techidaily.com/browsing-back-through-personal-fb-history/"><u>Browsing Back Through Personal FB History</u></a></li>
+<li><a href="https://facebook.techidaily.com/court-of-public-opinion-when-will-judgment-for-trump-ban-arrive/"><u>Court of Public Opinion: When Will Judgment for Trump Ban Arrive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-leadership-behind-facebook/"><u>Current Leadership Behind Facebook</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/data-security-with-chatgpt-features/"><u>Data Security with ChatGPT Features</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Vivo T2 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153977821-secure-communication-grows-facebook-rolls-out-encrypted-chat-for-messenger-and-dms/"><u>Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146826714-the-final-say-awaits-facebooks-oversight-board-reviewing-the-ban/"><u>The Final Say Awaits: Facebook's Oversight Board Reviewing the Ban.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-evaluation-why-alienware-aurora-r11-is-top-gaming-machine-in-202nce/"><u>Ultimate Evaluation: Why Alienware Aurora R11 Is Top Gaming Machine in 202Nce</u></a></li>
 </ul></div>
 

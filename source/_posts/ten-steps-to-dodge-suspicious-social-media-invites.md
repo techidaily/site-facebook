@@ -1,7 +1,7 @@
 ---
 title: Ten Steps to Dodge Suspicious Social Media Invites
-date: 2025-02-11T01:55:38.733Z
-updated: 2025-02-14T17:29:38.520Z
+date: 2025-03-03T17:20:43.988Z
+updated: 2025-03-04T20:33:04.816Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Would Someone Hack Your Facebook?
 
 ![Phishing website with credentials being lifted with fishhook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Phishing-website-with-credentials-being-lifted-with-fishhook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because they want your personal information. They can use that info to access your bank accounts, or even steal your identity. And they have many ways to[steal from you through Facebook](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) .
 
@@ -47,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 ![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
 
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![A vulnerable Facebook profile detailing all the user's workplaces](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---work-history-1.jpg)
 
@@ -66,15 +54,7 @@ Close
 
 ![Secure Facebook Profile with Face and Details Hidden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Secure-Facebook-Profile-with-Face-and-Details-Hidden.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![A blank Work Education and Places Lived page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-blank-Work-Education-and-Places-Lived-page-on-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Messenger blocking messages from a stranger on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Messenger-blocking-messages-from-a-stranger-on-Facebook.jpg)
 
@@ -83,10 +63,6 @@ Close
  This profile is much safer. And having a profile like this doesn’t impact the way you use Facebook. After all, you don't need to share your workplace history to enjoy a social connection.
 
  You can take it one step further, so people can only send you messages if you have a mutual friend. Do this using the**Privacy Settings** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Manage Your Facebook Privacy Settings
 
@@ -113,10 +89,6 @@ It’s a good idea to do a privacy check on a regular basis.
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
 ![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -154,10 +126,6 @@ Close
 
  You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Only Add People You Know to Your Facebook Account
 
 ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
@@ -167,10 +135,6 @@ Close
  One of the most common[Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) is to offer a friend request to potential buyers. The seller may pretend that they don’t know another way to contact you, but this is a lie.
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8\. Use a Strong Password for Your Facebook Account
 
@@ -201,20 +165,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-success-on-youtube-standard-studio-or-beta/"><u>[New] In 2024, Crafting Success on YouTube Standard Studio or Beta</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-pioneering-profitability-your-videos-vs-competitors-success-stories/"><u>[Updated] Pioneering Profitability Your Videos Vs. Competitors' Success Stories</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-ultimate-guide-to-displaying-screens-in-google-meet/"><u>2024 Approved The Ultimate Guide to Displaying Screens in Google Meet</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-unravel-the-power-of-fbx-elevate-your-game-savings/"><u>2024 Approved Unravel the Power of FBX Elevate Your Game Savings</u></a></li>
-<li><a href="https://win-dash.techidaily.com/audio-driver-solutions-quick-downloads-instant-updates-available-here/"><u>Audio Driver Solutions: Quick Downloads, Instant Updates Available Here!</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-sony-xperia-10-v-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Sony Xperia 10 V Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-subconscious-dialogues-in-facebook-messages/"><u>Exploring Subconscious Dialogues in Facebook Messages</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-2-5g-bootloader-easily-by-drfone-android/"><u>How to Unlock Lava Blaze 2 5G Bootloader Easily</u></a></li>
-<li><a href="https://facebook.techidaily.com/pause-or-play-trumps-platform-prospects/"><u>Pause or Play? Trump's Platform Prospects</u></a></li>
-<li><a href="https://facebook.techidaily.com/status-syndicate-which-platform-claims-the-highest-honor-meta-or-twitter/"><u>Status Syndicate: Which Platform Claims the Highest Honor, Meta or Twitter?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-frontier-understanding-the-6-differences-in-metaverse-and-vr/"><u>The Digital Frontier: Understanding the 6 Differences in Metaverse & VR</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-recording-reviewing-every-fb-engagement-you-have-made/"><u>The Explorer's Blueprint: Recording, Reviewing Every Fb Engagement You Have Made</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-insiders-tactic-blocking-all-comments-on-fb/"><u>The Insider's Tactic: Blocking All Comments on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/tune-into-music-effortlessly-spotify-and-the-miniplayer-in-facebook-app/"><u>Tune Into Music Effortlessly - Spotify and the Miniplayer in Facebook App</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/yield-remarkable-outcomes-ek-solutions-aftermarket-cpu-cooler-enhances-intel-core-i9-10900ks-lowers-temps-by-20c/"><u>Yield 'Remarkable Outcomes': EK Solution's Aftermarket CPU Cooler Enhances Intel Core I9-10900KS, Lowers Temps by 20°C</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-gamers-choice-the-best-of-the-best-4k-tvs/"><u>[New] 2024 Approved Gamer's Choice The Best of the Best 4K TVs</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-free-diy-approaches-to-design-your-own-youtube-cards/"><u>[New] Free DIY Approaches to Design Your Own YouTube Cards</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-multimedia-mac-recording-software-with-sound-for-2024/"><u>[New] Multimedia Mac Recording Software with Sound for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-turn-your-youtube-tracks-into-mp3-with-macos/"><u>[New] Turn Your YouTube Tracks Into MP3 with MacOS</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-most-recent-videos-on-fb/"><u>Accessing Most Recent Videos on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/astonishing-ai-translates-single-word-to-varied-text-styles/"><u>Astonishing AI Translates Single Word to Varied Text Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/averting-misunderstandings-on-web-during-health-emergenenas/"><u>Averting Misunderstandings on Web During Health Emergenenas</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150513382-awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/contemplating-the-impact-of-ditching-your-networked-life/"><u>Contemplating the Impact of Ditching Your Networked Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/covid-deception-whos-behind-the-misinfo/"><u>Covid Deception: Who's Behind the Misinfo?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-impactful-and-memorable-fb-image/"><u>Crafting an Impactful and Memorable FB Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-online-world-with-simplified-fb-settings/"><u>Crafting Your Online World with Simplified FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-points-to-land-freelance-employment/"><u>Critical Points to Land Freelance Employment</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/explore-our-choice-of-the-6-greatest-portable-translator-tools/"><u>Explore Our Choice of the 6 Greatest Portable Translator Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-ideas-to-action-how-to-transform-photos-into-engaging-mobile-videos/"><u>From Ideas to Action How to Transform Photos Into Engaging Mobile Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/from-software-to-functionality-ms-workspace-on-windows-1011/"><u>From Software to Functionality: MS Workspace on Windows 10/11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/understanding-the-essentials-of-firefox-split-screen-feature/"><u>Understanding the Essentials of Firefox Split Screen Feature</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-procuring-specialized-sounds-mimicking-intestinal-gas-release-for-enhanced-aural-realism/"><u>Updated Procuring Specialized Sounds Mimicking Intestinal Gas Release for Enhanced Aural Realism</u></a></li>
 </ul></div>
 

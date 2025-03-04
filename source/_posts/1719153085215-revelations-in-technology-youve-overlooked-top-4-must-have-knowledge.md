@@ -1,7 +1,7 @@
 ---
 title: Revelations in Technology You've Overlooked - Top 4 Must-Have Knowledge
-date: 2024-08-23T02:08:02.104Z
-updated: 2024-08-24T02:08:02.104Z
+date: 2025-02-28T18:33:12.148Z
+updated: 2025-03-04T20:02:48.893Z
 tags:
   - facebook
 categories:
@@ -49,16 +49,10 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
  The company is looking at the metaverse as the next significant shift in tech, which changes the way humans interact with the internet. Instead of accessing the internet through disparate apps, services, and hardware, the metaverse links them together to meld a seamless experience almost similar to physical reality.
@@ -69,17 +63,10 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
  The iOS 15 update further exacerbated this conflict, allowing users to see which apps access which data and sensors, and when. You can even see whether these apps share your data with third-party entities.
@@ -90,23 +77,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What Tech News Will We See in 2022?
 
  These are some of the biggest tech news stories of 2021, and we're looking forward to a more exciting 2022\. While many of us won't feel the immediate impact of these developments, they will shape how we use and interact with technology in the near future.
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,8 +96,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/5-ways-to-record-minecraft-on-mac-for-2024/"><u>5 Ways to Record Minecraft on Mac for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-for-youtube-storytelling-a-comprehensive-overview/"><u>ChatGPT for YouTube Storytelling - A Comprehensive Overview</u></a></li>
+<li><a href="https://win-hot.techidaily.com/come-sincronizzare-automaticamente-il-tuo-disco-rigido-esterno-gratis-una-guida-dettagliata/"><u>Come Sincronizzare Automaticamente Il Tuo Disco Rigido Esterno Gratis: Una Guida Dettagliata</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-platforms-share-instagram-reels-with-facebook-audience/"><u>Connecting Platforms: Share Instagram Reels with Facebook Audience</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-success-lessons-from-sheryl-sandbergs-facebook-experience/"><u>Crafting Success: Lessons From Sheryl Sandberg’s Facebook Experience</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/efficient-network-troubleshooting-with-tracert-a-comprehensive-manual-for-windows-users/"><u>Efficient Network Troubleshooting with 'Tracert': A Comprehensive Manual for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/engagement-inquiry-what-shapes-your-social-media-experience/"><u>Engagement Inquiry: What Shapes Your Social Media Experience?</u></a></li>
+<li><a href="https://facebook.techidaily.com/holding-fire-social-media-giant-waits-for-ruling/"><u>Holding Fire: Social Media Giant Waits for Ruling</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-meizu-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Meizu Phone with Broken Screen</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>In 2024, Essential Mobile Media Creation Tools IPhone vs Android Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/indias-tech-rules-scrutinized-by-whatsapp-in-courtroom-battle/"><u>India's Tech Rules Scrutinized by WhatsApp in Courtroom Battle</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-delays-full-encryption-adoption-until-2023-insights-revealed/"><u>Meta Delays Full Encryption Adoption Until 2023: Insights Revealed</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015298258-pubg-voice-communication-problems-heres-how-to-get-it-running-smoothly/"><u>PUBG Voice Communication Problems? Here's How to Get It Running Smoothly!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intricacies-behind-facebooks-policy-to-support-multi-profiles-per-user-account/"><u>The Intricacies Behind Facebook's Policy to Support Multi-Profiles per User Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-profiles-a-shift-to-secular-discourse-only/"><u>Transforming Profiles: A Shift to Secular Discourse Only</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/1720672582068-underlying-issues-with-video-editing-tool-performance/"><u>Underlying Issues with Video Editing Tool Performance</u></a></li>
+</ul></div>
 

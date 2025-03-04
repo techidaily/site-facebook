@@ -1,7 +1,7 @@
 ---
 title: A Critical Review of This Year's Tech Flaws
-date: 2024-08-28T02:55:34.531Z
-updated: 2024-08-29T02:55:34.531Z
+date: 2025-02-26T18:08:59.407Z
+updated: 2025-03-04T17:39:53.935Z
 tags:
   - facebook
 categories:
@@ -47,9 +47,6 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
 ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when [Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
  The second major crypto flop of 2022 is the [FTX bankruptcy](https://www.makeuseof.com/what-is-going-on-binance-ftx/) . FTX was one of the biggest exchanges for digital currencies and derivatives. Still, a sudden liquidity crisis meant that the exchange could no longer provide the services it was known for. This led to a sell-off of assets and a massive decrease in trading volumes.
@@ -58,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
 ![green celsius graphic](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/green-celsius-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Image Credit: Satheesh Sankaran/[Flickr](https://www.flickr.com/photos/justanothercreativesoul/52455459544/in/)
 
  Like Celsius, BlockFi closed its doors after it could not meet its obligations to customers who had lent their money through the platform. 3AC made several large bets on specific cryptocurrencies, which ultimately didn't pan out, leaving them with huge losses they couldn't recover from.
@@ -69,9 +63,6 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## 4\. Meta
 
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
@@ -84,16 +75,10 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Amazon Alexa
 
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Despite being one of the [most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a [Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
  The company is said to utilize a business model that only actualizes earnings when people use their devices rather than when they buy them. As a result, as the applications of Alexa reduced, so did its income. And several customer reviews have further worsened the issue.
@@ -102,23 +87,17 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
  In response, Amazon carried out some restructuring. Amazon CEO [Andy Jassy released a note](https://www.aboutamazon.com/news/company-news/a-note-from-ceo-andy-jassy-about-role-eliminations) regarding role reductions in the face of uncertainties and economic difficulties. And although Jassy affirmed ample opportunities ahead for Alexa, at present, Alexa appears to be a failed project, especially with rumors about employees calling the voice assistant a wasted effort.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## 2023 Promises to Be Better Than 2022
 
  Like the buildup to 2022, tech enthusiasts anticipate better optimization, improvement, maintenance of integrity, and sustainability in the tech space in 2023\. However, this time, customers are less trusting in tech companies due to the mismanagement and failures of 2022.
 
  But these failures can be repaired and prevented by developers and consultants. We must aim for perfection, clearly define performance objectives in routine situations and emergencies, and confirm that the technology meets them. If our systems are excessively complex, we must prioritize automation, support training, and regular testing until they become second nature and function when needed.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,8 +106,20 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-photoshop-grading-made-simple-for-everyone-for-2024/"><u>[New] Photoshop Grading Made Simple for Everyone for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-essential-tactics-for-elevating-your-facebook-profile-ranks/"><u>[Updated] 2024 Approved Essential Tactics for Elevating Your Facebook Profile Ranks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-youtube-submission-with-imovie-files-for-2024/"><u>[Updated] Navigating YouTube Submission with iMovie Files for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-ios-emulators-reviving-classic-psp-game-experiences-2023-guide-for-2024/"><u>[Updated] Top iOS Emulators Reviving Classic PSP Game Experiences - 2023 Guide for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/7-ways-generative-ai-will-change-the-job-market/"><u>7 Ways Generative AI Will Change the Job Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-under-scrutiny-new-anti-monopoly-laws-explained/"><u>Big Tech Under Scrutiny: New Anti-Monopoly Laws Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-shadowing-on-your-profile/"><u>Demystifying the Shadowing on Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-targeted-fb-ad-sightings/"><u>Explanation for Targeted FB Ad Sightings?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-the-global-expat-experience-a-dual-perspective/"><u>Facebook's Role in the Global Expat Experience – A Dual Perspective</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/free-online-video-communication-tools-rated-best/"><u>Free Online Video Communication Tools Rated Best</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-your-online-presence-for-richer-whatsapp-interactions/"><u>Leveraging Your Online Presence for Richer WhatsApp Interactions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-12-pro-max-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 12 Pro Max Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/form-your-channels-views-with-strategic-insights/"><u>Transform Your Channels Views with Strategic Insights</u></a></li>
+</ul></div>
 

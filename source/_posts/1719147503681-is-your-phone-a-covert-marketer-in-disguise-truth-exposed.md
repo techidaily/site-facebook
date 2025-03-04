@@ -1,7 +1,7 @@
 ---
 title: Is Your Phone a Covert Marketer in Disguise? Truth Exposed
-date: 2024-08-28T02:58:40.933Z
-updated: 2024-08-29T02:58:40.933Z
+date: 2025-03-01T19:47:11.065Z
+updated: 2025-03-04T16:35:24.297Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,6 @@ What is going on?
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman [reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Reddit Users Think Their Phones Are Listening
 
  Common search terms for this subject on Google include things like: "does iphone listen to you for ads," "can my phone hear me," and "is google listening to my conversations?"
@@ -55,11 +51,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  You'll find many similar stories on Reddit and beyond. Check this account of [a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
@@ -72,9 +63,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your [Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
@@ -91,21 +79,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi [told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -130,9 +107,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -145,14 +119,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,8 +132,22 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-earhearer-live-sound-critique-for-2024/"><u>[New] EarHearer Live Sound Critique for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expanding-social-footprint-tying-igtv-and-facebook-together/"><u>[New] Expanding Social Footprint Tying IGTV & Facebook Together</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unveiling-the-virtual-age-present-and-future-challenges/"><u>[New] In 2024, Unveiling the Virtual Age Present and Future Challenges</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-chart-success-using-youtube-statistics-to-grow-engagement-for-2024/"><u>[Updated] Chart Success Using YouTube Statistics to Grow Engagement for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-chromebooks-best-vocal-transformers-the-top-5-chrome-apps/"><u>[Updated] In 2024, Chromebook's Best Vocal Transformers The Top 5 Chrome Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-legitimacy-of-security-email-at-facebookmailcom-for-fb/"><u>Assessing Legitimacy of Security Email at facebookmail.com for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-trailblazer-finding-friendly-face-on-fb/"><u>Digital Trailblazer: Finding Friendly Face on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasive-internet-use-top-3-places-without-facebook/"><u>Evasive Internet Use: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-the-tiktok-threat-to-its-revenue-streams/"><u>Facebook Faces the TikTok Threat to Its Revenue Streams</u></a></li>
+<li><a href="https://techidaily.com/how-to-free-up-apple-iphone-15-plus-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up Apple iPhone 15 Plus Space | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/innovative-measures-for-outstanding-ppt-video-quality/"><u>Innovative Measures for Outstanding PPT Video Quality</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-to-codegpt-in-your-vs-code-environment/"><u>Step-by-Step Guide to CodeGPT in Your VS Code Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-benefits-cutting-ties-with-facebook-for-a-better-life/"><u>Top 6 Benefits: Cutting Ties with Facebook for a Better Life</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/vidpin-facebook-call-recorder-for-2024/"><u>VidPin - Facebook Call Recorder for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
+</ul></div>
 

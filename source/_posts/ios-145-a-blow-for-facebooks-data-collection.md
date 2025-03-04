@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2025-02-09T05:00:22.401Z
-updated: 2025-02-15T05:39:10.109Z
+date: 2025-02-25T17:55:40.592Z
+updated: 2025-03-04T19:45:26.718Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
@@ -56,25 +52,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
@@ -87,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -127,18 +107,19 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rom-isolated-viewers-to-shared-experiences-online-for-2024/"><u>[New] From Isolated Viewers to Shared Experiences Online for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-editing-workshop-portal/"><u>[New] In 2024, Editing Workshop Portal</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-naming-wizards-the-best-ai-tools-for-podcast-titles-for-2024/"><u>[New] Naming Wizards The Best AI Tools for Podcast Titles for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cloaked-glance-at-social-media-snapshits/"><u>2024 Approved Cloaked Glance at Social Media Snapshits</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/chromebooks-best-vocal-transformers-the-top-5-chrome-apps-for-2024/"><u>Chromebook's Best Vocal Transformers The Top 5 Chrome Apps for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/detailed-assessment-editorpro-xs-the-ultimate-video-tool/"><u>Detailed Assessment EditorPro XS, the Ultimate Video Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/gain-recognition-metas-paid-verification-badge/"><u>Gain Recognition: Meta's Paid Verification Badge</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-nubia-red-magic-8s-pro-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Nubia Red Magic 8S Pro 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-constructing-cinema-stories/"><u>In 2024, Constructing Cinema Stories</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-how-to-save-photo-from-video-in-windows-11-photos-app/"><u>In 2024, How to Save Photo From Video in Windows 11 Photos App</u></a></li>
-<li><a href="https://facebook.techidaily.com/profile-transformations-shunning-partisan-and-dogmatic-content/"><u>Profile Transformations: Shunning Partisan & Dogmatic Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefine-ig-live-no-video-no-sound-required/"><u>Redefine IG Live - No Video, No Sound Required</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-digital-interactions-on-fb/"><u>Streamlining Your Digital Interactions on FB</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-tackling-teal-turmoil-eliminate-green-screen-glitches-mac-edition/"><u>[New] 2024 Approved Tackling Teal Turmoil Eliminate Green Screen Glitches (Mac Edition)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-utilizing-fb-features-for-broadcasting-historical-video-footage/"><u>[Updated] 2024 Approved Utilizing FB Features for Broadcasting Historical Video Footage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-shielding-your-media-what-does-unlisted-mean-in-youtube-in-2024/"><u>[Updated] Shielding Your Media What Does Unlisted Mean in YouTube, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/augment-reality-in-daily-conversations-via-messenger/"><u>Augment Reality in Daily Conversations via Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-image-alt-text/"><u>Best Practices for Facebook Image Alt-Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-historical-facebook-connections/"><u>Checking Historical Facebook Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145917232-fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy.</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-focusrite-scarlett-2i2-windows-drivers-here/"><u>Get Your Focusrite Scarlett 2I2 Windows Drivers Here!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-subdued-to-striking-the-art-of-post-color-correction/"><u>In 2024, From Subdued to Striking The Art of Post-Color Correction</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-itel-s23plus-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Itel S23+? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-xiaomi-14-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Xiaomi 14 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-free-online-video-editors-that-rival-imovie-2023-edition/"><u>New In 2024, Free Online Video Editors That Rival iMovie (2023 Edition)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-the-durability-timeline-of-electric-vehicle-batteries-in-tesla-cars/"><u>Understanding the Durability Timeline of Electric Vehicle Batteries in Tesla Cars</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153500304-zuckerbergs-litecoin-louie-innovative-pet-nomenclature/"><u>Zuckerberg's 'Litecoin Louie': Innovative Pet Nomenclature</u></a></li>
 </ul></div>
 

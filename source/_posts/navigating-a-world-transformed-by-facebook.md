@@ -1,7 +1,7 @@
 ---
 title: Navigating a World Transformed by Facebook
-date: 2025-02-12T16:02:24.001Z
-updated: 2025-02-15T05:42:08.282Z
+date: 2025-03-03T16:33:59.914Z
+updated: 2025-03-04T18:49:51.435Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ways Facebook Has Improved Our Lives
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
@@ -35,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Although Facebook wasn't the first social media platform to bring people together, it is, by far, the most successful. With Facebook, many people can keep their circles updated with the events in their lives, no matter how near or far they are.
 
@@ -72,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 So, what are some of the biggest things that affected us negatively?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
@@ -84,17 +72,9 @@ So, what are some of the biggest things that affected us negatively?
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
@@ -131,22 +111,16 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-accessible-and-quality-the-best-10-online-passport-photo-tools-revealed/"><u>[Updated] Accessible & Quality The Best 10 Online Passport Photo Tools Revealed</u></a></li>
-<li><a href="https://win-able.techidaily.com/bypassing-directx-hiccups-effective-fixes-for-fifa-20-players/"><u>Bypassing DirectX Hiccups: Effective Fixes for FIFA 20 Players</u></a></li>
-<li><a href="https://some-tips.techidaily.com/effortlessly-integrate-ai-tools-in-your-workflow-using-superduperdb-featured-on-zdnet/"><u>Effortlessly Integrate AI Tools in Your Workflow Using SuperDuperDB - Featured on ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-your-online-presence-with-picture-perfection/"><u>Enhance Your Online Presence with Picture Perfection</u></a></li>
-<li><a href="https://facebook.techidaily.com/erect-barricades-around-your-social-media-snaps/"><u>Erect Barricades Around Your Social Media Snaps</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-silent-black-ops-resolving-cold-war-game-sound-issues-on-pc/"><u>Fixing Silent Black Ops: Resolving Cold War Game Sound Issues on PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/freedom-from-distasteful-digital-marketing-on-facebook/"><u>Freedom From Distasteful Digital Marketing on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-photodna-detect-illegal-images/"><u>How Does PhotoDNA Detect Illegal Images?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-velocity-in-virtue-share-your-youtube-lists-fast/"><u>In 2024, Velocity in Virtue Share Your YouTube Lists Fast</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-job-advertisements-in-social-networks/"><u>Navigating Job Advertisements in Social Networks</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-time-lapse-mastery-unlock-the-power-of-accelerated-video/"><u>New 2024 Approved Time Lapse Mastery Unlock the Power of Accelerated Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/react-right-actions-to-take-when-facing-a-fb-hack/"><u>React Right: Actions to Take When Facing a FB Hack</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-costs-and-benefits-of-meta-endorsement/"><u>The Hidden Costs and Benefits of Meta Endorsement</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-modern-mantle-elevating-your-groups-on-facebook-with-updated-tools/"><u>The Modern Mantle: Elevating Your Groups on Facebook with Updated Tools</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-oppo-f25-pro-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Oppo F25 Pro 5G</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-showcasing-excellence-top-20-anime-openings/"><u>[New] In 2024, Showcasing Excellence Top 20 Anime Openings</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-essential-calendar-tools-to-plan-your-feeds/"><u>8 Essential Calendar Tools to Plan Your Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-noteworthy-and-authentic-online-self-image-on-fb/"><u>Building a Noteworthy and Authentic Online Self-Image on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-generations-or-fragmenting-them/"><u>Connecting Generations or Fragmenting Them?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/expert-recommended-sub-to-srt-tools-top-8-guide-reviewed/"><u>Expert Recommended Sub to SRT Tools Top 8 Guide Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153137367-goat-named-blockchain-zuckerbergs-quirky-investment/"><u>Goat Named 'Blockchain': Zuckerberg’s Quirky Investment</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-comprehensive-review-of-googles-ar-stickers/"><u>In 2024, Comprehensive Review of Google's AR Stickers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-xiaomi-redmi-12-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Xiaomi Redmi 12 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ideo-venture-a-vloggers-journey-to-judicious-gains/"><u>The Video Venture A Vlogger's Journey to Judicious Gains</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-iphone-16-and-pro-case-selection-expert-opinions-and-ratings/"><u>Ultimate Guide to iPhone 16 & Pro Case Selection - Expert Opinions and Ratings</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unlock-the-power-to-revive-your-windows-10-taskbar-expert-tips-and-tricks/"><u>Unlock the Power to Revive Your Windows 10 Taskbar - Expert Tips & Tricks</u></a></li>
 </ul></div>
 

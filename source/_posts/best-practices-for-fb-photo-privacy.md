@@ -1,7 +1,7 @@
 ---
 title: Best Practices for FB Photo Privacy
-date: 2024-08-28T02:57:32.479Z
-updated: 2024-08-29T02:57:32.479Z
+date: 2025-03-03T17:25:16.755Z
+updated: 2025-03-04T18:14:45.960Z
 tags:
   - facebook
 categories:
@@ -48,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -60,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to [locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -74,9 +66,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
@@ -103,35 +92,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,8 +117,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-peek-behind-the-curtain-of-hidden-youtube-videos/"><u>[New] 2024 Approved How to Peek Behind the Curtain of Hidden YouTube Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-creating-a-unique-identity-in-the-flood-of-live-streams/"><u>[New] Creating a Unique Identity in the Flood of Live Streams</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-enhance-connection-top-tips-to-craft-compelling-facebook-profiles-for-2024/"><u>[New] Enhance Connection Top Tips to Craft Compelling Facebook Profiles for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-veiled-vocal-vaults-top-6-under-the-radar-mobile-apps/"><u>[New] In 2024, Veiled Vocal Vaults Top 6 Under-the-Radar Mobile Apps</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-microsoft-compatibility-telemetry-high-disk-usage-on-windows-11/"><u>[Solved] Microsoft Compatibility Telemetry High Disk Usage on Windows 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-youtube-music-hits-2023s-most-praised-video-responses/"><u>[Updated] In 2024, YouTube Music Hits 2023'S Most Praised Video Responses</u></a></li>
+<li><a href="https://video-capture.techidaily.com/capture-the-scene-without-breaking-the-bank-with-free-tools/"><u>Capture the Scene without Breaking the Bank with Free Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photodna-an-overview-of-its-functioning/"><u>Deciphering PhotoDNA: An Overview of Its Functioning</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-ban-conundrum-regain-a-friends-trust/"><u>Facebook Ban Conundrum: Regain a Friend's Trust</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-luminances-stand-in-the-hdr-landscape/"><u>In 2024, Luminance's Stand in the HDR Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-may-let-you-receive-2fa-codes-via-whatsapp/"><u>Instagram May Let You Receive 2FA Codes via WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/root-access-granted-what-does-this-mean-for-oculus-go-users/"><u>Root Access Granted: What Does This Mean for Oculus Go Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-can-users-have-several-identities-in-a-singular-facebook-identity/"><u>Why Can Users Have Several Identities in a Singular Facebook Identity?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-11-audio-enhancement-installation-of-hd-drivers-by-conexant/"><u>Windows 11 Audio Enhancement - Installation of HD Drivers by Conexant</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/wireless-methods-to-mirrorapple-iphone-14-plus-and-ipad-to-fire-stick-with-ease-drfone-by-drfone-ios/"><u>Wireless Methods to MirrorApple iPhone 14 Plus & iPad to Fire Stick With Ease | Dr.fone</u></a></li>
+</ul></div>
 

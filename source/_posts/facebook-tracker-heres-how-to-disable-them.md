@@ -1,7 +1,7 @@
 ---
 title: Facebook Tracker? Here's How to Disable Them
-date: 2025-02-09T06:11:45.097Z
-updated: 2025-02-14T23:27:59.361Z
+date: 2025-02-25T17:59:28.754Z
+updated: 2025-03-04T17:19:16.575Z
 tags:
   - facebook
 categories:
@@ -26,17 +26,9 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Facebook Track You?
 
  We've become a society intent on sharing...**everything.** How many times do you scroll through your Facebook feed and sigh at the information people are spewing forth? It goes further than that.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Facebook Like and Share Plug-In Tracking
 
@@ -45,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  Related:[What Are Facebook Shadow Profiles?](http://www.makeuseof.com/tag/facebook-shadow-profiles/)
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Facebook Pixel
 
@@ -78,19 +66,11 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
  The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated[Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
@@ -134,10 +114,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### uBlock Origin
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
@@ -147,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has[blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
 **Download:** uBlock Origin for[Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### NoScript
 
@@ -202,10 +174,6 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
@@ -241,22 +209,16 @@ Image Credit: Sabphoto/Shutterstock
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-crafting-impactful-narratives-for-your-brand-on-tiktok-for-2024/"><u>[New] Crafting Impactful Narratives for Your Brand on TikTok for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-retrace-mechanic-setup/"><u>[Updated] Retrace Mechanic Setup</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easy-to-install-windows-x-vision-software-for-monitor-camera-and-high-quality-sound-recording/"><u>Easy-to-Install Windows X Vision Software for Monitor, Camera, and High-Quality Sound Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-social-media-shares-with-automatic-facebook-captions/"><u>Enhance Social Media Shares with Automatic Facebook Captions</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-steps-for-deleting-your-fb-business-pages/"><u>Essential Steps for Deleting Your FB Business Pages</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-properly-set-up-your-new-ipad-a-step-by-step-guide/"><u>How to Properly Set Up Your New iPad: A Step-by-Step Guide</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-11-pro-max-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 11 Pro Max Lock Screen with Notifications?</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-art-of-client-acquisition-using-facebooks-network/"><u>Master the Art of Client Acquisition Using Facebook's Network</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/streamline-your-playtime-with-nvidia-for-2024/"><u>Streamline Your Playtime with NVIDIA for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tackling-the-glitch-restoring-active-facebook-status/"><u>Tackling the Glitch: Restoring Active Facebook Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-end-of-an-era-memorializing-vs-removing-loved-ones-accounts/"><u>The End of an Era: Memorializing Vs. Removing Loved Ones' Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-five-key-takeaways-from-metas-new-privacy-guidelines/"><u>The Five Key Takeaways From Meta's New Privacy Guidelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-6-reasons-for-forming-an-exclusive-fb-fanbase/"><u>Top 6 Reasons for Forming an Exclusive FB Fanbase</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-how-facebook-constructs-its-social-ecosystem/"><u>Understanding How Facebook Constructs Its Social Ecosystem</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-the-future-of-filmmaking-bridging-audio-and-visuals-in-the-digital-age-for-2024/"><u>Updated The Future of Filmmaking Bridging Audio and Visuals in the Digital Age for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/water-resistance-checked-the-sinking-scenario-for-the-new-iphone-15-pro-max/"><u>Water Resistance Checked: The Sinking Scenario for the New iPhone 15 Pro Max</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/what-should-i-do-if-im-hearing-voices/"><u>What Should I Do if I'm Hearing Voices?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-digital-detox-diary-my-journey-beyond-the-feeds/"><u>A Digital Detox Diary: My Journey Beyond the Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-did-facebook-expose-our-groups-numbers/"><u>Alert! Did Facebook Expose Our Group's Numbers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-social-media-downtime-reasons/"><u>Breaking Down Social Media Downtime Reasons</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-every-unwanted-fb-notification-type/"><u>Clearing Every Unwanted FB Notification Type</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-vivo-s18-pro-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Vivo S18 Pro.</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/frequency-capture-digital-sound-files-for-2024/"><u>Frequency Capture Digital Sound Files for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-nokia-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Nokia PIN</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-apple-iphone-12-pro-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for Apple iPhone 12 Pro and Android Phones</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/quicktime-video-speed-control-a-beginners-tutorial-for-2024/"><u>QuickTime Video Speed Control A Beginners Tutorial for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-nubia-z50-ultra-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Nubia Z50 Ultra</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/stop-dirt-5-from-crashing-on-your-computer-effective-fixes-and-tweaks/"><u>Stop Dirt 5 From Crashing on Your Computer - Effective Fixes and Tweaks</u></a></li>
 </ul></div>
 

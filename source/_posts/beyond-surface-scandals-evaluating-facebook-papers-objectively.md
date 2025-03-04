@@ -1,7 +1,7 @@
 ---
 title: "Beyond Surface Scandals: Evaluating Facebook Papers Objectively"
-date: 2024-08-23T02:09:27.588Z
-updated: 2024-08-24T02:09:27.588Z
+date: 2025-03-03T16:28:27.627Z
+updated: 2025-03-04T18:25:14.600Z
 tags:
   - facebook
 categories:
@@ -55,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -74,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
  Image Credits: Anthony Quintano via Flickr
 
  Let's read that again. Zuckerberg claims 94 percent of the hate speech it finds**before a human reports it** is removed, and the report says less than five percent of**all hate speech** gets removed. Did you catch that? They're talking about two different things!
@@ -85,9 +79,6 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -96,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,8 +100,20 @@ thumbnail: https://thmb.techidaily.com/5cbb31b0aa89284f511ea895d4dc406591717af97
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sony-bdp-s3700-review-updated/"><u>[New] 2024 Approved Sony BDP- S3700 Review - Updated</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/roadcast-excellence-incorrante-video-loops-into-television/"><u>[New] Broadcast Excellence Incorrante Video Loops Into Television</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-video-to-audio-quickly-create-mp3-from-youtube-on-mac/"><u>[Updated] In 2024, From Video to Audio Quickly Create MP3 From YouTube on Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/apex-10-virtual-warrior-battles-for-2024/"><u>Apex 10 Virtual Warrior Battles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tutorial-assembling-groups-on-facebook-platforms/"><u>Comprehensive Tutorial: Assembling Groups on Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-telegrams-popularity-post-facebook-outage/"><u>Demystifying Telegram’s Popularity Post-Facebook Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-changing-the-game-for-musicians-and-earnings/"><u>How Facebook Is Changing the Game for Musicians and Earnings</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-your-iphone-15-pro-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>How to Unlock Your iPhone 15 Pro Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-air-lift-extraordinaire-top-industrial-drones/"><u>In 2024, Air-Lift Extraordinaire Top Industrial Drones</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-vivo-s17-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Vivo S17 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-vs-perception-how-we-view-facebooks-userbase/"><u>Reality Vs. Perception: How We View Facebook's Userbase</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-banishing-your-faux-pas-fb-business-page/"><u>Step-by-Step Guide to Banishing Your Faux Pas - FB Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-investment-oculus-quest-trend-post-account-breaches/"><u>The $300 Investment: Oculus Quest Trend Post-Account Breaches</u></a></li>
+</ul></div>
 

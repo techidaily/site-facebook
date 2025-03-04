@@ -1,7 +1,7 @@
 ---
 title: "The Unsung Rules of Social Networking: Keep Your Info to Yourself"
-date: 2025-02-13T06:27:51.220Z
-updated: 2025-02-15T10:38:06.906Z
+date: 2025-02-25T20:37:48.061Z
+updated: 2025-03-04T20:26:07.358Z
 tags:
   - facebook
 categories:
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -68,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -90,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
@@ -107,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -131,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  On the internet, once something has been published, it's pretty much impossible to remove it completely. Even if you set your posts to "friends only," there's no way to know for sure who's seen your posts and photos, saved them, or shared them with someone else. Someone could always send a screenshot to another person who can't "officially" see the post, for instance.
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
 
@@ -157,20 +137,22 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-unlock-video-editing-mastery-using-lut-filters-in-obs-studio/"><u>[New] 2024 Approved Unlock Video Editing Mastery Using LUT Filters in OBS Studio</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-expert-recommended-screen-capturing-apps-for-mac-for-2024/"><u>[New] Expert-Recommended Screen Capturing Apps for Mac for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unleashing-full-potential-nikon-1j5-in-4k-videography/"><u>[Updated] 2024 Approved Unleashing Full Potential Nikon 1J5 in 4K Videography</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-olympic-zenith-highlighting-snowboard-x-races/"><u>2024 Approved Olympic Zenith Highlighting Snowboard X Races</u></a></li>
-<li><a href="https://win-online.techidaily.com/cambia-avi-a-formato-ogg-online-de-manera-gratuita-con-movavi/"><u>Cambia AVI a Formato OGG Online De Manera Gratuita Con Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/frequent-digital-breaches-on-social-platforms/"><u>Frequent Digital Breaches on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-a-photo-to-gain-followers-and-likes/"><u>Mastering the Art of a Photo to Gain Followers & Likes</u></a></li>
-<li><a href="https://facebook.techidaily.com/non-facebook-nations-revealed-3-picks/"><u>Non-Facebook Nations Revealed: #3 Picks</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-windows-11-hresult-0x87e00196-a-comprehensive-guide/"><u>Resolving Windows 11 HRESULT 0X87E00196: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/secret-social-networking-strategies-for-fb/"><u>Secret Social Networking Strategies for Fb</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-utilizing-facebooks-annual-review-function/"><u>Strategies for Utilizing Facebook's Annual Review Function</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-blade-e-flite-mcx2-rc-helicopter-reviewed-is-it-really-the-best-value-in-the-sky/"><u>The Blade E-Flite mCX2 RC Helicopter Reviewed - Is It Really the Best Value in the Sky?</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultimate-hdd-restore-tool/"><u>Ultimate HDD Restore Tool</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ultimate-uniting-upskill-utopia/"><u>Ultimate Uniting Upskill Utopia</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-postpones-default-e2e-encryption-till-2023-explained/"><u>Why Meta Postpones Default E2E Encryption Till 2023 Explained</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-to-kinemaster-mastery-and-excellent-online-alternatives/"><u>[New] The Ultimate Guide to KineMaster Mastery & Excellent Online Alternatives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-transformation-editors-that-impress/"><u>[Updated] 2024 Approved Instagram Transformation Editors That Impress</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-best-web-conversion-solutions-for-direct-hassle-free-gif-to-video-for-2024/"><u>[Updated] Best Web Conversion Solutions For Direct, Hassle-Free GIF To Video for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-depth-look-at-facetune-complete-app-revision-for-2024/"><u>[Updated] In-Depth Look at Facetune Complete App Revision for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-paving-the-way-for-individuality-in-the-digital-age-your-youtube-journey/"><u>[Updated] Paving the Way for Individuality in the Digital Age Your YouTube Journey</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/achieving-professional-skype-recordings-in-obs/"><u>Achieving Professional Skype Recordings in OBS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/boost-camera-output-retain-excellent-clarity-for-2024/"><u>Boost Camera Output, Retain Excellent Clarity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-your-online-space-for-group-interaction-a-networking-analysis/"><u>Deciding Your Online Space for Group Interaction: A Networking Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-equilibrium-of-price-in-crypto-coins/"><u>Decoding the Equilibrium of Price in Crypto Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/delve-into-digital-memories-friends-facebook-timeline/"><u>Delve Into Digital Memories: Friends' Facebook Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-ban-political-content-on-fb/"><u>Digital Detox: Ban Political Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-and-vanish-step-by-step-fb-deletion-guide-android/"><u>Disconnect & Vanish: Step-By-Step FB Deletion Guide (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-best-fb-image-choice/"><u>Discovering the Best FB Image Choice</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-metas-strategy-delaying-full-encryption-until-2023-rollout/"><u>Dive Into Meta's Strategy: Delaying Full Encryption Until 2023 Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-facebooks-engaging-quizzes-compromise-security/"><u>Do Facebook's Engaging Quizzes Compromise Security?</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/innovative-nodejs-backend-templates-by-creativetim-admin-panels-and-dashboards-for-developers/"><u>Innovative NodeJS Backend Templates by CreativeTim: Admin Panels & Dashboards for Developers</u></a></li>
+<li><a href="https://driver-install.techidaily.com/nvidia-hd-sound-driver-upgrade-for-win7/"><u>Nvidia HD Sound Driver Upgrade for Win7</u></a></li>
 </ul></div>
 

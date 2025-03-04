@@ -1,7 +1,7 @@
 ---
 title: "Inside the Documents: Essential Insights Into Social Media Giants"
-date: 2025-02-12T06:01:44.513Z
-updated: 2025-02-15T11:15:21.282Z
+date: 2025-03-02T19:05:44.045Z
+updated: 2025-03-04T19:14:24.213Z
 tags:
   - facebook
 categories:
@@ -26,19 +26,11 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7 Key Revelations From the Facebook Papers
 
@@ -71,22 +63,18 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-screen-it-right-best-free-apps-for-mac-and-windows-recording/"><u>[New] 2024 Approved Screen It Right! Best Free Apps for Mac and Windows Recording</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-tips-for-accurate-age-input-in-tiktok-profiles/"><u>[New] 2024 Approved Tips for Accurate Age Input in TikTok Profiles</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-how-to-get-still-on-the-move-gopro-stability-tips/"><u>[Updated] How to Get Still on the Move GoPro Stability Tips</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-budget-friendly-pro-gamers-essentials-keyboards/"><u>[Updated] In 2024, Budget-Friendly Pro Gamers' Essentials Keyboards</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-revolutionary-methods-for-breaking-barriers-in-gif-making-for-2024/"><u>[Updated] Revolutionary Methods for Breaking Barriers in GIF Making for 2024</u></a></li>
-<li><a href="https://win-info.techidaily.com/1728505617150-win11/"><u>解決 Win11 磁碟分割區錯誤的修復方法</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-online-converter-transform-jp2-images-into-high-quality-tiff-files-with-ease/"><u>Free Online Converter: Transform JP2 Images Into High-Quality TIFF Files with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-bbs-to-snapchat-the-transformation-tale/"><u>From BBS To Snapchat: The Transformation Tale</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-htc-u23-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From HTC U23 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-intrusive-pics-out-of-meta-webspace/"><u>Keeping Intrusive Pics Out of Meta Webspace</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-membership-management-with-facebooks-groups-update-features/"><u>Mastering Membership Management with Facebook's Groups Update Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/methods-for-severing-instagram-ties-with-fb/"><u>Methods for Severing Instagram Ties with FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/propel-profits-with-top-4-metadata-and-business-insights/"><u>Propel Profits with Top 4 Metadata & Business Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/simple-paths-to-overhauling-your-online-password/"><u>Simple Paths to Overhauling Your Online Password</u></a></li>
-<li><a href="https://media-tips.techidaily.com/stream-your-favorite-films-at-no-cost-using-top-rated-phone-applications/"><u>Stream Your Favorite Films at No Cost Using Top Rated Phone Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-community-control-facebooks-next-level-administration-features/"><u>Tailoring Community Control: Facebook's Next-Level Administration Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-evolution-how-platforms-are-shaping-society/"><u>The Social Evolution: How Platforms Are Shaping Society</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expert-insights-switching-from-webp-to-jpg-format/"><u>[Updated] Expert Insights Switching From WebP to JPG Format</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-top-7-action-cams-to-capture-ski-trips/"><u>[Updated] In 2024, Top 7 Action Cams to Capture Ski Trips</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-start-saving-memories-using-lunapic-for-beginners/"><u>[Updated] Start Saving Memories Using LunaPic for Beginners</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-5-virtual-reality-vr-treadmills-review/"><u>[Updated] Top 5 Virtual Reality (VR) Treadmills Review</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-capturing-the-essence-recording-conversations-on-whatsapp-efficiently/"><u>2024 Approved Capturing the Essence Recording Conversations on WhatsApp Efficiently</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-illumination-strategies-for-filming/"><u>2024 Approved Essential Illumination Strategies for Filming</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-hide-likes-on-your-facebook-posts/"><u>How to Hide Likes on Your Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/motorsport-unions-cut-internet-cord/"><u>Motorsport Unions Cut Internet Cord</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-space-controls-block-stranger-viewers-on-facebook/"><u>Personal Space Controls: Block Stranger Viewers on Facebook</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/resurrecting-corrupted-video-files-on-android/"><u>Resurrecting Corrupted Video Files on Android</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/verscholen-files-usb-opslaan-met-command-prompt-een-handleiding/"><u>Verscholen Files USB Opslaan Met Command Prompt - Een Handleiding</u></a></li>
 </ul></div>
 

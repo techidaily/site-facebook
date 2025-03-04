@@ -1,7 +1,7 @@
 ---
 title: Mastering Social Media Account Exploration
-date: 2025-02-09T17:26:55.838Z
-updated: 2025-02-14T17:29:43.614Z
+date: 2025-02-25T19:45:49.289Z
+updated: 2025-03-04T16:38:37.297Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View and Review Your Activity on Facebook
 
  You can[use Facebook's search function](https://www.makeuseof.com/tag/5-facebook-search-tips/) to find the settings you are looking for. For example, there are quite a few ways you can[find anything on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , but to find everything you've ever liked on Facebook, all you need to do is to go to your**Activity Log** and this is how you do it:
@@ -39,27 +35,15 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 ![Screenshot of activity log Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/activity-log-view.jpg)
 3. You will be able to filter by**Date** or review**Activity Types.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4. You will be able to review your**Posts** . Things like photos, videos, or status updates that you have shared.  
 ![Screenshot Facebook likes and reactions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/likes-and-reactions.jpg)
 5. You'll be able to review the**Activity You're Tagged** in.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. You'll also see your**Interactions** such as what you've liked, reacted to, or commented on.
 2. You'll be able to review**Groups** and**Events,** such as your group activity and the events you've created.
 3. You'll see your**Profile Information** such as your phone number and email address.
 4. You can also see your**Connections** like friends, page likes as well as relationships.
 5. You'll see your**Logged Actions and Other Activity** to review things like your devices, logins and videos you've watched.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Reviewing Your Activity on Facebook
 
@@ -80,14 +64,18 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-lightweight-voice-alteration-maximizing-your-gameplay-in-pubg/"><u>[Updated] Lightweight Voice Alteration Maximizing Your Gameplay in PUBG</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/efficient-data-management-with-stellar-file-eraser-5-easy-windows-integration-and-scheduler-options/"><u>Efficient Data Management with Stellar File Eraser 5 - Easy Windows Integration and Scheduler Options</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-seekingnextgencamerasolutions/"><u>In 2024, SeekingNextGenCameraSolutions</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-itel-p55-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Itel P55 5G without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-constant-crashes-of-ascent-tips-and-solutions-for-a-smooth-gaming-experience/"><u>Resolving Constant Crashes of 'Ascent': Tips and Solutions for a Smooth Gaming Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-anonymous-advocates-playbook/"><u>The Anonymous Advocate's Playbook</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-potential-new-title/"><u>Understanding Facebook's Potential New Title</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-impact-on-protection-the-deletion-of-user-faceprints-on-fb/"><u>Unraveling the Impact on Protection: The Deletion of User Faceprints on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-layout-and-navigation-updates/"><u>Unveiling Facebook Layout & Navigation Updates</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-detailed-explanation-of-youtubes-operation-after-a-video-goes-live/"><u>[New] 2024 Approved Detailed Explanation of YouTube's Operation After a Video Goes Live</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-fostering-connection-strategies-for-striking-fb-slideshows/"><u>[New] 2024 Approved Fostering Connection Strategies for Striking FB Slideshows</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-shadowed-swords-and-honored-combatants-must-try-titles-inspired-by-ghost-of-tsushi/"><u>[New] In 2024, Shadowed Swords & Honored Combatants Must-Try Titles Inspired by Ghost of Tsushi</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-elite-5-non-twitter-channels-online/"><u>[Updated] Elite 5 Non-Twitter Channels Online</u></a></li>
+<li><a href="https://article-files.techidaily.com/1717992331918-updated-in-2024-differences-between-iphone-x-face-id-and-samsung-face-recognition/"><u>[Updated] In 2024, Differences Between iPhone X Face ID & Samsung Face Recognition</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/air-and-awe-an-in-depth-analysis-of-the-remarkable-nothing-phone-2/"><u>Air & Awe: An In-Depth Analysis of the Remarkable Nothing Phone 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-connections-the-essential-guide-to-social-integration-for-xbox-players/"><u>Crafting Connections: The Essential Guide to Social Integration for Xbox Players</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exclusive-top-5-iphone-podcast-apps-guide/"><u>In 2024, Exclusive Top 5 iPhone Podcast Apps Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/join-the-elite-group-testing-apple-vision-pro-apps-early-with-testflight-exclusive-steps-revealed/"><u>Join the Elite Group Testing Apple Vision Pro Apps Early with TestFlight - Exclusive Steps Revealed</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/master-the-art-of-fixing-super-person-errors-and-stabilize-your-pc-performance/"><u>Master the Art of Fixing ‘Super Person’ Errors & Stabilize Your PC Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticker-ads-in-facebook-stories-test-for-marketers/"><u>Sticker Ads in Facebook Stories: Test for Marketers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-public-discontent-with-social-media-giants/"><u>Unraveling Public Discontent with Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-unveils-its-covert-strategy-for-free-services/"><u>WhatsApp Unveils Its Covert Strategy for Free Services</u></a></li>
 </ul></div>
 

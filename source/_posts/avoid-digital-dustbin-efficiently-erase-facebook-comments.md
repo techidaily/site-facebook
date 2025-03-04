@@ -1,7 +1,7 @@
 ---
 title: "Avoid Digital Dustbin: Efficiently Erase Facebook Comments"
-date: 2024-08-23T02:08:59.572Z
-updated: 2024-08-24T02:08:59.572Z
+date: 2025-02-28T19:41:41.715Z
+updated: 2025-03-04T20:20:55.106Z
 tags:
   - facebook
 categories:
@@ -27,41 +27,25 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
  Deleting an offensive comment is simply a few clicks away. Just follow the steps below on how you can delete them, whether you're accessing Facebook on a PC or through the mobile app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Delete a Comment When Accessing Facebook From a PC
 
 Here's how to remove comments using a PC:
 
 ![screenshot showing how to delete comment on facebook desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-desktop-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Navigate to the upsetting comment, and hover your cursor over the comment. You'll see three dots next to the comment.
 2. Click on the**three dots** to reveal comment management options.
 3. With a click of the cursor on**Delete** , a dialogue box opens. It reads**Are you sure you want to delete this comment?** with an option to either cancel or delete.
 4. Click on**Delete,** and the comment is deleted.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### How to Delete a Comment on a Mobile App
 
  The process slightly differs on a Facebook mobile app. Follow these steps to delete a comment under your post directly from your mobile app.
 
 ![screenshot showing how to delete comment on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 Close
 
 1. Identify the negative comment, then long press on it until a menu pops up.
@@ -70,23 +54,17 @@ Close
 
  Related:[What Happens to Your Data if Facebook Ever Dies?](https://www.makeuseof.com/what-happens-to-facebook-data-if-it-dies/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Get Rid of Negative Comments on Your Posts
 
  You can't always control what comments people drop on your Facebook posts. However, Facebook empowers you to delete the comments you find offensive.
 
  If you have any such comments on your Facebook posts, follow the steps we've shared above to remove the comment.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,8 +73,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-enhancing-workflow-meeting-management-on-zoom/"><u>[New] Enhancing Workflow Meeting Management on Zoom</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-step-by-step-adding-captions-to-youtube-clips/"><u>[New] In 2024, Step-by-Step Adding Captions to YouTube Clips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-sony-bdp-s6700-fresh-perspective/"><u>[New] Sony BDP-S6700 - Fresh Perspective</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-unlock-the-power-of-broadcasts-how-to-master-youtube-and-twitch-using-obs/"><u>[New] Unlock the Power of Broadcasts How to Master YouTube & Twitch Using OBS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-maximize-gameplay-efficiency-with-top-monitor-extensions/"><u>[Updated] 2024 Approved Maximize Gameplay Efficiency With Top Monitor Extensions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-designing-dynamic-videos-with-adobe-captivate/"><u>2024 Approved Designing Dynamic Videos with Adobe Captivate</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-ties-with-facebook-via-android-platform/"><u>Cut Ties with Facebook via Android Platform</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-tecno-phantom-v-flip-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Tecno Phantom V Flip to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimal-use-of-zoom-features-on-chromebooks-for-2024/"><u>Optimal Use of Zoom Features on ChromeBooks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-chat-app-usage-without-a-facebook-account/"><u>Secrets of Chat App Usage without a Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-for-singles-deciphering-new-facebook-features/"><u>Social Networking for Singles: Deciphering New Facebook Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-enterprise-friendly-social-networks-today/"><u>Top 5 Enterprise-Friendly Social Networks Today</u></a></li>
+</ul></div>
 

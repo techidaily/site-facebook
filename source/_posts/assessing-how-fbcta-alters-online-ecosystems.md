@@ -1,7 +1,7 @@
 ---
 title: Assessing How FBCTA Alters Online Ecosystems
-date: 2024-08-28T02:54:33.677Z
-updated: 2024-08-29T02:54:33.677Z
+date: 2025-03-01T18:24:02.818Z
+updated: 2025-03-04T20:25:23.616Z
 tags:
   - facebook
 categories:
@@ -55,23 +55,17 @@ thumbnail: https://thmb.techidaily.com/e6889a658e4bba9c2827feba4ea063c236adc8db7
 
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Will Personalized Algorithms Become a Thing of the Past?
 
  Congress wants big tech companies to stop using unsolicited data from users to inform its algorithms, which is a big ask, considering this is a key part of apps like Facebook and Instagram, and part of what keeps users scrolling and engaging.
 
  Facebook is known to push back against lawmakers and defending its business, so it will be interesting to see how this plays out. For now though, don't hold your breath on Facebook overhauling its algorithm.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,26 @@ thumbnail: https://thmb.techidaily.com/e6889a658e4bba9c2827feba4ea063c236adc8db7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-thorough-evaluation-of-frozen-snack-playback-devices/"><u>[New] 2024 Approved Thorough Evaluation of Frozen Snack Playback Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-best-practices-for-filming-screen-captures/"><u>[Updated] Best Practices for Filming Screen Captures</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-online-anonymity-metacrypt-or-faceboss-for-quest/"><u>Assessing Online Anonymity: Metacrypt or Faceboss for Quest?</u></a></li>
+<li><a href="https://facebook.techidaily.com/coding-excellence-boosted-by-facebook-rust-association/"><u>Coding Excellence Boosted by Facebook-Rust Association</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comprehensive-fix-for-mmc-snap-in-creation-failure/"><u>Comprehensive Fix for MMC Snap In Creation Failure</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-communicate-without-relying-on-fb-messenger/"><u>How to Communicate Without Relying on FB Messenger</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-itel-a60s-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Itel A60s via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-maximizing-engagement-how-to-pick-perfect-youtube-collaborators/"><u>In 2024, Maximizing Engagement How to Pick Perfect YouTube Collaborators</u></a></li>
+<li><a href="https://facebook.techidaily.com/insta-collage-creation-tips-for-engaging-online-portfolits/"><u>Insta-Collage Creation: Tips for Engaging Online Portfolits</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneous-insights-10-lightweight-android-helpers/"><u>Instantaneous Insights: 10 Lightweight Android Helpers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-lenovo-driver-updates-for-optimized-windows-11-performance/"><u>Latest Lenovo Driver Updates for Optimized Windows 11 Performance</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-pro-video-editor-convert-casual-clips-into-cinematic-masterpieces/"><u>New Pro Video Editor Convert Casual Clips Into Cinematic Masterpieces</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-rising-meet-the-new-metaverse-demands/"><u>Second Life Rising? Meet the New Metaverse Demands?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-behind-catchy-posts-for-higher-fb-engagement/"><u>The Science Behind Catchy Posts for Higher FB Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-photo-selection/"><u>The Ultimate Guide to FB Photo Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-engagement-hide-your-affection-online/"><u>Unseen Engagement: Hide Your Affection Online</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ion-audio-tailgater-plus-unmatched-hours-of-sound-bliss-powerful-bass-enhancement-at-your-fingertips/"><u>Unveiling the Ion Audio Tailgater Plus: Unmatched Hours of Sound Bliss, Powerful Bass Enhancement at Your Fingertips</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-vivo-x100-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo X100 Pro Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>
 

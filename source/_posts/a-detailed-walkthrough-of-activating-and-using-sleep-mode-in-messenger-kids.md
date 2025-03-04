@@ -1,7 +1,7 @@
 ---
 title: A Detailed Walkthrough of Activating & Using Sleep Mode in Messenger Kids
-date: 2024-08-28T02:54:26.680Z
-updated: 2024-08-29T02:54:26.680Z
+date: 2025-02-27T17:24:36.477Z
+updated: 2025-03-04T16:01:30.854Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,6 @@ thumbnail: https://thmb.techidaily.com/3da56b4dd62c9d29faa422fa86eb533c5fdaa7995
 
  For example, you can set the app's sleep time to start at 8pm on weekdays and 9pm on weekends.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Setting Up Sleep Mode on the Web App
 
  Follow these steps to enable Sleep Mode on using the browser version of the app:
@@ -46,15 +43,9 @@ thumbnail: https://thmb.techidaily.com/3da56b4dd62c9d29faa422fa86eb533c5fdaa7995
 2. On the left, there are different options offered by Facebook. If it’s not available upfront, scroll down until you see the**Messenger Kids** tab.
 3. ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)  
  Click Messenger Kids. It will navigate you to the child’s account connected with your Facebook.
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 4. Tap on**Controls** to open a new menu with various settings.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 5. Click on**Sleep Mode** to open a customizable calendar. You have an option to alter the weekday and weekend use. For instance, most parents prefer handing out gadgets for screen time longer on weekends compared to weekdays.  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Adjust the time on Sleep Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Adjust-the-time-of-Sleep-Mode.jpg)
 6. Adjust the time to your requirements and click**Save** .
 
@@ -70,20 +61,10 @@ thumbnail: https://thmb.techidaily.com/3da56b4dd62c9d29faa422fa86eb533c5fdaa7995
 
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Sleep Mode on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Sleep-Mode-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
 1. Open the Facebook app on your phone. You will be directed to the**Home** Page.
@@ -118,9 +99,6 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  Allow your kids to cherish stress-free time by restricting their social media use. It helps them understand that the world does not revolve around social media only.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Reduce Worries About Social Media Addiction
 
  Social media addiction is a continuing concern for parents. Messenger Kids Sleep Mode allows your children to discover other sources of entertainment until the app is available for use again.
@@ -131,21 +109,15 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  A timetable focused on eating, sleeping, homework, school, and gadget-time can be a useful tool for kids who need more structure during their day. By enabling the Sleep Mode, you can make sure your children complete other tasks as well.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Create Healthy Limits With the Messenger Kids Sleep Mode
 
  Technology addiction and mental strain go hand in hand. This is why Messenger Kids allows parents to control the time their children spend using the app. Parents have complete authority to enable a schedule that matches their routine preferences.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,8 +126,18 @@ There are several perks of using Messenger Kids Sleep Mode.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-excellent-avi-player-pcmobile-compatibility/"><u>[New] Excellent AVI Player - PC/Mobile Compatibility</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-roadmap-to-selecting-top-tier-visual-storytellers/"><u>[New] In 2024, The Roadmap to Selecting Top-Tier Visual Storytellers</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-keeping-post-discussions-at-bay-on-fb/"><u>A Guide to Keeping Post Discussions at Bay on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquering-facebook-challenges-solutions-to-11-typical-errors/"><u>Conquering Facebook Challenges: Solutions to 11 Typical Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-response-to-tiktoks-growth-spurt/"><u>Facebook's Reel Response to TikTok's Growth Spurt</u></a></li>
+<li><a href="https://article-helps.techidaily.com/latest-overhaul-sonys-s6500-hd-and-bd-player-review-for-2024/"><u>Latest Overhaul Sony's S6500 HD & BD Player Review for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movaviflacogg/"><u>Movaviのサポート:オンラインで無料FLACからOGGへ効率的な変換</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-top-10plus-slow-motion-video-editing-software-for-2024/"><u>New Top 10+ Slow Motion Video Editing Software for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/radeon-hd-7850-graphics-card-driver-downloads-and-updates-expert-tips-for-windows-11-users/"><u>Radeon HD 7850 Graphics Card Driver Downloads & Updates: Expert Tips for Windows 11 Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/thrifty-aerial-assemblies-top-drones-for-(500-for-2024/"><u>Thrifty Aerial Assemblies Top Drones for <$500 for 2024</u></a></li>
+</ul></div>
 

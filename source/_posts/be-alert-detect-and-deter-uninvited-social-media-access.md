@@ -1,7 +1,7 @@
 ---
 title: "Be Alert: Detect and Deter Uninvited Social Media Access"
-date: 2024-08-23T02:09:17.644Z
-updated: 2024-08-24T02:09:17.644Z
+date: 2025-02-25T19:32:26.194Z
+updated: 2025-03-04T17:51:25.878Z
 tags:
   - facebook
 categories:
@@ -41,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
  If you suspect your Facebook account has been breached, you must remove the suspicious device's access. Then you should change your password and set up two-factor authentication (2FA) for an added layer of security. You can also set up alerts for unrecognized logins and log out of all devices.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Remove Device Access to Facebook
 
  If you see something that looks suspicious, you can use this list to revoke that device's access. Keep in mind that some IP address glitches might occasionally see one of your legitimate devices pop up in an unrecognized location. Using a VPN set to a server in a different location will do this, too. These cases are safe to ignore.
@@ -58,9 +55,6 @@ To revoke device access on your Facebook account:
 
  The access will be revoked, but the unauthorized person could potentially log in again if they know your password.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Change Your Facebook Password
 
  Once you've revoked the unauthorized person's access, you need to take steps to make sure it doesn't happen again.
@@ -73,17 +67,6 @@ To revoke device access on your Facebook account:
 
 ![Change password form on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/change-password-form-on-facebook-for-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### How to Set Up Two-Factor Authentication (2FA)
 
  Changing your password is only half the story. You should also consider setting up 2FA. 2FA can use either a text message, a security key, or an authentication app.
@@ -97,9 +80,6 @@ To turn on 2FA on Facebook:
 
 ![Re-entering password to enable two-factor authentication on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/re-entering-password-to-enable-two-factor-authentication-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Set Up Alerts for Unrecognized Logins
 
  You should also set up alerts for unrecognized logins. By enabling the feature, Facebook will notify you if it sees a login from a suspicious source. It will allow you to react more quickly in the event of a breach.
@@ -123,9 +103,6 @@ To set up the feature:
 
 ![Logging out of all devices on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/logging-out-of-all-devices-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Has Your Facebook Account Been Breached?
 
 Let's quickly summarize what we have learned:
@@ -143,14 +120,11 @@ Let's quickly summarize what we have learned:
 
  For example, don't use the same password on two different sites, use 2FA where available, and don't access highly sensitive data on either public computers or public Wi-Fi networks. Always use a VPN, especially when using a public Wi-Fi network.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,8 +133,19 @@ Let's quickly summarize what we have learned:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-obsession-with-top-10-tiktok-videos-for-2024/"><u>[New] Twitter's Obsession with Top 10 TikTok Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-enhance-functionality-with-easy-sierra-system-installation/"><u>[Updated] In 2024, Enhance Functionality with Easy Sierra System Installation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-the-meme-craft-kinemasters-role/"><u>[Updated] Mastering the Meme Craft KineMaster's Role</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-droning-made-simple-top-picks-for-kids-and-newbies/"><u>2024 Approved Droning Made Simple Top Picks for Kids & Newbies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-encoding-showdown-the-av1-and-vp9-race/"><u>Cutting-Edge Encoding Showdown The AV1 & VP9 Race</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/get-more-from-prime-day-with-these-spectacular-samsung-deals/"><u>Get More From Prime Day with These Spectacular Samsung Deals</u></a></li>
+<li><a href="https://facebook.techidaily.com/rights-and-rules-in-image-hosting-services/"><u>Rights and Rules in Image Hosting Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unleash-your-inner-beauty-with-leading-smartphone-apps/"><u>Unleash Your Inner Beauty with Leading Smartphone Apps</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Baffling Befrienders: Hide Your List Precision"
-date: 2024-08-23T02:07:42.651Z
-updated: 2024-08-24T02:07:42.651Z
+date: 2025-02-28T16:33:13.098Z
+updated: 2025-03-04T18:21:30.069Z
 tags:
   - facebook
 categories:
@@ -47,29 +47,12 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
 
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 ### Hiding Your Friends List on Desktop
@@ -82,9 +65,6 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
  3\. From the left sidebar, click**Privacy** .
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
@@ -99,23 +79,17 @@ The steps are similar on Facebook's desktop website.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Gaining Privacy on Facebook
 
  Facebook should be a place where you can connect with friends and have fun without sharing information that you don't want to.
 
  Not wanting people to see your friends list isn't a bad thing, and you may even benefit from hiding it. Hiding your Facebook network may protect you and your friends from dangerous or bothersome strangers messaging you. You may also protect yourself from drama related to your family or friends seeing who else you are friends with on Facebook. Gaining this privacy can keep you safe and free from stress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,8 +98,26 @@ The steps are similar on Facebook's desktop website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-fastest-practices-powerpoint-recordings/"><u>[New] In 2024, Fastest Practices PowerPoint Recordings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-wrap-up-strategies-free-youtube-end-screens-tutorial/"><u>[Updated] 2024 Approved Channel Wrap-Up Strategies - Free YouTube End Screens Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-worrying-aspects-of-the-metaverse-on-facebook/"><u>3 Worrying Aspects of the Metaverse on Facebook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/becoming-a-visionary-in-depth-guide-to-hdr-photography/"><u>Becoming a Visionary In-Depth Guide to HDR Photography</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-social-medias-hidden-punishments-shadowbans/"><u>Bypassing Social Media's Hidden Punishments (Shadowbans)</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/convert-your-media-files-top-8-no-cost-methods-from-mts-to-mp4-on-pc-and-mac/"><u>Convert Your Media Files: Top 8 No-Cost Methods From MTS to MP4 on PC & Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-sync-of-social-media-share-instagram-reels-post-on-facebook/"><u>Direct Sync of Social Media: Share Instagram Reels, Post on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-tiktok-is-eating-into-facebooks-revenue-and-user-numbers/"><u>How TikTok Is Eating Into Facebook's Revenue and User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-contacts-to-facebook-messenger/"><u>How to Add Contacts to Facebook Messenger</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-find-x7-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Find X7</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-itel-p40plus-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Itel P40+ to New Android? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/legal-boundaries-redefined-as-germany-restricts-facebook-from-harvesting-whatsapp-data/"><u>Legal Boundaries Redefined as Germany Restricts Facebook From Harvesting WhatsApp Data</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/low-light-iphone-luminary-techniques/"><u>Low-Light iPhone Luminary Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-evolving-tactics-threatening-eus-facebookinsta-presence/"><u>Meta's Evolving Tactics Threatening EU's Facebook/Insta Presence</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/passare-da-mov-a-mp4-senza-costi-il-metodo-di-conversione-on-line-piu-efficiente-con-moveavi/"><u>Passare Da MOV a MP4 Senza Costi: Il Metodo Di Conversione On-Line Più Efficiente Con Moveavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-allure-of-reinventing-instagrams-app-design/"><u>The Allure of Reinventing Instagram's App Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-music-revenue-sharing-on-facebook/"><u>The Evolution of Music Revenue Sharing on Facebook</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-an-ai-art-generator-in-2024/"><u>What Is an AI Art Generator, In 2024</u></a></li>
+</ul></div>
 

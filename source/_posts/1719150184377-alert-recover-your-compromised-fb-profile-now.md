@@ -1,7 +1,7 @@
 ---
 title: "Alert: Recover Your Compromised FB Profile Now"
-date: 2024-08-28T02:58:31.752Z
-updated: 2024-08-29T02:58:31.752Z
+date: 2025-02-27T17:40:30.362Z
+updated: 2025-03-04T16:58:13.751Z
 tags:
   - facebook
 categories:
@@ -48,16 +48,10 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### 1a. Change Your Facebook Password
 
  In case your Facebook hacker hasn't changed your password, you got lucky! Immediately update your password before you log out of suspicious sessions; you don't want to alert the hacker. If it's too late, head to step 1b.
@@ -66,9 +60,6 @@ Other signs that your account may have been hacked include:
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
 Do this only if you're sure you can log back in.
@@ -83,9 +74,6 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  This will let you retrieve your password in several ways. First, you'll have to**Find Your Account** . You can either enter the email address you used to register with Facebook or any other secondary email address you added, as well as your phone number.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
@@ -104,9 +92,6 @@ Do this only if you're sure you can log back in.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using [Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -131,23 +116,12 @@ Do this only if you're sure you can log back in.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Improving Facebook's Privacy and Security Settings
 
  Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta [Accounts Center](https://accountscenter.facebook.com/) and review the following points:
@@ -162,14 +136,11 @@ Do this only if you're sure you can log back in.
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,8 +149,21 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/anomaly-detection-for-safeguarding-personal-online-space/"><u>Anomaly Detection for Safeguarding Personal Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/build-your-career-with-smart-social-media-strategies/"><u>Build Your Career with Smart Social Media Strategies</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/converse-with-confidence-chatgpt-for-android/"><u>Converse with Confidence: ChatGPT for Android</u></a></li>
+<li><a href="https://win11.techidaily.com/elevating-file-security-with-powertoys-locksmith-expertise/"><u>Elevating File Security with PowerToys' Locksmith Expertise</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-support-explained-what-it-offers/"><u>Facebook Support Explained: What It Offers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/540207-9781101433034-faith-and-will/"><u>Faith and Will | Free Book</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-sony-xperia-5-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-artistic-expression-top-film-tips-on-youtube/"><u>In 2024, Discovering Artistic Expression Top Film Tips on YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-chrome-os-typing-with-the-on-screen-keyboard-a-step-by-step-guide/"><u>Mastering Chrome OS Typing with the On-Screen Keyboard - A Step-by-Step Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/restore-absent-signal-processor-in-windows/"><u>Restore Absent Signal Processor in Windows</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revive-your-social-presence-tips-for-reactivation-of-a-disabled-snapchat-username/"><u>Revive Your Social Presence: Tips for Reactivation of a Disabled Snapchat Username</u></a></li>
+<li><a href="https://facebook.techidaily.com/signals-of-struggle-what-awaits-on-facebook/"><u>Signals of Struggle: What Awaits on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-really-useful-podcast-review-of-the-year-2022/"><u>The Really Useful Podcast Review of the Year 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-blueprint-for-an-exceptional-facebook-profile/"><u>The Ultimate Blueprint for an Exceptional Facebook Profile</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Beyond Sensationalism: A Realistic Assessment of FB Dossiers"
-date: 2024-08-28T02:56:42.539Z
-updated: 2024-08-29T02:56:42.539Z
+date: 2025-02-27T17:38:46.153Z
+updated: 2025-03-04T18:54:05.371Z
 tags:
   - facebook
 categories:
@@ -55,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -74,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credits: Anthony Quintano via Flickr
 
  Let's read that again. Zuckerberg claims 94 percent of the hate speech it finds**before a human reports it** is removed, and the report says less than five percent of**all hate speech** gets removed. Did you catch that? They're talking about two different things!
@@ -85,9 +79,6 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -96,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,8 +100,19 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-visual-anonymous-how-to-make-faces-and-objects-invisible/"><u>[New] 2024 Approved Visual Anonymous How to Make Faces and Objects Invisible</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-harmonious-hues-choosing-pixel-rhythms/"><u>[New] In 2024, Harmonious Hues Choosing Pixel Rhythms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-new-rule-include-aspect-ratio-in-video-posts/"><u>[New] Twitter's New Rule Include Aspect Ratio in Video Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-ghosted-photo-posts-in-chats-and-messenger/"><u>Alert for Ghosted Photo Posts in Chats and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/american-public-consensus-social-medias-downside/"><u>American Public Consensus: Social Media's Downside</u></a></li>
+<li><a href="https://win-able.techidaily.com/chivalry-2-update-fixes-implemented-to-prevent-game-crashes-successfully/"><u>Chivalry 2 Update: Fixes Implemented to Prevent Game Crashes Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-governance-and-rulings-of-fbs-board/"><u>Dissecting The Governance and Rulings of FB's Board</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-features-of-newest-facebook-portals/"><u>Exploring the Features of Newest Facebook Portals</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-groups-admins-whos-next-for-legal-action-from-amazon/"><u>Facebook Groups Admins: Who's Next for Legal Action From Amazon?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-panzoid-structure-packs/"><u>In 2024, Premium Panzoid Structure Packs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/skylab-is-launched-by-the-united-states-from-apollo-launch-complex-39-at-kennedy-space-center-using-an-unmodified-saturn-v-rocket-it-becomes-the-first-ameri656/"><u>Skylab Is Launched by the United States From Apollo Launch Complex 39 at Kennedy Space Center Using an Unmodified Saturn V Rocket. It Becomes the First American Space Station, Providing Valuable Data for Future Missions.</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-for-resolving-wii-disc-playback-errors/"><u>Troubleshooting Tips for Resolving Wii Disc Playback Errors</u></a></li>
+</ul></div>
 

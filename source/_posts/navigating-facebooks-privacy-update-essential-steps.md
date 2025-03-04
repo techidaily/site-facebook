@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook’s Privacy Update: Essential Steps"
-date: 2025-02-12T22:33:13.155Z
-updated: 2025-02-15T03:26:15.925Z
+date: 2025-02-25T16:55:23.563Z
+updated: 2025-03-04T19:47:33.685Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -38,10 +34,6 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
@@ -49,15 +41,7 @@ Here's how:
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
 
@@ -103,10 +87,6 @@ Here's how:
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Protect Your Privacy
 
  Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
@@ -128,21 +108,22 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/rand-pixels-customizing-gaming-banners-with-style/"><u>[New] Brand Pixels Customizing Gaming Banners with Style</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-explore-and-master-group-communication-using-zoom-on-phone/"><u>[New] In 2024, Explore & Master Group Communication Using Zoom on Phone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-understanding-facebooks-new-policies-and-updates-for-2024/"><u>[New] Understanding Facebook's New Policies and Updates for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guide-to-rapid-or-slowdown-youtubes-playback-adjustments/"><u>[Updated] 2024 Approved Guide to Rapid or Slowdown YouTube's Playback Adjustments</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-culinary-delights-galore-the-best-of-the-viral-food-tiktok-recipes-you-cant-skip/"><u>[Updated] In 2024, Culinary Delights Galore The Best of the Viral Food TikTok Recipes You Can't Skip</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-beat-the-heat-tips-for-uploading-songs-to-youtube/"><u>In 2024, Beat the Heat Tips for Uploading Songs to YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-quick-steps-for-logging-playthroughs/"><u>In 2024, Quick Steps for Logging Playthroughs</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-samsung-galaxy-a05s-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Samsung Galaxy A05s Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/mobile-momentum-speedy-lite-android-apps-ranking/"><u>Mobile Momentum: Speedy Lite Android Apps Ranking</u></a></li>
-<li><a href="https://facebook.techidaily.com/reassessing-your-internet-interaction-and-cutting-down-on-chats/"><u>Reassessing Your Internet Interaction and Cutting Down on Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-lost-access-post-facebook-disconnections-unpredictably/"><u>Regaining Lost Access Post Facebook Disconnections Unpredictably</u></a></li>
-<li><a href="https://win-answers.techidaily.com/say-goodbye-to-star-citizen-errors-enjoy-smooth-gaming-on-windows-today/"><u>Say Goodbye to Star Citizen Errors – Enjoy Smooth Gaming on Windows Today!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-overwhelming-triad-of-metas-media-might/"><u>The Overwhelming Triad of Meta's Media Might</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-role-of-social-platforms-in-mitigating-scam-advertisements/"><u>The Role of Social Platforms in Mitigating Scam Advertisements</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-permanent-delete-feature-in-messenger/"><u>Understanding the Permanent Delete Feature in Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleash-content-potential-transfer-fb-posts-and-notes-among-leading-apps/"><u>Unleash Content Potential: Transfer Fb Posts & Notes Among Leading Apps.</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-high-speed-fb-video-techniques-for-smooth-playback/"><u>[New] High-Speed FB Video Techniques for Smooth Playback</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-artistic-arenas-of-2022s-olympians/"><u>[Updated] 2024 Approved Artistic Arenas of 2022'S Olympians</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-tips-on-creating-striking-ae-titles-for-2024/"><u>[Updated] Expert Tips on Creating Striking AE Titles for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-motorola-edge-40-neo-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Motorola Edge 40 Neo Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/archiving-acrobatics-expertise-in-concealing-social-media-posts/"><u>Archiving Acrobatics: Expertise in Concealing Social Media Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-curtain-investigating-facebooks-smartwatch-blueprint/"><u>Behind the Curtain: Investigating Facebook's Smartwatch Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-screen-my-experience-with-quitting-social-media/"><u>Beyond the Screen: My Experience with Quitting Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-bond-detach-your-instagram-and-facebook/"><u>Break the Bond: Detach Your Instagram and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-online-security-after-losing-your-phonefb/"><u>Bypassing Online Security After Losing Your Phone:FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/correcting-errors-in-receiving-facebooks-two-factor-authentication-code/"><u>Correcting Errors in Receiving Facebook's Two-Factor Authentication Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-conversation-culture-with-care/"><u>Cultivating Conversation Culture with Care</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-on-a-smart-assistant-contrasting-features-of-echo-pop-and-echo-dot/"><u>Deciding on a Smart Assistant: Contrasting Features of Echo Pop and Echo Dot</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-the-secrets-to-superior-scalability-in-roblox-worlds/"><u>Discover the Secrets to Superior Scalability in Roblox Worlds</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146902767-facebook-enhances-chat-security-with-new-encrypted-messaging-features/"><u>Facebook Enhances Chat Security with New Encrypted Messaging Features</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-precision-in-capturing-androids-best-techniques/"><u>In 2024, Precision in Capturing Android's Best Techniques</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/next-gen-cpu-chillers-revealed-by-noctua-experience-the-future-with-evaporative-and-pumpless-technology/"><u>Next-Gen CPU Chillers Revealed by Noctua - Experience the Future with Evaporative & Pumpless Technology</u></a></li>
 </ul></div>
 

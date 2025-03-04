@@ -1,7 +1,7 @@
 ---
 title: "Become a Savvy Social Media User: Mastering Privacy & Security"
-date: 2024-08-23T02:08:07.858Z
-updated: 2024-08-24T02:08:07.858Z
+date: 2025-03-01T18:07:43.611Z
+updated: 2025-03-04T16:34:55.298Z
 tags:
   - facebook
 categories:
@@ -50,16 +50,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3. Profile and Tagging
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
 * Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the [Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
@@ -68,16 +62,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
 * The [Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
@@ -85,9 +73,6 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
@@ -103,9 +88,6 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
@@ -116,14 +98,11 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
  By cleaning up past posts, being mindful of who sees your photos, and restricting access to your personal data, you can create a secure online presence on Facebook and other social media outlets. It's worthwhile reviewing these settings periodically to ensure that everything is as locked as you want it to be.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,8 +111,23 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-engage-enrich-and-excel-top-ideas-for-productive-podcast-sessions/"><u>[New] 2024 Approved Engage, Enrich & Excel Top Ideas for Productive Podcast Sessions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-building-your-youtube-empire-kit-overview/"><u>[New] In 2024, Building Your YouTube Empire Kit Overview</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-nocturnal-narrative-videos-analysis/"><u>[Updated] 2024 Approved Nocturnal Narrative Videos Analysis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-listing-from-the-tail-reordering-videos-in-a-reverse-sequence/"><u>[Updated] Listing From the Tail Reordering Videos in a Reverse Sequence</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/2024youtube7/"><u>「2024年度必見！人気の高い無料YouTube録画ツールベスト7品紹介」</u></a></li>
+<li><a href="https://facebook.techidaily.com/compreenas-unlocking-your-facebook-blocked-friends-names/"><u>Compreenas: Unlocking Your Facebook Blocked Friends’ Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-doppelgangers-uncovered-spotting-the-9-profile-impostors/"><u>Digital Doppelgängers Uncovered: Spotting the 9 Profile Impostors</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151233047-expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-silent-playstation-4-operation-expert-advice-on-dealing-with-a-loud-fan/"><u>Mastering Silent PlayStation 4 Operation: Expert Advice on Dealing With a Loud Fan</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-markup-magic-standout-text-styles/"><u>Messenger Markup Magic: Standout Text Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-truths-and-misconceptions-a-reality-check/"><u>Metaverse Truths & Misconceptions – A Reality Check</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/prime-desktop-systems-for-quality-use-for-2024/"><u>Prime Desktop Systems for Quality Use for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-purchase-power-from-online-predators-at-facebook-marketplace/"><u>Protecting Your Purchase Power From Online Predators at Facebook Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-designing-fb-social-gatherings/"><u>Simplifying the Process of Designing FB Social Gatherings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-complete-mac-users-guide-to-capturing-roblox-gaming-sessions-for-2024/"><u>The Complete Mac User's Guide to Capturing Roblox Gaming Sessions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/taming-learn-youtube-video-length-cuts-for-2024/"><u>Time Taming Learn YouTube Video Length Cuts for 2024</u></a></li>
+</ul></div>
 

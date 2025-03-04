@@ -1,7 +1,7 @@
 ---
 title: "Mastering Messenger Kids' Sleep Mode: A Step-by-Step Guide"
-date: 2025-02-10T08:47:17.246Z
-updated: 2025-02-15T09:53:22.790Z
+date: 2025-03-03T18:53:39.512Z
+updated: 2025-03-04T19:57:36.853Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Sleep Mode in Messenger Kids?
 
  Over the years, the[addition of new controls on Messenger Kids](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) has helped parents create a secure online environment for their children, and Sleep Mode is one of them. It is designed to keep your child’s screen time capped to a certain number of hours or certain days during the week.
@@ -44,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  For example, you can set the app's sleep time to start at 8pm on weekdays and 9pm on weekends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Setting Up Sleep Mode on the Web App
 
  Follow these steps to enable Sleep Mode on using the browser version of the app:
@@ -60,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 4. Tap on**Controls** to open a new menu with various settings.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 5. Click on**Sleep Mode** to open a customizable calendar. You have an option to alter the weekday and weekend use. For instance, most parents prefer handing out gadgets for screen time longer on weekends compared to weekdays.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Adjust the time on Sleep Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Adjust-the-time-of-Sleep-Mode.jpg)
 6. Adjust the time to your requirements and click**Save** .
@@ -79,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu.jpg)
 
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
@@ -102,10 +86,6 @@ Close
 
 **Download:** Facebook App on[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012755/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215) (Free)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why It’s a Good Idea to Use the Sleep Mode
 
 There are several perks of using Messenger Kids Sleep Mode.
@@ -113,10 +93,6 @@ There are several perks of using Messenger Kids Sleep Mode.
 ### Better Focus on Other Activities
 
 ![Children performing various activities](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Children-performing-various-activities.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Kids are energetic and should participate in physical activities and sports. With technology becoming common, it is hard to motivate them.
 
@@ -140,10 +116,6 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  A timetable focused on eating, sleeping, homework, school, and gadget-time can be a useful tool for kids who need more structure during their day. By enabling the Sleep Mode, you can make sure your children complete other tasks as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Create Healthy Limits With the Messenger Kids Sleep Mode
 
  Technology addiction and mental strain go hand in hand. This is why Messenger Kids allows parents to control the time their children spend using the app. Parents have complete authority to enable a schedule that matches their routine preferences.
@@ -163,22 +135,24 @@ There are several perks of using Messenger Kids Sleep Mode.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-master-techniques-for-live-sport-broadcast-recording/"><u>[New] 2024 Approved Master Techniques for Live Sport Broadcast Recording</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-capturing-life-basic-shots-every-new-director-should-master/"><u>[New] Capturing Life Basic Shots Every New Director Should Master</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ourney-around-the-world-on-youtube-including-you-for-2024/"><u>[New] Journey Around the World on YouTube, Including You for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-exploring-the-best-phone-apps-to-modify-voice-quality/"><u>2024 Approved Exploring the Best Phone Apps to Modify Voice Quality</u></a></li>
-<li><a href="https://extra-information.techidaily.com/complete-dji-inspire-1-review-insights/"><u>Complete DJI Inspire 1 Review Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-purpose-behind-permitting-separate-identities-under-a-single-facebook-id/"><u>Exploring the Purpose Behind Permitting Separate Identities Under a Single Facebook ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-touch-features-a-utility-check-up/"><u>Facebook Touch Features: A Utility Check-Up</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-your-kotion-each-g2000-microphones-audio-input-functionality/"><u>How to Restore Your Kotion EACH-G2000 Microphone's Audio Input Functionality</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-advanced-google-slides-techniques-adding-youtube-media/"><u>In 2024, Advanced Google Slides Techniques Adding YouTube Media</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimize-your-media-output-with-our-top-10-online-subtitles-tools/"><u>Optimize Your Media Output With Our Top 10 Online Subtitles Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/scamming-through-false-identities-on-facebook/"><u>Scamming Through False Identities on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/screenshot-your-peace-blocking-fb-notifies/"><u>Screenshot Your Peace: Blocking FB Notifies</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-to-access-restricted-videos-on-fb-without-issues/"><u>Techniques to Access Restricted Videos on FB Without Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/tidy-tactics-for-a-smarter-facebook-presence/"><u>Tidy Tactics for a Smarter Facebook Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/track-vanishing-snapshots-in-facebook-messenger/"><u>Track Vanishing Snapshots in Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwanted-network-facebooks-top-3-ban-countries/"><u>Unwanted Network: Facebook's Top 3 Ban Countries</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-avs-audio-editor-product-details-key-features-reviews-and-alternatives/"><u>Updated 2024 Approved AVS Audio Editor Product Details, Key Features, Reviews & Alternatives</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-framed-in-perfection-the-1-10-camera-lens-list-for-stunning-photography/"><u>[New] 2024 Approved Framed in Perfection The #1-10 Camera Lens List for Stunning Photography</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-is-apple-m1-macbook-air-good-for-video-editing-in-2024/"><u>[New] Is Apple M1 MacBook Air Good for Video Editing, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-videoleap-zoom-hacks-for-detailed-video-insight/"><u>[Updated] 2024 Approved Videoleap Zoom Hacks for Detailed Video Insight</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-capturing-counter-strike-global-offensive-play-seamlessly/"><u>[Updated] In 2024, Capturing Counter-Strike Global Offensive Play Seamlessly</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-is-luminances-hdr-suitable-for-production/"><u>[Updated] Is Luminance's HDR Suitable for Production?</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-alarms-for-metas-social-colossus/"><u>3 Alarms for Meta's Social Colossus</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-enhanced-fb-security/"><u>A Step-by-Step Approach to Enhanced FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-apart-from-friends-on-fb-truths-unveiled/"><u>Are You Apart From Friends on FB? Truths Unveiled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/bargain-hunters-paradise-unveiling-top-10-shopping-spots-for-boxes-for-2024/"><u>Bargain Hunters' Paradise Unveiling Top 10 Shopping Spots for Boxes for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-direct-be-quick-understanding-3-tagging-techniques-for-fb-friends/"><u>Be Direct, Be Quick: Understanding 3 Tagging Techniques for FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-through-meta-user-management-portal/"><u>Charting a Course Through Meta User Management Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/converting-connectivity-into-corp-achievements-via-top-sites/"><u>Converting Connectivity Into Corp Achievements via Top Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-facebooks-reels-disrupt-tiktoks-dominance/"><u>Could Facebook’s Reels Disrupt TikTok's Dominance?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-conversation-clarity-formatting-highlights/"><u>Crafting Conversation Clarity: Formatting Highlights</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-tricks-for-integrating-playstation-vr-with-your-personal-computer/"><u>Easy Tricks for Integrating PlayStation VR with Your Personal Computer</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-8-most-critical-flaws-in-openais-revolutionary-chatgpt-technology/"><u>Exploring the 8 Most Critical Flaws in OpenAI's Revolutionary ChatGPT Technology</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-v-purse-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor V Purse to New Android? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-monetize-your-live-webcam-shows/"><u>In 2024, How to Monetize Your Live Webcam Shows</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152494885-newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade!</u></a></li>
 </ul></div>
 

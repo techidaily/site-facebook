@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2025-02-11T20:37:34.723Z
-updated: 2025-02-15T11:06:07.793Z
+date: 2025-02-28T17:32:52.675Z
+updated: 2025-03-04T17:24:21.714Z
 tags:
   - facebook
 categories:
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Big Tech Companies Use Data for Profit
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
@@ -56,17 +52,9 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -98,10 +86,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
  However, in February 2021,[Politico reported](http://www.politico.eu/article/data-at-risk-amazon-security-threat/) that three high-level whistleblowers warned the public that Amazon does not keep its cloud-stored data sufficiently safe. Such shortcomings affect government clients and all other people who store information with the company. In addition, sources say the company has grown so fast that representatives have no idea what information Amazon holds or where to find all of it.
@@ -113,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 ## Big Tech Companies Have Incredible Influence
 
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -157,19 +137,22 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebook-mastery-pioneering-techniques-for-any-marketing-stage/"><u>[New] 2024 Approved Facebook Mastery Pioneering Techniques for Any Marketing Stage</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-craft-memorable-content-explore-youtubes-top-10-creative-responses-for-2024/"><u>[New] Craft Memorable Content Explore YouTube's Top 10 Creative Responses for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-beginners-pathway-to-custom-vocalization-expert-tips-on-modifying-sounds-free/"><u>[New] The Beginner's Pathway to Custom Vocalization Expert Tips on Modifying Sounds (Free)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-tier-mics-for-online-presenters/"><u>[Updated] 2024 Approved Top-Tier Mics for Online Presenters</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-steps-to-confirm-video-compliance-before-tiktok-posting/"><u>2024 Approved Steps to Confirm Video Compliance Before TikTok Posting</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/beat-the-buzz-expert-advice-on-eliminating-popping-sounds-from-your-computers-audio-system/"><u>Beat the Buzz: Expert Advice on Eliminating Popping Sounds From Your Computer's Audio System</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/cyberpunk-2077-sound-troubleshooting-for-windows-11-users-now-playing/"><u>Cyberpunk 2077 Sound Troubleshooting for Windows 11 Users - Now Playing</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stop-receiving-fb-message-banners/"><u>How to Stop Receiving FB Message Banners</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-infinix-note-30-vip-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Infinix Note 30 VIP Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-telegrams-ascension-during-facebook-breakdown/"><u>Investigating Telegram’s Ascension During Facebook Breakdown</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-separation-in-on-this-day-stories/"><u>Maintaining Separation in On This Day Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/rapid-id-shifting-for-distinct-social-media-profiles-fb/"><u>Rapid ID Shifting for Distinct Social Media Profiles, FB</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-zte-nubia-flip-5g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for ZTE Nubia Flip 5G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-freedom-from-fomo-top-10-reasons-why-you-shouldnt-be-tied-to-facebook/"><u>The Freedom From FOMO: Top 10 Reasons Why You Shouldn’t Be Tied to Facebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-analysis-of-inshots-features-and-rankings/"><u>[New] In-Depth Analysis of InShot's Features and Rankings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-5-best-ps1-emulators-for-pc/"><u>[Updated] Top 5 Best Ps1 Emulators for PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-blueprint-for-crafting-a-signature-online-journey/"><u>A Blueprint for Crafting a Signature Online Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-the-world-of-elusive-social-media-posts/"><u>A Peek Into the World of Elusive Social Media Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-facebook-quizzes-a-cybersecurity-risk/"><u>Are Facebook Quizzes a Cybersecurity Risk?</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-personal-and-professional-networks-on-whatsapp/"><u>Blending Personal and Professional Networks on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/care-for-confidentiality-sidestep-these-3-apps/"><u>Care for Confidentiality: Sidestep These 3 Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-the-rise-of-metamates-at-facebook/"><u>Charting a Course: The Rise of 'Metamates' At Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-diligence-defense-sidestep-these-snooping-apps/"><u>Data Diligence Defense: Sidestep These Snooping Apps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-hp-pagewide-pro-477dw-printer-drivers-latest-version-for-windows-11-10-and-8-pcs/"><u>Get HP PageWide Pro 477DW Printer Drivers: Latest Version for Windows 11, 10 & 8 PCs</u></a></li>
+<li><a href="https://win-web.techidaily.com/guide-facile-comment-utiliser-une-cle-usb-recuperation-windows-11-sur-des-systemes-distincts/"><u>Guide Facile : Comment Utiliser Une Clé USB Récupération Windows 11 Sur Des Systèmes Distincts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-5-android-photo-fixers/"><u>In 2024, Ultimate 5 Android Photo Fixers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/macx-pro-the-essential-free-toolset-for-mac-users-to-convert-dvds-into-itunes-formats-and-mobile-device-playback-on-apple-products/"><u>MacX Pro - The Essential Free Toolset for Mac Users to Convert DVDs Into iTunes Formats and Mobile Device Playback on Apple Products</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726223014825-movavi/"><u>Movavi</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/uncover-the-ultimate-tech-deals-the-top-16-items-at-walmart-revealed-by-zdnet/"><u>Uncover the Ultimate Tech Deals: The Top 16 Items at Walmart Revealed by ZDNet</u></a></li>
+<li><a href="https://fox-access.techidaily.com/unlock-quick-filming-techniques-your-5-best-home-hacks-list-for-2024/"><u>Unlock Quick Filming Techniques – Your 5 Best Home Hacks List for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146908119-unveil-social-connectivity-transfer-facebook-storages-to-leading-services/"><u>Unveil Social Connectivity: Transfer Facebook Storages to Leading Services.</u></a></li>
 </ul></div>
 

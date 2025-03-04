@@ -1,7 +1,7 @@
 ---
 title: Personalize Your Playlists Anywhere - FB's Mini-Panel Feature, Spotify
-date: 2025-02-14T09:01:02.062Z
-updated: 2025-02-14T23:53:09.937Z
+date: 2025-02-25T17:34:11.739Z
+updated: 2025-03-04T17:02:53.282Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Enjoy Your Favorite Spotify Content on the Facebook App
 
  Before the rollout of this new miniplayer, it was already possible to share Spotify songs on Facebook with friends and family. But whenever you wanted to listen to them, you were automatically redirected to the Spotify app or website.
@@ -35,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Now, you can enjoy your favorite tunes without ever leaving the Facebook app.
 
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -52,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
 
  To launch the new Facebook player, simply tap the**Play** button on the Spotify song shared on the News Feed.
@@ -64,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 Close
@@ -75,10 +59,6 @@ Close
  The chosen song should start playing right away. You can continue to scroll through your News Feed, and the song will keep playing.
 
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
 
@@ -101,19 +81,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-prime-premiere-pro-blueprints-best-free-2023/"><u>[Updated] 2024 Approved Prime Premiere Pro Blueprints - Best Free 2023</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-start-editing-with-ease-implementing-movie-maker-in-windows-11/"><u>[Updated] 2024 Approved Start Editing with Ease Implementing Movie Maker in Windows 11</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-playful-portraits-how-to-apply-a-cartoon-face-on-snapchat/"><u>[Updated] Playful Portraits How to Apply a Cartoon Face on Snapchat</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-delving-into-the-advantages-and-disadvantages-of-youtube-premium/"><u>2024 Approved Delving Into the Advantages and Disadvantages of YouTube Premium</u></a></li>
-<li><a href="https://facebook.techidaily.com/elite-english-soccer-clubs-ditch-social-networks-against-online-violence/"><u>Elite English Soccer Clubs Ditch Social Networks Against Online Violence</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/essential-tips-for-perfect-webinar-saves-for-2024/"><u>Essential Tips for Perfect Webinar Saves for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-delivers-next-gen-chat-experience-with-new-tools-for-instagram-messenger/"><u>Facebook Delivers Next-Gen Chat Experience with New Tools for Instagram, Messenger</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastery-in-multichannel-instagram-to-tiktok-connector/"><u>In 2024, Mastery in Multichannel Instagram to TikTok Connector</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ipad-pro-versus-macbook-air-showdown-determining-the-ideal-tech-companion-for-your-needs/"><u>IPad Pro Versus MacBook Air Showdown: Determining the Ideal Tech Companion for Your Needs</u></a></li>
-<li><a href="https://facebook.techidaily.com/isolating-your-instagram-profile-from-facebook-services/"><u>Isolating Your Instagram Profile From Facebook Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/reach-elite-level-with-metas-premium-badge/"><u>Reach Elite Level with Meta’s Premium Badge</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-against-facebooks-intrusive-practices/"><u>Safeguard Against Facebook’s Intrusive Practices</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/simple-methods-for-downloading-and-installing-updated-drivers-on-a-dell-d31atur-peripheral-device/"><u>Simple Methods for Downloading and Installing Updated Drivers on a Dell D31atur Peripheral Device</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-motorola-moto-g34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-intro-excellence-app-your-device-friendly-solution/"><u>[New] In 2024, Intro Excellence App Your Device-Friendly Solution</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-rhythmic-recording-music-infused-snapchat-adventures/"><u>[New] Rhythmic Recording Music-Infused Snapchat Adventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-promoting-vacancies-through-fb/"><u>Best Practices in Promoting Vacancies Through FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-texting-facebook-rolls-out-sonic-innovations/"><u>Beyond Texting: Facebook Rolls Out Sonic Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-complexity-insights-from-facebooks-openness-center/"><u>Breaking Down Complexity: Insights From Facebook's Openness Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-with-melodies-enjoy-spotifys-mini-panel-on-facebook/"><u>Connect with Melodies: Enjoy Spotify's Mini-Panel on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-meta-shatter-the-dominance-of-facebook-and-instagram-in-europe/"><u>Could Meta Shatter the Dominance of Facebook & Instagram in Europe?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-trend-300-oculus-purchases-breached-accounts/"><u>Cybersecurity Trend: $300 Oculus Purchases, Breached Accounts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-vivo-y17s-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Vivo Y17s Phone? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-s23-tactical-edition-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy S23 Tactical Edition to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ry-of-live-sharing-youtube-edition/"><u>Mastery of Live Sharing YouTube Edition</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-delayed-gpsvc-loop-on-your-machine/"><u>Solving Delayed GPSVC Loop on Your Machine</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-insiders-view-on-tech-trends-your-go-to-source-toms-hardware/"><u>The Insider's View on Tech Trends: Your Go-To Source - Tom's Hardware</u></a></li>
+<li><a href="https://fox-http.techidaily.com/troubleshooting-guide-resolving-freeze-ups-in-f1-2021-game-for-pc-players/"><u>Troubleshooting Guide - Resolving Freeze-Ups in F1 2021 Game for PC Players</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlock-potential-with-adaptive-web-pages-via-cookiebot-solutions/"><u>Unlock Potential with Adaptive Web Pages via Cookiebot Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151253987-unveiling-my-initial-facebook-sign-up-day/"><u>Unveiling: My Initial Facebook Sign-Up Day</u></a></li>
 </ul></div>
 

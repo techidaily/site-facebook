@@ -1,7 +1,7 @@
 ---
 title: "Behind the Scenes of Innovation: Essential, Unseen Tech News"
-date: 2024-08-28T02:56:03.428Z
-updated: 2024-08-29T02:56:03.428Z
+date: 2025-03-03T20:35:15.458Z
+updated: 2025-03-04T19:53:30.669Z
 tags:
   - facebook
 categories:
@@ -49,16 +49,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
  The company is looking at the metaverse as the next significant shift in tech, which changes the way humans interact with the internet. Instead of accessing the internet through disparate apps, services, and hardware, the metaverse links them together to meld a seamless experience almost similar to physical reality.
@@ -69,17 +63,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
  The iOS 15 update further exacerbated this conflict, allowing users to see which apps access which data and sensors, and when. You can even see whether these apps share your data with third-party entities.
@@ -90,23 +77,17 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Tech News Will We See in 2022?
 
  These are some of the biggest tech news stories of 2021, and we're looking forward to a more exciting 2022\. While many of us won't feel the immediate impact of these developments, they will shape how we use and interact with technology in the near future.
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,8 +96,26 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-efficient-techniques-to-record-and-store-facebook-calls/"><u>[New] Efficient Techniques to Record and Store Facebook Calls</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-sensational-jokes-ranking-the-viral-ones/"><u>[New] In 2024, Sensational Jokes Ranking the Viral Ones</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-joint-creative-endeavors-between-brands-and-youtube/"><u>[New] Joint Creative Endeavors Between Brands & YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-twitch-revival-tactics-for-forgotten-sessions/"><u>[Updated] 2024 Approved Twitch Revival Tactics for Forgotten Sessions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-learning-the-pixiz-method-for-photo-based-video-crafting/"><u>[Updated] Learning the Pixiz Method for Photo-Based Video Crafting</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-power-play-the-new-strategy-against-big-tech-and-silicon-valley/"><u>Deconstructing Power Play: The New Strategy Against Big Tech and Silicon Valley</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/or-mirrorless-the-ultimate-question-for-videographers-for-2024/"><u>DSLR or Mirrorless? The Ultimate Question for Videographers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-sever-spotify-facebook-association-effectively/"><u>How To Sever Spotify-Facebook Association Effectively</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/izing-revenue-a-complete-framework-for-tracking-youtube-views-and-income-for-2024/"><u>Maximizing Revenue A Complete Framework for Tracking YouTube Views & Income for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mending-broken-connection-with-friendster-facebook/"><u>Mending Broken Connection with Friendster (Facebook)</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-platforms-responsibility-in-the-fight-against-covid-19-misinformation/"><u>Online Platforms' Responsibility in the Fight Against COVID-19 Misinformation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/social-media-showdown-is-the-future-with-likes-or-sticking-to-tiktok-in-2024/"><u>Social Media Showdown Is the Future with Likes or Sticking to TikTok, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streaming-on-ig-live-with-no-media-required/"><u>Streaming On IG Live With No Media Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-vk-understanding-russias-alternative-facebook/"><u>The Rise of VK: Understanding Russia’s Alternative Facebook</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-and-correcting-libxml2dll-missing-file-notifications/"><u>Understanding and Correcting Libxml2.dll Missing File Notifications</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-your-full-potential-on-macos-monterey-tailoring-custom-concentration-settings-to-dodge-distractions-techniques-spotlighted/"><u>Unlocking Your Full Potential on macOS Monterey: Tailoring Custom Concentration Settings to Dodge Distractions - Techniques Spotlighted</u></a></li>
+<li><a href="https://facebook.techidaily.com/wait-and-see-facebook-board-halts-decision-process/"><u>Wait and See: Facebook Board Halts Decision Process</u></a></li>
+</ul></div>
 

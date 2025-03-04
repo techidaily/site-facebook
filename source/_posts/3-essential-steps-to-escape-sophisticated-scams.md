@@ -1,7 +1,7 @@
 ---
 title: 3 Essential Steps to Escape Sophisticated Scams
-date: 2024-08-23T02:09:13.638Z
-updated: 2024-08-24T02:09:13.638Z
+date: 2025-02-27T18:05:14.980Z
+updated: 2025-03-04T18:22:20.665Z
 tags:
   - facebook
 categories:
@@ -74,16 +74,10 @@ There are some simple things you can do to avoid this kind of scam:
 
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## 3\. Facebook Dating Scams
 
 ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
  Why Facebook? Trust! One of a scammer's greatest weapons is getting their targets to trust them. Since Facebook provides a snapshot of an individual's life, it's easy for their targets to feel they know the scammer by just scrolling through their profile. You see pictures of them, their kids, cats, dogs, homes, and you start feeling some form of connection.
@@ -108,9 +102,6 @@ Of course, that's all fake.
 
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -119,14 +110,11 @@ Of course, that's all fake.
 
  According to the US's [Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,8 +123,23 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastering-your-fb-profile-picture-update/"><u>[New] In 2024, Mastering Your FB Profile Picture Update</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-partner-filmmaking-for-channelnode-increase-strategies/"><u>[Updated] Partner Filmmaking for Channelnode Increase Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-irksome-social-media-suggestions-on-facebook/"><u>Cutting Down On Irksome Social Media Suggestions on Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-enhance-your-internet-speed-the-ultimate-guide-for-intel-dual-band-ac-7260-driver/"><u>Download and Enhance Your Internet Speed: The Ultimate Guide for Intel Dual Band AC 7260 Driver</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exciting-opportunity-save-on-amazons-kid-friendly-fire-tablet-snag-it-for-a-steal-at-only-90-before-time-runs-out/"><u>Exciting Opportunity: Save on Amazon’s Kid-Friendly Fire Tablet - Snag It for a Steal at Only $90 Before Time Runs Out!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-raises-the-bar-sonic-features-launched/"><u>Facebook Raises the Bar: Sonic Features Launched</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150836238-governance-guild-prepares-to-dictate-trumps-status-on-fb/"><u>Governance Guild Prepares to Dictate Trump's Status on FB</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratuite-garantie-transformez-votre-fichier-gif-en-format-avi-sur-internet-moviwizard/"><u>Gratuité Garantie : Transformez Votre Fichier GIF en Format AVI Sur Internet - MoviWizard</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-virtual-communities-for-older-users/"><u>Prime Virtual Communities For Older Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-trust-unveiling-facebooks-new-policies-hub/"><u>The Blueprint of Trust: Unveiling Facebook’s New Policies Hub</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-videographers-playbook-for-sims-games-for-2024/"><u>The Videographer's Playbook for Sims Games for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-room-efficiency-with-these-10-sms-tactics/"><u>Unlock Room Efficiency with These 10 SMS Tactics</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-from-free-to-pro-the-top-10-fcpx-plugins-to-take-your-videos-to-the-next-level/"><u>Updated 2024 Approved From Free to Pro The Top 10 FCPX Plugins to Take Your Videos to the Next Level</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-safety-in-social-media-environments/"><u>User Safety in Social Media Environments</u></a></li>
+</ul></div>
 

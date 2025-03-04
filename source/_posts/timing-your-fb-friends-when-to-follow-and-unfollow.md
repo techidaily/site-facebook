@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2025-02-13T14:40:34.810Z
-updated: 2025-02-15T14:27:17.611Z
+date: 2025-03-02T19:58:39.038Z
+updated: 2025-03-04T16:34:27.880Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Does Following Mean on Facebook?
 
  The follow feature is one of Facebook's most underused tools. Many people don't realize that you can use it to communicate with almost anyone on the network, even if you're not friends.
@@ -40,10 +36,6 @@ Facebook's follow feature works in two ways:
  We've explained[the differences between Facebook friends and Facebook followers](https://www.makeuseof.com/facebook-friends-followers-differences/) in more detail elsewhere on the site if you would like to learn more.
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Is the Follow Feature Necessary?
 
@@ -79,10 +71,6 @@ There are two reasons to use the follow feature.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
@@ -111,10 +99,6 @@ This same page contains three other settings you need to be aware of:
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to See Who Follows You on Facebook
 
  Seeing who is following you is much the same as seeing who you're following.
@@ -126,10 +110,6 @@ This same page contains three other settings you need to be aware of:
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
@@ -162,16 +142,21 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-editsuite-explorer-full-evaluation/"><u>[New] 2024 Approved EditSuite Explorer – Full Evaluation</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-pros-and-cons-of-syma-x8c/"><u>[New] In 2024, Pros and Cons of Syma X8C</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-premier-mp4-uploader-and-downloader-for-fb/"><u>2024 Approved Premier MP4 Uploader & Downloader for FB</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-my-data-if-my-iphone-12-screen-turns-black-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Can I recover my data if my iPhone 12 screen turns black? | Stellar</u></a></li>
-<li><a href="https://facebook.techidaily.com/englands-champions-resign-from-youtube-instagram-over-cyberbullying/"><u>England's Champions Resign From YouTube, Instagram Over Cyberbullying</u></a></li>
-<li><a href="https://facebook.techidaily.com/gaining-access-tips-for-private-fb-profile-insight/"><u>Gaining Access: Tips for Private FB Profile Insight</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-securely-get-and-install-linksys-ae250-wireless-router-updated-firmware-now/"><u>How to Securely Get & Install Linksys AE250# Wireless Router Updated Firmware Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-boosts-creator-earnings-with-fresh-monetization-plans/"><u>Instagram Boosts Creator Earnings with Fresh Monetization Plans</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-net-unveiling-facebooks-linked-space/"><u>Navigating the Net: Unveiling Facebook's Linked Space</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/score-unbeatable-deal-grab-your-steelseries-arctis-nova-pro-wireless-for-just-64-top-choice-in-gaming-headsets/"><u>Score Unbeatable Deal: Grab Your SteelSeries Arctis Nova Pro Wireless for Just $64 - Top Choice in Gaming Headsets</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-why-you-may-not-want-link-tracking-on-facebook/"><u>Understanding Why You May Not Want Link Tracking on Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-how-t-series-earnings-growth-on-youtube-works/"><u>[New] Unveiling How T-Series Earnings Growth on YouTube Works</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-decoding-facebooks-absence-of-personalized-video-content/"><u>[Updated] 2024 Approved Decoding Facebook's Absence of Personalized Video Content</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-budget-friendly-gopro-purchases-guide/"><u>2024 Approved Budget-Friendly GoPro Purchases Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/achieving-verification-status-on-x-a-comprehensive-guide/"><u>Achieving Verification Status on X: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-back-the-buzz-tactics-to-reactivate-a-dormant-facebook-account/"><u>Bring Back the Buzz: Tactics to Reactivate a Dormant Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-closure-coming-for-instagram-in-the-last-month/"><u>Chat Closure Coming for Instagram in the Last Month</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodge-facebooks-data-mining-safety-tips-revealed/"><u>Dodge Facebook's Data Mining: Safety Tips Revealed</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/effortless-guide-how-to-post-full-resolution-videos-to-your-youtube-channel/"><u>Effortless Guide: How to Post Full Resolution Videos to Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tial-recording-steps-for-youtube-audio-extraction-for-2024/"><u>Essential Recording Steps for YouTube Audio Extraction for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-honor-x50iplus-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Honor X50i+ Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-narzo-n55-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Realme Narzo N55 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-social-media-crafting-pages-and-group-polls/"><u>Interactive Social Media: Crafting Pages & Group Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-friends-access-to-online-presence/"><u>Limiting Friends' Access to Online Presence</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tablet-shopping-tips-the-8-most-important-considerations-to-make/"><u>Tablet Shopping Tips: The 8 Most Important Considerations to Make</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-closing-your-fb-business-accounts/"><u>The Complete Guide to Closing Your FB Business Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-spreading-covid-misinformation/"><u>Who's Spreading Covid Misinformation?</u></a></li>
 </ul></div>
 

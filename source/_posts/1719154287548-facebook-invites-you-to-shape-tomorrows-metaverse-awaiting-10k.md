@@ -1,7 +1,7 @@
 ---
 title: Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K!
-date: 2024-08-28T02:55:26.495Z
-updated: 2024-08-29T02:55:26.495Z
+date: 2025-03-03T20:02:07.910Z
+updated: 2025-03-04T16:35:32.241Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
 
  The jobs are going to be spread across the EU with emphasis on Germany, France, Italy, Spain, Ireland, and Poland.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## What Does Facebook Need to Build the Metaverse?
 
 ![If you're looking for a taste of the other side, marketing and sales are both great non-programming jobs for software engineers.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/cs-jobs-that-dont-require-coding.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Building the metaverse will require inputs from diverse fields, which means the jobs are most likely going to be spread across professions. However, the announcement did state a need for "highly specialized engineers", and that getting these engineers was "one of Facebook’s most pressing priorities."
 
  Related:[The Metaverse Won't Be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
@@ -63,23 +57,17 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
 
  And lots more besides. The chances are that there are going to be opportunities for non-tech roles too. So, if you're located in the EU and would love to work for Facebook, this might just be your chance.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Your Chance to Become Part of Facebook's Metaverse
 
  The metaverse is coming and Facebook wants to lead the way. And in order to help it build the metaverse, it's looking for 10,000 people across the EU to help take virtual reality and augmented reality mainstream by building a metaverse that will connect people around the world in a new way.
 
  While many of these jobs are going to be tech-related, there will also be opportunities in non-tech roles too. If working for Facebook sounds like the kind of thing that would interest you, now might be a good time to brush up on your VR/AR skills.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,8 +76,24 @@ thumbnail: https://thmb.techidaily.com/19a61f5995d579c8b7ad201fc517afd84cc338957
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/2024-approved-intro-to-graphic-motion-artistry-and-usage/"><u>2024 Approved Intro to Graphic Motion Artistry and Usage</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-honor-x9a-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Honor X9a Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-oppo-reno-10-pro-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Oppo Reno 10 Pro 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrency-and-sheep-zuckerbergs-surprising-pet-name/"><u>Cryptocurrency and Sheep? Zuckerberg’s Surprising Pet Name.</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footsteps-lead-to-pages-groups-in-fb/"><u>Digital Footsteps Lead to Pages, Groups in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-read-between-the-lines-of-facebooks-chat-emoji-meanings/"><u>How to Read Between the Lines of Facebook's Chat Emoji Meanings</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-inside-the-arsenal-the-complete-review-of-sj-cam-s6/"><u>In 2024, Inside the Arsenal The Complete Review of SJ-CAM S6</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-second-life-poised-for-a-comeback-in-the-dawn-of-metaversal-worlds/"><u>Is Second Life Poised for a Comeback in the Dawn of Metaversal Worlds?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-get-ready-to-roll-the-best-free-and-paid-android-video-editors/"><u>New 2024 Approved Get Ready to Roll The Best Free and Paid Android Video Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-authority-checks-right-to-suspend-trump-temporarily/"><u>Online Authority Checks: Right to Suspend Trump, Temporarily</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/solving-common-input-device-problems-mouse-and-keyboard-fixes-yl-computing-solutions/"><u>Solving Common Input Device Problems: Mouse & Keyboard Fixes - YL Computing Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-for-extracting-entire-facebook-records/"><u>Step-by-Step for Extracting Entire Facebook Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tempest-approaching-facebooks-troubling-forecast/"><u>The Tempest Approaching: Facebook's Troubling Forecast</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-anonymity-options-in-social-networks/"><u>Understanding Anonymity Options in Social Networks</u></a></li>
+</ul></div>
 

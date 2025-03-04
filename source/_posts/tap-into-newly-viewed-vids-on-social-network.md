@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2025-02-13T09:22:05.284Z
-updated: 2025-02-15T01:10:30.551Z
+date: 2025-02-27T19:22:48.556Z
+updated: 2025-03-04T17:57:27.324Z
 tags:
   - facebook
 categories:
@@ -38,19 +38,11 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
 
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
@@ -63,15 +55,7 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
@@ -82,10 +66,6 @@ That's it. Here you will find all the recently watched videos.
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
@@ -134,21 +114,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-best-9-online-mic-recorders/"><u>[New] Best 9 Online Mic Recorders</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-tech-enthusiasts-manual-mastering-macoss-capture-tool-for-2024/"><u>[New] Tech Enthusiasts' Manual Mastering macOS's Capture Tool for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-picture-and-sound-summary-device-for-2024/"><u>[Updated] Picture and Sound Summary Device for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-tv-4k-2021-review-ultra-high-definition-streaming-with-siri-controls/"><u>Apple TV 4K 2021 Review: Ultra-High Definition Streaming With Siri Controls</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-team-dynamics-with-facebooks-top-8-innovations/"><u>Elevating Team Dynamics with Facebook’s Top 8 Innovations</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-samsung-galaxy-z-flip-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-facebooks-exit-route-via-android/"><u>Navigate Facebook's Exit Route via Android</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-how-to-convert-4k-videos-to-mp4-a-step-by-step-guide-for-2024/"><u>New How to Convert 4K Videos to MP4 A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-synchronizing-audio-with-visual-media-the-quicktime-method/"><u>New Synchronizing Audio with Visual Media The QuickTime Method</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/revolutionize-your-os-upgrading-from-32-bit-win10-to-64-bit/"><u>Revolutionize Your OS: Upgrading From 32-Bit Win10 to 64-Bit</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-an-individualized-online-photo/"><u>Tailoring an Individualized Online Photo</u></a></li>
-<li><a href="https://facebook.techidaily.com/to-use-or-not-to-use-meta-ai-instagramfacebook-edition/"><u>To Use or Not to Use Meta AI: Instagram/Facebook Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-off-facebooks-notification-lights/"><u>Turn Off Facebook's Notification Lights</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-indirectness-the-rationale-behind-vague-blogging/"><u>Why Indirectness? The Rationale Behind Vague Blogging</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-youll-thank-your-smartphone-for-these-9-advantages/"><u>Why You'll Thank Your Smartphone for These 9 Advantages</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zendures-mighty-power-bank-unveiled-introducing-the-supermini-go-your-reliable-travel-charger-with-impressive-features-zdnet/"><u>Zendure's Mighty Power Bank Unveiled: Introducing the SuperMini Go, Your Reliable Travel Charger with Impressive Features | ZDNET</u></a></li>
+<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-infinite-inspirations-top-places-to-sync-audio-with-beginnings/"><u>2024 Approved Infinite Inspirations Top Places to Sync Audio with Beginnings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/aerial-photography-revolution-with-mavic-pro/"><u>Aerial Photography Revolution with Mavic Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-googles-major-press-breakthroughs/"><u>Analyzing Google’s Major Press Breakthroughs</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-public-records-in-online-platforms-ever-cleared/"><u>Are Public Records in Online Platforms Ever Cleared?</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-jokes-with-news-on-facebook/"><u>Balancing Jokes with News on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-authenticity-and-relationship-with-ripls-tips/"><u>Building Authenticity and Relationship with Ripl's Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-social-web-mastery-of-facebooks-open-platform-portal/"><u>Clarifying the Social Web: Mastery of Facebook’s Open Platform Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-connectivity-accessing-and-using-facebook-groups/"><u>Community Connectivity: Accessing and Using Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-intentional-facebook-experience-avoiding-reels/"><u>Crafting an Intentional Facebook Experience: Avoiding Reels</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-12-pro-max-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-realme-11-proplus-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Realme 11 Pro+ Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-itel-p40plus-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Itel P40+ Phone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-new-drivers-for-your-hp-scanjet-on-windows-step-by-step-download-tutorial/"><u>Install New Drivers for Your HP Scanjet on Windows - Step-by-Step Download Tutorial!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-wsappx-control-effective-methods-for-curtailing-hard-drive-and-processor-intensity/"><u>Mastering WSAPPX Control: Effective Methods for Curtailing Hard Drive and Processor Intensity</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-leading-social-media-sites-for-sharing-content-fb-twt-ig-yt-channels/"><u>The Leading Social Media Sites for Sharing Content: FB, TWT, IG, YT Channels</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-best-zero-cost-flv-video-editors-of-the-year/"><u>Updated 2024 Approved Best Zero-Cost FLV Video Editors of the Year</u></a></li>
 </ul></div>
 

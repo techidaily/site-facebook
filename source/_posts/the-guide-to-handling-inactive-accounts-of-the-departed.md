@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2025-02-08T11:05:48.983Z
-updated: 2025-02-15T00:43:36.663Z
+date: 2025-03-03T16:08:35.932Z
+updated: 2025-03-04T16:26:43.873Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Memorialized
 
  A memorialized Facebook profile becomes a platform for people to remember their loved ones. You can share their memories and talk about them. Once an account is memorialized, it gets “Remembering” in front of the name.
@@ -44,10 +40,6 @@ To get a Facebook account memorialized, follow these steps:
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
 6. Tap**Send** .
 
@@ -58,10 +50,6 @@ To get a Facebook account memorialized, follow these steps:
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -83,10 +71,6 @@ To get a Facebook account memorialized, follow these steps:
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
 5. Under**When Did They Pass Away** , select the date of death.
@@ -95,10 +79,6 @@ To get a Facebook account memorialized, follow these steps:
  Facebook takes a couple of days to review a request. After that, the account will be deleted if you can satisfy Facebook that the person has actually passed away.
 
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
 
@@ -123,20 +103,24 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-unleashing-the-power-of-luts-in-adobe-premiere-video-editing/"><u>[New] Unleashing the Power of LUTs in Adobe Premiere Video Editing</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-ultimate-picks-best-6-fb-lite-videos-for-2024/"><u>[Updated] Ultimate Picks Best 6 FB Lite Videos for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-expert-tips-for-recording-fan-favorite-sports-games/"><u>2024 Approved Expert Tips for Recording Fan-Favorite Sports Games</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-guide-capturing-your-best-moments-in-genshin-impact-across-computers-and-smartphones/"><u>Comprehensive Guide: Capturing Your Best Moments in Genshin Impact Across Computers & Smartphones</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-audience-peak-time-to-review/"><u>Facebook's Audience Peak: Time to Review?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-14-plus-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From iPhone 14 Plus?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-vivo-t2x-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Vivo T2x 5G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/live-radio-at-your-fingertips-an-easy-recording-guide-for-2024/"><u>Live Radio at Your Fingertips An Easy Recording Guide for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-mindful-choices-on-your-internet-usage-plan/"><u>Making Mindful Choices on Your Internet Usage Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/methods-to-unblock-stuck-fb-notification-bits/"><u>Methods to Unblock Stuck FB Notification Bits</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-rules-discover-facebooks-transparent-approach/"><u>Navigating the Rules: Discover Facebook’s Transparent Approach</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-social-media-cryptocurrency-promos/"><u>The Future of Social Media: Cryptocurrency Promos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/transform-video-proportions-instantly-using-our-aspect-ratio-modifier-tool-perfect-viewing-experience-every-time/"><u>Transform Video Proportions Instantly Using Our Aspect Ratio Modifier Tool - Perfect Viewing Experience Every Time.</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-technique-saving-and-storing-your-powerpoint-slides-as-a-dvd-in-windows-os/"><u>Ultimate Technique: Saving and Storing Your PowerPoint Slides as a DVD in Windows OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-makes-mastodon-different/"><u>What Makes Mastodon Different?</u></a></li>
+<li><a href="https://facebook.techidaily.com/blockchain-beast-zuckerbergs-fanciful-pet-moniker/"><u>'Blockchain Beast': Zuckerberg's Fanciful Pet Moniker.</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-chuckle-friendly-image-editors-for-all-devices/"><u>[Updated] In 2024, Chuckle-Friendly Image Editors for All Devices</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-safaris-picture-in-picture-feature-usage-guide/"><u>[Updated] Safari's Picture-in-Picture Feature Usage Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-platforms-exploring-the-meaning-and-impact-of-fbs-metaverse/"><u>Beyond Social Media Platforms: Exploring the Meaning & Impact of FB’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-hype-dispelling-popular-facebook-misconceptions/"><u>Beyond the Hype: Dispelling Popular Facebook Misconceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-ar-characters-into-your-social-chat-room/"><u>Bringing AR Characters Into Your Social Chat Room</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-past-relationships-in-facebook/"><u>Checking Past Relationships in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-fb-photographic-labeling/"><u>Comprehensive Guide to FB Photographic Labeling</u></a></li>
+<li><a href="https://facebook.techidaily.com/covid-19-myths-propagated-by-key-influencers/"><u>Covid-19 Myths Propagated by Key Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-hidden-profile-keep-friends-block-others-on-fb/"><u>Crafting a Hidden Profile: Keep Friends, Block Others on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-cord-smart-techniques-to-lessen-facebook-dependency/"><u>Cutting the Cord: Smart Techniques to Lessen Facebook Dependency</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863081-9780990536154-earth-etudes-for-elul/"><u>Earth Etudes for Elul | Free Book</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-expressions-and-vocabulary-for-south-american-travelers/"><u>Essential Expressions and Vocabulary for South American Travelers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-reviews-the-leading-wi-fi-extenders-on-the-market-this-year/"><u>Expert Reviews: The Leading Wi-Fi Extenders on the Market This Year</u></a></li>
+<li><a href="https://techtrends.techidaily.com/multi-location-marking-a-step-by-step-guide-to-dropping-several-pins-in-google-maps/"><u>Multi-Location Marking: A Step-by-Step Guide to Dropping Several Pins in Google Maps</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/overcoming-windows-10-usb-recognition-problems-expert-tips-and-solutions/"><u>Overcoming Windows 10 USB Recognition Problems: Expert Tips & Solutions</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/windows-videography-embrace-hdr-magic/"><u>Windows Videography Embrace HDR Magic</u></a></li>
 </ul></div>
 

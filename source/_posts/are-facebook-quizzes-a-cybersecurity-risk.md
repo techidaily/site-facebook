@@ -1,7 +1,7 @@
 ---
 title: Are Facebook Quizzes a Cybersecurity Risk?
-date: 2024-08-23T02:07:20.113Z
-updated: 2024-08-24T02:07:20.113Z
+date: 2025-03-01T18:17:14.147Z
+updated: 2025-03-04T19:12:22.571Z
 tags:
   - facebook
 categories:
@@ -41,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Analyze the Quiz
 
  First, find the quiz or challenge you responded to. What format was the quiz in—a link or a post? Did you fill out multiple choice questions on another website or type in custom answers on a post?
@@ -52,28 +49,14 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Report the Scam Quiz
 
  Report the post to Facebook to warn the moderation team that the post could be a scam. Next, contact the Better Business Bureau using [their Scam Tracker](https://www.bbb.org/ScamTracker) to report the incident. The BBB can investigate and warn other people about the risky quiz or challenge.
@@ -84,9 +67,6 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Change Your Security Question Answers
 
  It might be a hassle, but it’s a good idea to go through all of your important accounts and change your security question answers. Use the list or screenshot of your answers from the quiz to guide your changes. Don’t reuse any answers you gave away on the quiz.
@@ -95,21 +75,15 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Staying Safe on Facebook
 
  Facebook quizzes can be a serious cybersecurity risk, but you can take steps to protect your information. Before taking any quizzes on Facebook, take a close look at the questions. Stay away from quizzes that give you a bad feeling—always trust your gut.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,8 +92,17 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-easy-snapchat-videos-with-multiple-snaps/"><u>[New] Step-by-Step Easy Snapchat Videos with Multiple Snaps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-potential-in-instagram-engagement-with-advanced-data-tools-for-2024/"><u>[New] Unlocking Potential in Instagram Engagement with Advanced Data Tools for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-smartphones-meet-virtual-reality-best-10-models/"><u>[Updated] In 2024, Smartphones Meet Virtual Reality Best 10 Models</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mobile-laughs-and-memes/"><u>[Updated] Mobile Laughs & Memes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-witnessing-trumps-return/"><u>Facebook & Instagram, Witnessing Trump’s Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-interactive-communities-with-facebooks-channels/"><u>Fostering Interactive Communities with Facebook's Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-privacy-in-media-cutting-out-unwanted-visibility/"><u>Mastering Privacy in Media Cutting Out Unwanted Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emergence-of-metaai-and-its-impact-on-bots/"><u>The Emergence of MetaAI and Its Impact on Bots</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-sundays-join-in-on-fbs-virtual-retail/"><u>Transform Your Sundays: Join in on FB's Virtual Retail</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unleash-creativity-with-freeform-the-ultimate-guide-for-innovative-brainstorming/"><u>Unleash Creativity with Freeform - The Ultimate Guide for Innovative Brainstorming</u></a></li>
+</ul></div>
 

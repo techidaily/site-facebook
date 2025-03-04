@@ -1,7 +1,7 @@
 ---
 title: Beyond Likes and Shares - A New Perspective on FB Numbers
-date: 2024-08-23T02:08:00.988Z
-updated: 2024-08-24T02:08:00.988Z
+date: 2025-03-01T20:14:39.679Z
+updated: 2025-03-04T19:20:43.438Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,6 @@ Image Credit: Meta
 
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## 2\. It's Natural for Facebook to Lose Some Users
 
  When you're a social media platform as large as Facebook, it's only natural to eventually see a slight decline in users. This is especially the case when you're talking about an existing userbase of almost two billion individuals. Let's put our business hats on for a second.
@@ -61,19 +57,12 @@ Image Credit: Meta
 
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
 
  Delving even deeper, you can consider the critical mass curve for a platform's users. Critical mass is the minimum number of users you need to sustain value in the product with no other product changes. Usually businesses want to work up this curve towards critical mass, but there's a point when you exceed it.
 
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## 3\. Meta Is Focusing on the Metaverse
 
  In 2021, Facebook (the company) changed its name to Meta. This is now the holding company that owns all of Facebook's products, including WhatsApp and Instagram. With this new name came a shift in focus–to the metaverse.
@@ -86,23 +75,17 @@ Image Credit: Meta
 
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Chill Out! Facebook Is Fine
 
  While we've been looking at why the drop in users isn't a big deal, it's important to acknowledge that Facebook did lose some users. Why? Because people's heads have been turned to other social platforms focusing on short-form content, especially the younger generation.
 
  We acknowledge Facebook's slight drop in users, we're OK to talk about it, but we're pretty sure it isn't the end of the world. In other words, chill out, because Facebook is doing just fine, thank you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,8 +94,22 @@ Image Credit: Meta
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-dominion-rise-as-a-youtube-guru/"><u>2024 Approved Digital Dominion Rise as a YouTube Guru</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-user-needs-in-choosing-a-facebook-portal/"><u>Analyzing User Needs in Choosing a Facebook Portal</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/creating-a-safe-mc-habitat-plan-6/"><u>Creating a Safe MC Habitat Plan #6</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175669337-deciding-on-perfect-pc-ventilation-the-battle-between-pwm-and-dc-fans-for-optimal-performance/"><u>Deciding on Perfect PC Ventilation: The Battle Between PWM and DC Fans for Optimal Performance.</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonize-conversations-with-facebooks-new-sounds-for-messaging/"><u>Harmonize Conversations with Facebook's New Sounds for Messaging</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-12-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 12 without Passcode or Face ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-platform-grows-on-facebooks-auditory-upgrade/"><u>Podcast Platform Grows on Facebook’s Auditory Upgrade</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/professional-evaluation-of-the-xp-pen-artist-16-pro-sketchpad/"><u>Professional Evaluation of the XP-Pen Artist 16 Pro Sketchpad</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/riconvertimento-gratuito-di-video-mpe-in-avi-su-internet-usando-movavi/"><u>Riconvertimento Gratuito Di Video MPE in AVI Su Internet Usando Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-social-media-exposure-the-art-of-facebooks-privacy-lists/"><u>Sculpting Social Media Exposure: The Art of Facebook's Privacy Lists</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essence-of-unaltered-audio-ffmpegs-precision-for-2024/"><u>The Essence of Unaltered Audio FFmpeg’s Precision for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-planner-softwares-a-guide-to-scheduling-success/"><u>Top Planner Softwares: A Guide to Scheduling Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweaking-childrens-data-a-parents-guide-to-messenger-kids/"><u>Tweaking Children's Data: A Parent's Guide to Messenger Kids</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/xsplits-edge-in-livestraning-meet-obs-counterpart-for-2024/"><u>XSplit's Edge in Livestraning? Meet OBS Counterpart for 2024</u></a></li>
+</ul></div>
 

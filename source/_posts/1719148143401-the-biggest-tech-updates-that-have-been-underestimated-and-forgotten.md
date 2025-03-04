@@ -1,7 +1,7 @@
 ---
 title: The Biggest Tech Updates That Have Been Underestimated and Forgotten
-date: 2024-08-28T02:58:18.734Z
-updated: 2024-08-29T02:58:18.734Z
+date: 2025-02-25T20:20:10.553Z
+updated: 2025-03-04T18:43:08.323Z
 tags:
   - facebook
 categories:
@@ -47,15 +47,9 @@ thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Welcome to the Metaverse
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
  The company is looking at the metaverse as the next significant shift in tech, which changes the way humans interact with the internet. Instead of accessing the internet through disparate apps, services, and hardware, the metaverse links them together to meld a seamless experience almost similar to physical reality.
@@ -66,15 +60,9 @@ thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Apple and Facebook's Privacy War
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
  The iOS 15 update further exacerbated this conflict, allowing users to see which apps access which data and sensors, and when. You can even see whether these apps share your data with third-party entities.
@@ -85,23 +73,17 @@ thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## What Tech News Will We See in 2022?
 
  These are some of the biggest tech news stories of 2021, and we're looking forward to a more exciting 2022\. While many of us won't feel the immediate impact of these developments, they will shape how we use and interact with technology in the near future.
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,8 +92,20 @@ thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-12-video-hourly-livestream-service/"><u>[New] Exclusive 12 Video Hourly Livestream Service</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-interpreting-the-significance-of-blue-emojis-on-messenger/"><u>[Updated] 2024 Approved Interpreting the Significance of Blue Emojis on Messenger</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-bridging-the-budget-barrier-channel-size-doesnt-matter/"><u>[Updated] In 2024, Bridging the Budget Barrier Channel Size Doesn't Matter</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-master-looped-video-techniques-for-instagram-top-4-strategies/"><u>[Updated] In 2024, Master Looped Video Techniques for Instagram Top 4 Strategies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-hevc-transcoding-tools-efficient-h2e5-video-convertersencoders-for-windows-11-and-mac-os-x/"><u>Best HEVC Transcoding Tools: Efficient H.2e5 Video Converters/Encoders for Windows 11 and Mac OS X</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adapts-to-the-changes-from-ios-145-update/"><u>Facebook Adapts to the Changes From iOS 14.5 Update</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-captivating-conversations-mastering-zooms-filter-features/"><u>In 2024, Crafting Captivating Conversations Mastering Zoom's Filter Features</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/instant-reddit-archives-retrieval-with-ease/"><u>Instant Reddit Archives Retrieval with Ease</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-shooting-videos-in-high-resolutions-can-help-you-create-visually-impressive-content-your-followers-on-social-media-are-going-to-adore-in-this-article-we/"><u>New Shooting Videos in High Resolutions Can Help You Create Visually Impressive Content Your Followers on Social Media Are Going to Adore. In This Article We Are Going to Take You Through the 10 Best Vid</u></a></li>
+<li><a href="https://facebook.techidaily.com/permanent-disconnection-from-fb-notifications/"><u>Permanent Disconnection From Fb Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unseen-discussions-on-social-platforms/"><u>The Art of Unseen Discussions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-career-advancement-top-6-facebook-strategies/"><u>Unlocking Career Advancement: Top 6 Facebook Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-reality-on-facebook-3-red-flags-to-note/"><u>Virtual Reality on Facebook – 3 Red Flags to Note</u></a></li>
+</ul></div>
 

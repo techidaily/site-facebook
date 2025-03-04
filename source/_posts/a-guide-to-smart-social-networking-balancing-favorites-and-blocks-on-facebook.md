@@ -1,7 +1,7 @@
 ---
 title: "A Guide to Smart Social Networking: Balancing Favorites & Blocks on Facebook"
-date: 2024-08-28T02:57:53.827Z
-updated: 2024-08-29T02:57:53.827Z
+date: 2025-03-02T20:16:08.140Z
+updated: 2025-03-04T16:55:56.625Z
 tags:
   - facebook
 categories:
@@ -60,9 +60,6 @@ There are two reasons to use the follow feature.
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
@@ -83,27 +80,10 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
  You can make a post public by clicking on the dropdown menu below the text box when you're writing a message. You can adjust the visibility of pictures and videos in a similar way.
@@ -112,9 +92,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
 ## How to See Who Follows You on Facebook
@@ -125,17 +102,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
  Of course, the draconian approach is just to turn off followers completely. It will remove any followers who aren't already friends with you. For a more nuanced approach, you need to block people on a case-by-case basis.
@@ -152,14 +122,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,8 +135,22 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premium-choices-for-unparalleled-video-communication/"><u>[New] Premium Choices for Unparalleled Video Communication</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-creative-edge-essential-afx-templates-without-investment/"><u>[Updated] 2024 Approved Creative Edge Essential AFX Templates Without Investment</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-subtle-sound-level-lowering-in-fl-studio/"><u>2024 Approved Subtle Sound Level Lowering in FL Studio</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/apex-legends-recharged-and-bug-free/"><u>Apex Legends, Recharged & Bug-Free</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/articulating-spanish-accents-a-step-by-step-approach/"><u>Articulating Spanish Accents: A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-fb-profile-android-step-by-step-guide/"><u>Deleting FB Profile: Android Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expert-techniques-optimizing-obs-streams-for-your-fb-audience-for-2024/"><u>Expert Techniques Optimizing OBS Streams for Your FB Audience for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-oculus-sales-boom-amidst-cybersecurity-crisis/"><u>Facebook Oculus Sales Boom Amidst Cybersecurity Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-to-share/"><u>Identifying Prime Moments to Share</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/is-your-iphone-7-plus-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>Is Your iPhone 7 Plus in Security Lockout? Proper Ways To Unlock</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-update-procedures-for-your-childs-messengers/"><u>Profile Update Procedures for Your Child’s Messengers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/removing-device-from-apple-id-for-your-iphone-6s-plus-by-drfone-ios/"><u>Removing Device From Apple ID For your iPhone 6s Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-previous-social-interactions-in-fb/"><u>Revisiting Previous Social Interactions in FB</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-the-legal-landscape-a-guide-to-cryptocurrency-investment-rules-and-compliance-yl-tech-insights/"><u>Understanding the Legal Landscape: A Guide to Cryptocurrency Investment Rules & Compliance - YL Tech Insights</u></a></li>
+</ul></div>
 

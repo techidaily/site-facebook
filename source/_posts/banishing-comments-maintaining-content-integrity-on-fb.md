@@ -1,7 +1,7 @@
 ---
 title: "Banishing Comments: Maintaining Content Integrity on FB"
-date: 2024-08-28T02:54:44.619Z
-updated: 2024-08-29T02:54:44.619Z
+date: 2025-03-01T19:33:30.669Z
+updated: 2025-03-04T19:22:18.572Z
 tags:
   - facebook
 categories:
@@ -29,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/d4a369170dd24048d49b11ae6cda29b689bc2d38a
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Manage Comments on the Facebook App
 
  Here's how to manage comments on your posts using the Facebook mobile app:
@@ -56,25 +53,15 @@ Close
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  And that's all you need to manage comments on your Facebook post.
 
 ## How to Disable Post Comments in a Facebook Group
@@ -83,14 +70,8 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 Close
 
 1. Identify the post for which you'd like to turn off its comment.
@@ -107,14 +88,11 @@ Close
 
  A similar rule applies to groups, if you're not sharing something that requires input from other members, you can simply turn off commenting on the post with the steps shared above.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,8 +101,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-asmr-apps-for-android-and-ios-you-should-know/"><u>[Updated] 2024 Approved Best ASMR Apps for Android and iOS You Should Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-evaluating-alternatives-to-magixs-acid-pro/"><u>[Updated] In 2024, Evaluating Alternatives to Magix's ACID Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-facebook-notification-stores/"><u>Clearing Facebook Notification Stores</u></a></li>
+<li><a href="https://fox-search.techidaily.com/easy-tutorial-on-how-to-make-a-screen-recording-with-screencast-o-matic-software/"><u>Easy Tutorial on How to Make a Screen Recording with Screencast-O-Matic Software</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/estrategias-faciles-para-hacer-una-respaldo-total-del-disco-duro-a-un-flash-drive-compatible-con-todos-los-ordenadores/"><u>Estrategias Fáciles Para Hacer Una Respaldo Total Del Disco Duro a Un Flash Drive Compatible Con Todos Los Ordenadores</u></a></li>
+<li><a href="https://facebook.techidaily.com/expect-an-uptick-in-crypto-advertising-on-platforms-like-facebook-and-instagram/"><u>Expect an Uptick in Crypto Advertising on Platforms Like Facebook & Instagram</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-nokia-c110-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Nokia C110 Phones? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-virtual-experiences-a-report/"><u>In 2024, Pioneering Virtual Experiences A Report</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-trend-instagram-2fa-codes-via-whatsapp-link/"><u>New Trend: Instagram 2FA Codes via WhatsApp Link</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/perfect-your-presence-the-compreenas-guide-to-obs-youtube-and-twitch/"><u>Perfect Your Presence The Compreenas Guide to OBS, YouTube & Twitch</u></a></li>
+<li><a href="https://facebook.techidaily.com/reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fine-line-between-laughter-and-rude-gestures/"><u>The Fine Line Between Laughter and Rude Gestures</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+</ul></div>
 

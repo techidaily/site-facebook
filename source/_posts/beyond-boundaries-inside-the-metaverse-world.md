@@ -1,7 +1,7 @@
 ---
 title: "Beyond Boundaries: Inside the Metaverse World"
-date: 2024-08-23T02:08:48.935Z
-updated: 2024-08-24T02:08:48.935Z
+date: 2025-03-02T20:38:31.725Z
+updated: 2025-03-04T19:07:26.697Z
 tags:
   - facebook
 categories:
@@ -53,9 +53,6 @@ Yet.
 
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
  But, what is the internet? Is it the information you view on your smartphone’s screen? Or, is it the servers storing that information? Or, is it the physical transoceanic landlines that allow the World Wide Web network to come together?
@@ -68,23 +65,14 @@ Yet.
 
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ### The Metaverse Precursors
 
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
@@ -98,30 +86,21 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
  Remember Jules Verne’s From the Earth to the Moon? How about R.U.R (Rossum’s Universal Robots), the 1920 play that predicted the invention of robots?
 
  We made it to the moon already, the robotics industry grows by the day, and we already have the internet. With scientists working hard on improving VR technology and the advancements in telecommunications, what keeps us from building this shared persistent virtual universe?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,8 +109,22 @@ Yet.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-choosing-a-font-for-impactful-youtube-credits/"><u>[New] In 2024, Choosing a Font for Impactful YouTube Credits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-spectrum-screens-a-new-film-language/"><u>[New] Spectrum Screens A New Film Language</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhancing-viewer-attention-igtv-cover-tips-for-2024/"><u>[Updated] Enhancing Viewer Attention IGTV Cover Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-key-findings-from-leaked-fb-documents/"><u>Analyzing Key Findings From Leaked FB Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-worlds-facebooks-pivotal-shift-to-becoming-meta/"><u>Connecting Worlds: Facebook's Pivotal Shift to Becoming Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disappearing-text-feature-in-fb-messenger/"><u>Decoding the Disappearing Text Feature in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/executing-the-perfect-pivot-tearing-down-facebook-business-pages/"><u>Executing the Perfect Pivot: Tearing Down Facebook Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-business-page/"><u>How to Delete a Facebook Business Page</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-instantaneous-windows-image-player/"><u>In 2024, Instantaneous Windows Image Player</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-honor-x9b-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Honor X9b? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mka-a-mp4-come-convertire-gratuitamente-i-file-video-usando-movavi-online/"><u>MKA a MP4: Come Convertire Gratuitamente I File Video Usando Movavi Online</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/oculus-odyssey-a-journey-through-best-vr-headsets-for-2024/"><u>Oculus Odyssey A Journey Through Best VR Headsets for 2024</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/troubleshooting-steps-why-your-seagate-external-hd-isnt-recognized-by-a-mac-computer/"><u>Troubleshooting Steps: Why Your Seagate External HD Isn't Recognized by a Mac Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-cryptocurrency-stablecoin/"><u>What Is a Cryptocurrency Stablecoin?</u></a></li>
+</ul></div>
 

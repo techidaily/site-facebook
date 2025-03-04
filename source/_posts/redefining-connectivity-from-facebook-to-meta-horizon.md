@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2025-02-10T12:48:52.518Z
-updated: 2025-02-15T02:06:25.624Z
+date: 2025-02-28T17:47:23.001Z
+updated: 2025-03-04T16:39:13.918Z
 tags:
   - facebook
 categories:
@@ -50,27 +50,15 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
@@ -94,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
@@ -111,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  Unsurprisingly, this led a chunk of users to switch to other apps. However, barely affected by this, Facebook realized a peak market value of $1 trillion on June 28, 2021\. In October, a[global outage of Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) resulted in a loss of $6 billion.
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
@@ -149,19 +129,17 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-guided-pathway-for-large-file-exchange-in-apple-ecosystem/"><u>[New] Guided Pathway for Large File Exchange in Apple Ecosystem</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-ranked-graphics-cards-for-optimal-online-streaming-quality/"><u>[New] Top-Ranked Graphics Cards for Optimal Online Streaming Quality</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-1000-bucks-more-value-with-these-mirrorless-cameras/"><u>[Updated] 1000 Bucks, More Value with These Mirrorless Cameras</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-definitive-guide-to-audio-interfaces-in-podcasting-for-2024/"><u>[Updated] The Definitive Guide to Audio Interfaces in Podcasting for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-the-invisible-trail-hidden-steps-for-tracking-whatsapp-calls/"><u>2024 Approved The Invisible Trail Hidden Steps for Tracking WhatsApp Calls</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-guide-comparing-return-policies-across-major-retailers-like-amazon-and-target/"><u>Comprehensive Guide: Comparing Return Policies Across Major Retailers Like Amazon & Target</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-compatible-oculus-drivers-for-windows-11-10-8-and-7/"><u>Free Download: Compatible Oculus Drivers for Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-nubia-red-magic-9-proplus-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Nubia Red Magic 9 Pro+ Phone Screen?</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-quest-update-rescheduled-for-next-fiscal-year/"><u>Oculus Quest Update: Rescheduled for Next Fiscal Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/rescheduling-of-whatsapps-may-15-policy-deadline/"><u>Rescheduling of WhatsApp's May 15 Policy Deadline</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/resolved-fixing-dts-audio-not-available-on-selected-output-device/"><u>Resolved: Fixing 'DTS Audio Not Available on Selected Output Device'</u></a></li>
-<li><a href="https://facebook.techidaily.com/restoring-social-media-passes-regaining-fb-account-access/"><u>Restoring Social Media Passes: Regaining FB Account Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-savvy-how-to-reset-facebook-conversations/"><u>The Social Media Savvy: How to Reset Facebook Conversations</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultimate-list-of-freelancing-opportunity-areas/"><u>Ultimate List of Freelancing Opportunity Areas</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-bring-a-smile-with-adobe-creations/"><u>[Updated] In 2024, Bring a Smile with Adobe Creations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ploughing-through-the-past-top-farming-games-follow/"><u>[Updated] In 2024, Ploughing Through the Past Top Farming Games Follow</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamline-your-footage-iphones-shortening-methods/"><u>2024 Approved Streamline Your Footage IPhone's Shortening Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-operations-top-lite-android-workhorses/"><u>Agile Operations: Top Lite Android Workhorses</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-data-collection-hurdles-with-ios-145/"><u>Facebook Faces Data Collection Hurdles with iOS 14.5</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-the-art-of-filter-selection-on-instagram/"><u>In 2024, Mastering the Art of Filter Selection on Instagram</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/podcasts-versus-youtube-finding-your-preferred-outlet-for-2024/"><u>Podcasts Versus YouTube Finding Your Preferred Outlet for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-non-responsive-users-in-messaging/"><u>The Implications of Non-Responsive Users in Messaging</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-oppo-find-x6-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Oppo Find X6 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transforming-srt-a-complete-reference-guide-for-conversion/"><u>Transforming SRT A Complete Reference Guide for Conversion</u></a></li>
+<li><a href="https://some-tips.techidaily.com/understanding-the-currency-of-code-a-deep-dive-into-the-worlds-most-sought-after-programming-languages-zdnet-insights/"><u>Understanding the Currency of Code: A Deep Dive Into the World’s Most Sought-After Programming Languages | ZDNET Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
 </ul></div>
 

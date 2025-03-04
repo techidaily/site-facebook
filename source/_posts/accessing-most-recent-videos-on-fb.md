@@ -1,7 +1,7 @@
 ---
 title: Accessing Most Recent Videos on FB
-date: 2024-08-28T02:57:03.361Z
-updated: 2024-08-29T02:57:03.361Z
+date: 2025-02-26T20:50:36.909Z
+updated: 2025-03-04T16:56:03.167Z
 tags:
   - facebook
 categories:
@@ -58,20 +58,10 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Launch the Facebook app on your iOS or Android device and log in to your account.
@@ -83,9 +73,6 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -94,9 +81,6 @@ Close
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Open the Activity log window on your Android or iOS device.
@@ -104,21 +88,15 @@ Close
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## Never Lose Facebook Videos Again
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,8 +105,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-perfecting-color-balance-in-gopro-editing-for-2024/"><u>[New] Perfecting Color Balance in GoPro Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-optimal-visual-branding-best-practices-for-youtube-channel-size/"><u>[Updated] Optimal Visual Branding Best Practices for YouTube Channel Size</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-10-hilarious-and-heartfelt-instagram-memes-hubs-for-2024/"><u>[Updated] Top 10 Hilarious & Heartfelt Instagram Memes Hubs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-risks-and-rewards-meta-ais-new-social-arena/"><u>Assessing Risks & Rewards: Meta AI's New Social Arena</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/comment-conserver-tes-messages-gmail-via-nas-qnap-en-trois-etapes-faciles-a-suivre/"><u>Comment Conserver Tes Messages Gmail via NAS QNAP en Trois Étapes Faciles À Suivre</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-oversight-judicial-panel/"><u>Demystifying Facebook's Oversight Judicial Panel</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experience-the-ultimate-portability-with-lg-gram-15-the-revolutionary-2018-laptop-for-endless-productivity/"><u>Experience the Ultimate Portability with LG Gram 15. - The Revolutionary 2018 Laptop for Endless Productivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-reels-the-new-era-of-social-media-showdown-with-tiktok/"><u>Facebook and Reels: The New Era of Social Media Showdown with TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/paving-your-path-as-an-influential-voice/"><u>Paving Your Path as an Influential Voice</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-sunset-why-facebook-stays-in-the-game/"><u>Say No to Sunset: Why Facebook Stays in the Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-encourage-thoughtful-content-dissemination/"><u>Social Platforms Encourage Thoughtful Content Dissemination</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tame-fast-paced-vids-a-slowdown-strategy-for-snapchat-for-2024/"><u>Tame Fast-Paced Vids A Slowdown Strategy for Snapchat for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-wall-reasons-for-fb-disabling/"><u>The Invisible Wall: Reasons for FB Disabling</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-itel-a60-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-nokia-xr21-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Nokia XR21 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138591933-9781462053308-whats-next-papa/"><u>What’S Next, Papa? | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148962192-which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate!</u></a></li>
+</ul></div>
 

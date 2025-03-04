@@ -1,7 +1,7 @@
 ---
 title: Act Now! Restore Control Over a Stolen Social Media Account
-date: 2024-08-28T02:59:41.439Z
-updated: 2024-08-29T02:59:41.439Z
+date: 2025-03-02T20:53:30.754Z
+updated: 2025-03-04T18:39:46.817Z
 tags:
   - facebook
 categories:
@@ -48,9 +48,6 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
@@ -71,9 +68,6 @@ Do this only if you're sure you can log back in.
 
  If you still think your account has been compromised, proceed to Step 3.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1b. Reset Your Facebook Password
 
  If the hacker did change your password, and you need to [recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
@@ -84,9 +78,6 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
  If the hacker changed your email address, you should have received a message to the original address. Find this message because it contains a special link that will let you reverse the change and secure your account.
@@ -109,9 +100,6 @@ Do this only if you're sure you can log back in.
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Remove Suspicious Applications
 
  Oftentimes, it's not a person that randomly hacked your account. You may have granted access to a malicious Facebook application that subsequently hijacked your account.
@@ -122,18 +110,12 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
@@ -150,21 +132,15 @@ Do this only if you're sure you can log back in.
 
  These settings not only [secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can [use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How Do You Keep Your Facebook Account Safe?
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,8 +149,23 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-become-an-expert-in-no-time-mastering-ez-grabbers-functions/"><u>[New] Become an Expert in No Time! Mastering EZ Grabber's Functions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/discover-perplexity-the-unique-ai-chatbot-worth-paying-for/"><u>Discover Perplexity – The Unique AI Chatbot Worth Paying For</u></a></li>
+<li><a href="https://facebook.techidaily.com/enterprise-excellence-navigating-5-leading-social-sites/"><u>Enterprise Excellence: Navigating 5 Leading Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-fb-privacy-settings/"><u>Essential Tips for FB Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-image-text-style-facebooks-revolutionary-ai-breakthrough/"><u>From Image, Text Style: Facebook's Revolutionary AI Breakthrough</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-14-pro-max-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone 14 Pro Max Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-every-like-post-and-comment-youve-made-on-facebook/"><u>How to See Every Like, Post, and Comment You've Made on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-edge-40-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Edge 40 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/leading-mac-desktops-unveiled-a-comprehensive-review-for-your-choice/"><u>Leading Mac Desktops Unveiled: A Comprehensive Review for Your Choice</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-samsung-galaxy-f15-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Samsung Galaxy F15 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-lifes-chances-for-revival-in-the-metaverse-landscape/"><u>Second Life's Chances for Revival in The Metaverse Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-grids-reworked-for-facebooks-fabric/"><u>Social Grids Reworked for Facebook's Fabric</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/uncover-the-best-15-free-web-based-image-editing-tools-of-2023/"><u>Uncover the Best 15 Free Web-Based Image Editing Tools of 2023</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-best-online-webm-video-compressors/"><u>Updated In 2024, Best Online WebM Video Compressors</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-discover-the-ultimate-1080p-video-editing-experience-top-software-picks/"><u>Updated In 2024, Discover the Ultimate 1080P Video Editing Experience Top Software Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-behavior-analysis-resetting-accounts-via-headset-purchases/"><u>User Behavior Analysis - Resetting Accounts via Headset Purchases</u></a></li>
+</ul></div>
 

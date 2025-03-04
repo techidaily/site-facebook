@@ -1,7 +1,7 @@
 ---
 title: 44 Attorneys General Ask Facebook to Ditch Instagram for Children
-date: 2024-08-28T02:57:30.032Z
-updated: 2024-08-29T02:57:30.032Z
+date: 2025-02-25T18:41:51.716Z
+updated: 2025-03-04T19:45:39.751Z
 tags:
   - facebook
 categories:
@@ -47,23 +47,17 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
 
  That's not as daft as it may sound. It's a well-known fact that many kids under the age of 13 set up social media accounts and lie about their age. Twitter had a mass culling of users that did exactly this a while back. With the intention of being more child-friendly, perhaps this is a good idea after all.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Will Facebook Go Ahead With Instagram for Kids?
 
  Facebook has been known to stand its ground when being challenged. If setting up an Instagram for kids is a plan the social media giant wants to proceed with, then it probably will, regardless of letters sent by attorneys general, or anyone else for that matter.
 
  While keeping children off social media has always been the goal, allowing the kids who will make an account anyway to do so safely is a massive positive.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,8 +66,23 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-photographic-pastime-iphone-x-retro-clicks/"><u>[New] Photographic Pastime IPhone X Retro Clicks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-1-minute-to-fade-to-black-in-premiere-pro/"><u>[Updated] 1 Minute To Fade To Black In Premiere Pro</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-comprehensive-tutorial-adding-timer-functionality-to-obs/"><u>[Updated] 2024 Approved Comprehensive Tutorial Adding Timer Functionality to OBS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-seamless-youtube-experience-on-apple-gear-downloading-made-easy-for-2024/"><u>[Updated] Seamless Youtube Experience on Apple Gear Downloading Made Easy for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-12-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 12 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-next-chapter-fbs-move-into-physical-retail-expansion/"><u>Anticipating the Next Chapter: FB's Move Into Physical Retail Expansion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/youtube-beginnings-15-editing-samples/"><u>Best YouTube Beginnings 15 Editing Samples</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-deception-eyes-that-see-beyond-screen-saves/"><u>Detecting Deception: Eyes that See Beyond Screen Saves</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-knowledge-on-new-facebook-ui-elements/"><u>Essential Knowledge on New Facebook UI Elements</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-s18-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-a-low-profile-on-social-networks/"><u>Keeping a Low Profile on Social Networks</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/steps-zum-wiederherstellen-geloschter-png-bilder-auf-windows-1011/"><u>Steps Zum Wiederherstellen Gelöschter PNG-Bilder Auf Windows 10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-communication-via-facebooks-symbol-language/"><u>The Art of Communication via Facebook's Symbol Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-facebook-and-the-metaverse-connection/"><u>The Hidden Dynamics: Facebook and The Metaverse Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-in-should-you-utilize-meta-ai-on-social-networks/"><u>Weighing In: Should You Utilize Meta AI on Social Networks?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/why-hackers-seek-out-chatgpt-conversations/"><u>Why Hackers Seek Out ChatGPT Conversations?</u></a></li>
+</ul></div>
 

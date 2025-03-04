@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2025-02-10T09:10:00.292Z
-updated: 2025-02-15T08:50:54.344Z
+date: 2025-02-26T18:20:04.648Z
+updated: 2025-03-04T20:47:20.707Z
 tags:
   - facebook
 categories:
@@ -24,19 +24,11 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## India's New IT Rules Threaten User Privacy
 
 [Reuters](https://www.reuters.com/world/india/exclusive-whatsapp-sues-india-govt-says-new-media-rules-mean-end-privacy-sources-2021-05-26) reports that Facebook-owned WhatsApp has issues with one of the new IT regulations in India, which states that social media platforms must identify the "first originator of information" when requested by government authorities.
 
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
 
@@ -45,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
 
@@ -66,17 +54,9 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
 
@@ -99,21 +79,22 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-five-star-duo-of-picture-taking-and-musical-integration-for-2024/"><u>[New] Five-Star Duo of Picture Taking & Musical Integration for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-blueprint-for-srt-file-excellence/"><u>[New] The Ultimate Blueprint for SRT File Excellence</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-mastering-sound-top-10-microphones-for-2024/"><u>[Updated] Mastering Sound Top 10 Microphones for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-iphone-13-analysis-features-performance-and-more/"><u>Comprehensive iPhone 13 Analysis: Features, Performance & More</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-find-any-individual-with-these-eight-innovative-people-search-platforms/"><u>How to Find Any Individual with These Eight Innovative People Search Platforms</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-the-artisans-approach-integrating-typefaces-in-ae/"><u>In 2024, The Artisan's Approach Integrating Typefaces in AE</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/iphone-13-pro-max-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>iPhone 13 Pro Max Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
-<li><a href="https://facebook.techidaily.com/managing-direct-linking-to-facebook-site/"><u>Managing Direct Linking to Facebook Site</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-feed-essential-mobile-setting-tweaks-in-fb-app/"><u>Mastery Over Feed: Essential Mobile Setting Tweaks in FB App</u></a></li>
-<li><a href="https://facebook.techidaily.com/perfecting-facebook-profile-altering-significant-personal-date/"><u>Perfecting Facebook Profile: Altering Significant Personal Date</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-social-trading-key-strategies-for-online-safety-on-fb/"><u>Secure Social Trading: Key Strategies for Online Safety on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-sanctions-justifiable-trump-halt-not-eternal/"><u>Social Media Sanctions: Justifiable Trump Halt, Not Eternal</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-clearing-frozen-fb-alerts-and-posts/"><u>Strategies for Clearing Frozen FB Alerts and Posts</u></a></li>
-<li><a href="https://games-able.techidaily.com/tap-swipe-win-android-and-iphone-tetris-competitions/"><u>Tap, Swipe, Win: Android & iPhone Tetris Competitions</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-next-step-for-connectivity-might-fb-open-stores-locally-soon/"><u>The Next Step for Connectivity: Might FB Open Stores Locally Soon?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-leading-wireless-trackballs/"><u>Ultimate Guide to the Leading Wireless Trackballs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-smartphones-ultimate-guide-to-image-editing-and-annotation-for-2024/"><u>[New] Smartphones' Ultimate Guide to Image Editing & Annotation for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-efficiently-design-your-google-image-mosaic-today-for-2024/"><u>[Updated] Efficiently Design Your Google Image Mosaic Today for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-xiaomis-precision-flight-insights-via-4k-lens/"><u>[Updated] In 2024, Xiaomi's Precision Flight Insights via 4K Lens</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-growth-in-tech-spending-for-cybersecurity-on-facebook/"><u>Analyzing the Growth in Tech Spending for Cybersecurity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-brand-with-strategic-hashtags-in-the-realm-of-fb/"><u>Boost Your Brand with Strategic Hashtags in the Realm of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-the-ios-145-update-is-going-to-really-hurt-facebook/"><u>How the iOS 14.5 Update Is Going to Really Hurt Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-tecno-spark-20-proplus-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Tecno Spark 20 Pro+ FRP Bypass Instantly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-samsung-galaxy-a24-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Samsung Galaxy A24 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-digital-detox-quit-facebook-now/"><u>Initiating Digital Detox: Quit Facebook Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-social-media-is-facebook-at-the-forefront/"><u>Interactive Social Media: Is Facebook at the Forefront?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/masterful-selection-top-15-accessories-for-gopro-enthusiasts/"><u>Masterful Selection Top 15 Accessories for GoPro Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-minimize-daily-facebook-usage/"><u>Mastering Social Media: Minimize Daily Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-recovery-of-deleted-facebook-videos/"><u>Mastering the Recovery of Deleted Facebook Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-s18e-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo S18e and Browser | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-infinix-by-fonelab-android-recover-data/"><u>Recover lost data from Infinix</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-showdown-of-corporate-and-casual-online-communities/"><u>The Ultimate Showdown of Corporate and Casual Online Communities</u></a></li>
 </ul></div>
 

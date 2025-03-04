@@ -1,7 +1,7 @@
 ---
 title: Tactics to Decrease Fb Reel Viewing Frequency
-date: 2025-02-07T16:21:17.201Z
-updated: 2025-02-14T19:23:12.982Z
+date: 2025-02-26T16:37:21.870Z
+updated: 2025-03-04T18:36:43.525Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -56,21 +48,9 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ![Screenshot of Settings and Privacy page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -116,10 +96,6 @@ Close
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Working Around Facebook Reels
 
  Facebook Reels are here to stay, whether or not we like them. However, we do have some control over how they auto-play and when they show up in our News Feeds. If you’re not a fan of the feature, hopefully, one of these workarounds will help make things more bearable for you until Facebook decides to give us a “hide reel” button.
@@ -139,19 +115,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-building-a-vimeo-portfolio-from-the-ground-up/"><u>[New] 2024 Approved Building a Vimeo Portfolio From the Ground Up</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unveiling-the-10-best-free-os-agnostic-video-solutions-for-2024/"><u>[New] Unveiling the 10 Best Free OS-Agnostic Video Solutions for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-hide-and-discover-instagram-stories-leaders/"><u>[Updated] 2024 Approved Hide & Discover Instagram Stories Leaders</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-a-beginners-tutorial-how-to-insert-on-screen-dialogue-in-video-formats/"><u>[Updated] A Beginner's Tutorial How to Insert On-Screen Dialogue in Video Formats</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-top-11-techniques-for-stunning-color-balance/"><u>[Updated] Top 11 Techniques for Stunning Color Balance</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-retro-to-future-radeon-rebooted/"><u>2024 Approved Retro to Future Radeon Rebooted</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-tap-and-swipe-are-they-revolutionary/"><u>Facebook's Tap and Swipe: Are They Revolutionary?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-cutting-edge-photo-and-video-enhancement-top-8-editing-apps-for-modern-devices/"><u>In 2024, Cutting-Edge Photo & Video Enhancement Top 8 Editing Apps for Modern Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-facebook-interaction-when-to-follow-when-not-to-unfollow/"><u>Maximizing Facebook Interaction: When to Follow, When Not To Unfollow</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-blocked-security-codes-on-facebook-sign-ins/"><u>Overcoming Blocked Security Codes on Facebook Sign-Ins</u></a></li>
-<li><a href="https://facebook.techidaily.com/stealthy-interaction-techniques-for-fb-groups/"><u>Stealthy Interaction Techniques for FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-matchmaker-how-facebooks-new-features-are-shaping-relationships/"><u>The Social Media Matchmaker: How Facebook's New Features Are Shaping Relationships</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-verdict-on-video-clips-a-deep-dive-into-inshots-performance-for-2024/"><u>The Verdict on Video Clips A Deep Dive Into InShot's Performance for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visionary-film-titles-that-inspire-and-invigorate/"><u>Visionary Film Titles That Inspire and Invigorate</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-grandview-media-mastering-the-art-of-selecting-a-cms/"><u>[New] 2024 Approved Grandview Media Mastering the Art of Selecting a CMS</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-the-essential-guide-to-whatsapp-hacks-and-features/"><u>[New] In 2024, The Essential Guide to WhatsApp Hacks and Features</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/yncing-to-success-unveiling-youtubes-musical-shortcuts-for-2024/"><u>[New] Syncing to Success Unveiling YouTube's Musical Shortcuts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-walls-of-time-for-nba-watchers/"><u>Breaking Down Walls of Time for NBA Watchers</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypass-lost-phones-security-fastest-way-to-fb-without-phone/"><u>Bypass Lost Phones' Security: Fastest Way to FB without Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparative-study-oculus-account-security-features/"><u>Comparative Study: Oculus Account Security Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-fun-on-fb-be-covering-up-hidden-dangers/"><u>Could Fun on FB Be Covering Up Hidden Dangers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crossing-paths-increased-bond-between-facebook-and-instagram/"><u>Crossing Paths: Increased Bond Between Facebook & Instagram</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-easy-guide-to-entering-google-meet-on-devices/"><u>In 2024, Easy Guide to Entering Google Meet on Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-harnessing-the-power-of-hashtags-to-amplify-your-igtv-content/"><u>In 2024, Harnessing the Power of Hashtags to Amplify Your IGTV Content</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-infinix-note-30-pro-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Infinix Note 30 Pro FRP Without Computer</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/online-video-promotion-experts-for-2024/"><u>Online Video Promotion Experts for 2024</u></a></li>
 </ul></div>
 

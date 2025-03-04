@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2025-02-10T03:41:46.380Z
-updated: 2025-02-15T06:25:27.639Z
+date: 2025-03-02T17:15:10.439Z
+updated: 2025-03-04T16:50:33.530Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
@@ -52,10 +44,6 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
@@ -69,10 +57,6 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -80,10 +64,6 @@ Close
  For example, if they try to search for your profile on Facebook and can't find it, that's a pretty good indication you've blocked them. Additionally, they will no longer be able to see any of your posts or profile information. They'll also not be able to tag you in posts or send you messages on Facebook.
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
 
@@ -104,22 +84,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-simplifying-the-task-of-enriching-youtube-plays-with-media/"><u>[New] 2024 Approved Simplifying the Task of Enriching YouTube Plays with Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-crafting-compelling-ad-messages-a-3-phase-copywriting-guide-for-2024/"><u>[New] Crafting Compelling Ad Messages A 3 Phase Copywriting Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-leveraging-seo-for-youtube-popularity-a-budget-guide/"><u>[Updated] In 2024, Leveraging SEO for YouTube Popularity A Budget Guide</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/11-desktop-look-and-feel/"><u>11 Desktop Look and Feel!</u></a></li>
-<li><a href="https://facebook.techidaily.com/germany-orders-facebook-to-stop-collecting-data-on-whatsapp-users/"><u>Germany Orders Facebook to Stop Collecting Data on WhatsApp Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-design-dynamic-engagement-hubs-in-facebook/"><u>How to Design Dynamic Engagement Hubs in Facebook</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-12-pro-max-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 12 Pro Max Without Apple ID Password?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-honor-90-gt-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Honor 90 GT Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-tagged-photos-take-control-with-ease/"><u>Mastery Over Tagged Photos: Take Control with Ease</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/microsoft-teams-outage-determining-if-the-issue-stands-with-service-or-connection/"><u>Microsoft Teams Outage: Determining If the Issue Stands with Service or Connection</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/navigating-new-horizons-with-toms-hardware-guides/"><u>Navigating New Horizons with Tom's Hardware Guides</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-outage-opens-new-challenges-for-giants/"><u>Online Outage Opens New Challenges for Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-downloads-of-social-network-memories-from-facebook/"><u>Seamless Downloads of Social Network Memories From Facebook</u></a></li>
-<li><a href="https://win11.techidaily.com/step-by-step-guide-converting-your-ipad-videos-into-mp4-format/"><u>Step-by-Step Guide: Converting Your iPad Videos Into MP4 Format</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-truth-seekers-toolkit-for-discerning-social-identity-authenticity/"><u>The Truth-Seeker's Toolkit for Discerning Social Identity Authenticity</u></a></li>
-<li><a href="https://facebook.techidaily.com/watch-out-screenshots-going-missing-in-messenger/"><u>Watch Out: Screenshots Going Missing in Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-are-users-turned-off-by-global-social-networks/"><u>Why Are Users Turned Off by Global Social Networks?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-a6400-video-display-issues-troubleshooting-tips/"><u>[New] A6400 Video Display Issues Troubleshooting Tips</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-earning-power-leveraging-social-media-snaps/"><u>[New] Earning Power Leveraging Social Media Snaps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-into-every-detail-a-deep-dive-into-dji-phantom-4/"><u>[Updated] Into Every Detail A Deep Dive Into DJI Phantom 4</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-nostalgia-in-streaming-restoring-yt-videos-removed-for-2024/"><u>[Updated] Nostalgia in Streaming Restoring YT Videos Removed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-benefits-to-giving-your-social-life-a-break/"><u>12 Benefits to Giving Your Social Life a Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-effective-social-network-groups-through-policies/"><u>Building Effective Social Network Groups Through Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-surveys-facebook-page-strategies/"><u>Crafting Surveys: Facebook Page Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-costs-on-social-media-management-with-these-5-strategies/"><u>Cut Costs on Social Media Management with These 5 Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-views-prime-seo-equipment-for-videos-for-2024/"><u>Elevate Views Prime SEO Equipment for Videos for 2024</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/le-meilleur-outil-de-compression-video-pour-reduction-efficiente-du-volume-des-fichiers/"><u>Le Meilleur Outil De Compression Vidéo Pour Réduction Efficiente Du Volume Des Fichiers</u></a></li>
 </ul></div>
 

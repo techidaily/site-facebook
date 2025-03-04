@@ -1,7 +1,7 @@
 ---
 title: Stream Spotify via Miniplayer Within Facebook
-date: 2024-08-28T02:58:52.736Z
-updated: 2024-08-29T02:58:52.736Z
+date: 2025-02-26T20:09:11.236Z
+updated: 2025-03-04T17:04:17.103Z
 tags:
   - facebook
 categories:
@@ -55,23 +55,17 @@ Close
 
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## More Audio Features Are Coming Soon
 
  To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +74,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nleashing-potential-crafting-a-youtube-channel-brand-for-success-for-2024/"><u>[New] Unleashing Potential Crafting a YouTube Channel Brand for Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-evolution-of-youtube-shorts-templates-and-their-impact-on-engagement/"><u>[Updated] The Evolution of YouTube Shorts Templates and Their Impact on Engagement</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-ios-image-to-pdf-the-ultimate-guide-for-users/"><u>2024 Approved Mastering IOS Image-to-PDF The Ultimate Guide for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-to-the-9-signs-of-unauthorized-account-access/"><u>Alert to the 9 Signs of Unauthorized Account Access</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/correcting-missed-audio-segments-in-obs-recordings-for-2024/"><u>Correcting Missed Audio Segments in OBS Recordings for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-connection-issues-with-a-malfunctioning-dell-keyboard/"><u>Fixing Connection Issues with a Malfunctioning Dell Keyboard</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-on-packing-9-essential-items-for-gamers-traveling/"><u>Game-On Packing: 9 Essential Items for Gamers Traveling</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-upload-hd-videos-and-photos-on-facebook-mobile/"><u>How to Upload HD Videos and Photos on Facebook Mobile</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-your-digital-journey-to-youtube-and-facebook-video-gems/"><u>In 2024, Your Digital Journey to YouTube and Facebook Video Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-techniques-for-dynamic-link-management-on-fb/"><u>Innovative Techniques for Dynamic Link Management on FB</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/lost-your-login-details-heres-how-to-retrieve-saved-passwords-from-your-mac-device/"><u>Lost Your Login Details? Here's How to Retrieve Saved Passwords From Your Mac Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-morale-without-offending-friends-online/"><u>Maintaining Morale without Offending Friends Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giants-testing-out-meta-drops-future-potential/"><u>Social Media Giants Testing Out Meta Drop's Future Potential</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-giant-to-boost-rusts-coding-capabilities/"><u>Social Networking Giant to Boost Rust's Coding Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-apple-way-no-sync-with-facebooks-metaverse-blueprint/"><u>The Apple Way: No Sync with Facebook's Metaverse Blueprint</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-comprehensive-guide-to-precision-screen-capture/"><u>The Comprehensive Guide to Precision Screen Capture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-12-best-animal-simulator-games-for-android/"><u>Top 12 Best Animal Simulator Games for Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-user-deceit-for-better-privacy-choices/"><u>Unraveling User Deceit for Better Privacy Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-favorites-hiding-facebook-affection/"><u>Unseen Favorites: Hiding Facebook Affection</u></a></li>
+</ul></div>
 

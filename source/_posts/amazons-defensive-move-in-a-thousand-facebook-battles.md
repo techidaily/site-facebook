@@ -1,7 +1,7 @@
 ---
 title: Amazon's Defensive Move in a Thousand Facebook Battles
-date: 2024-08-23T02:08:30.383Z
-updated: 2024-08-24T02:08:30.383Z
+date: 2025-02-28T18:11:26.447Z
+updated: 2025-03-04T19:17:59.581Z
 tags:
   - facebook
 categories:
@@ -45,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
  The issue of fake reviews is also being investigated in the UK, according to a [statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Are Fake Reviews a Big Problem?
 
  Although fake reviews have been a problem for Amazon for years, COVID-19-related lockdowns intensified the problem as more people turned to online shopping.
@@ -58,23 +55,17 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
  There are several [tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
 
  Fake product reviews on the internet can't be eliminated entirely. However, fake reviews can be lowered to tolerable levels.
 
  Amazon, Facebook, and all tech companies have no choice but to fight the problem with all the tools at their disposal, and in cooperation with one another, in order for e-commerce to thrive.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -83,8 +74,20 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-adobe-premiere-pro-101-for-youtube-clips-and-edits/"><u>[New] 2024 Approved Adobe Premiere Pro 101 for YouTube Clips and Edits</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-entrepreneurs-guide-to-snapchat-e-commerce/"><u>[Updated] 2024 Approved The Entrepreneur's Guide to Snapchat E-Commerce</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-snapshots-on-social-infinite/"><u>Are Snapshots on Social Infinite?</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-social-media-giants-wearable-device/"><u>Behind the Scenes: Social Media Giant's Wearable Device</u></a></li>
+<li><a href="https://app-tips.techidaily.com/beyond-point-and-click-the-transformation-of-ui-with-generative-artificial-intelligence/"><u>Beyond Point-and-Click: The Transformation of UI with Generative Artificial Intelligence</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-samsung-galaxy-s23-fe-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Samsung Galaxy S23 FE FRP In 3 Different Ways</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-vivo-v29-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo V29 Pro Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-xiaomi-redmi-note-12-pro-4g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Xiaomi Redmi Note 12 Pro 4G?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-venues-for-questing-freelancing-roles/"><u>Leading Venues for Questing Freelancing Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-a-new-chapter-for-nfts-on-instafb/"><u>Meta Drops: A New Chapter for NFTs on Insta/FB</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-crafting-for-beginners-top-6-free-resources-for-2024/"><u>Outro Crafting for Beginners Top 6 Free Resources for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleashing-3d-text-a-photoshop-technique-for-2024/"><u>Unleashing 3D Text A Photoshop Technique for 2024</u></a></li>
+</ul></div>
 

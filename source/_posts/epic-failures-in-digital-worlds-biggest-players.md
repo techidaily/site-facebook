@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2025-02-14T14:53:26.085Z
-updated: 2025-02-14T16:31:30.585Z
+date: 2025-02-27T18:58:54.301Z
+updated: 2025-03-04T17:48:58.403Z
 tags:
   - facebook
 categories:
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
 ## Epic Failures in Digital World's Biggest Players
 
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Shownotes
 
@@ -51,18 +47,22 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-elevating-your-creations-with-instagrams-soundtrack-feature/"><u>[New] In 2024, Elevating Your Creations with Instagram's Soundtrack Feature</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-unlock-the-secrets-essential-tiktok-video-editing-techniques-for-2024/"><u>[New] Unlock the Secrets Essential TikTok Video Editing Techniques for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exiting-facebook-glamourously-on-android-devices/"><u>Exiting Facebook Glamourously on Android Devices</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/immersive-metaverse-reflections-inspirational-messages-for-2024/"><u>Immersive Metaverse Reflections Inspirational Messages for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-sound-of-funny-ringtones-recommended-websites/"><u>In 2024, Sound of Funny Ringtones' Recommended Websites</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximize-chat-opportunities-invite-on-facebook-messenger/"><u>Maximize Chat Opportunities: Invite on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/metatrend-trumps-social-media-revival/"><u>Metatrend: Trump's Social Media Revival</u></a></li>
-<li><a href="https://facebook.techidaily.com/operating-without-obstruction-whatsapps-functionality-post-privacy-policy/"><u>Operating Without Obstruction: WhatsApp's Functionality Post-Privacy Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/share-your-vision-designing-instagram-friendly-collections/"><u>Share Your Vision: Designing Instagram-Friendly Collections</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/sidestep-the-lure-of-a-gpt-phone-app/"><u>Sidestep the Lure of a GPT Phone App</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unmissable-advantages-of-using-facebook-a-list/"><u>The Unmissable Advantages of Using Facebook: A List</u></a></li>
-<li><a href="https://win-answers.techidaily.com/top-ranking-substitutes-for-leawo-dvd-ripper-unleash-superior-quality/"><u>Top-Ranking Substitutes for Leawo DVD Ripper: Unleash Superior Quality</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Itel P40+? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/1716854572518-new-live-streaming-software-vs-hardware-which-is-better/"><u>[New] Live Streaming Software Vs Hardware Which Is Better?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-full-overview-of-adobe-cloud-workflow-and-alternative-methods/"><u>[Updated] A Full Overview of Adobe Cloud Workflow & Alternative Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-rapid-capture-sounds-alongside-images/"><u>[Updated] In 2024, Rapid Capture Sounds Alongside Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-10-must-have-luxury-car-accessories-for-sj4000-aficionados/"><u>2024 Approved 10 Must-Have Luxury Car Accessories for SJ4000 Aficionados</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-motives-to-break-free-from-the-social-media-giant/"><u>6 Motives to Break Free From the Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-ways-to-use-facebook-for-career-growth/"><u>6 Ways to Use Facebook for Career Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/annual-2022-in-depth-analysis-of-popular-podcasts/"><u>Annual 2022: In-Depth Analysis of Popular Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-digital-content-wizard-with-these-proven-techniques-for-facebook-video-creation/"><u>Become a Digital Content Wizard with These Proven Techniques for Facebook Video Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-scandals-evaluating-facebook-papers-objectively/"><u>Beyond Surface Scandals: Evaluating Facebook Papers Objectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/brisk-business-lite-android-productivity-picks/"><u>Brisk Business: Lite Android Productivity Picks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-x-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On Apple iPhone X</u></a></li>
+<li><a href="https://facebook.techidaily.com/curating-personalized-reflections-on-facebook/"><u>Curating Personalized Reflections on Facebook</u></a></li>
+<li><a href="https://program-issues.techidaily.com/diablo-iii-crashes-heres-how-you-can-fix-it-once-and-for-all/"><u>Diablo III Crashes? Here's How You Can Fix It Once and For All</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exclusive-wix-custom-actions-for-uninstall-operations-how-to-guide/"><u>Exclusive WiX Custom Actions for Uninstall Operations: How-To Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149877934-hidden-stories-that-could-change-your-perception-of-tech-today/"><u>Hidden Stories That Could Change Your Perception of Tech Today</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-redmi-k70-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi Redmi K70 Pro</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/solving-print-issues-in-selective-applications-expert-tips-from-yl-computings-software-suite/"><u>Solving Print Issues in Selective Applications: Expert Tips From YL Computing's Software Suite</u></a></li>
 </ul></div>
 

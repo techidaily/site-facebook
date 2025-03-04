@@ -1,7 +1,7 @@
 ---
 title: "New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout"
-date: 2024-08-28T02:58:50.387Z
-updated: 2024-08-29T02:58:50.387Z
+date: 2025-03-01T18:35:44.251Z
+updated: 2025-03-04T16:28:43.405Z
 tags:
   - facebook
 categories:
@@ -41,14 +41,11 @@ thumbnail: https://thmb.techidaily.com/7210d597b33981cf8e8bc74bc3a1da89a343d982e
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -57,12 +54,16 @@ thumbnail: https://thmb.techidaily.com/7210d597b33981cf8e8bc74bc3a1da89a343d982e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-illuminate-your-content-creation/"><u>[Updated] 2024 Approved Illuminate Your Content Creation</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-navigating-video-sharing-from-imovie-to-the-vimeo-network/"><u>[Updated] Navigating Video Sharing From iMovie to the Vimeo Network</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-innovative-downloaders-unveiled-top-8-of-2023/"><u>2024 Approved Innovative Downloaders Unveiled Top 8 of 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/attorneys-general-demand-remove-kids-from-facebooks-instagram/"><u>Attorneys General Demand: Remove Kids From Facebook's Instagram</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-realme-narzo-n53-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-stream-mastery-top-rated-tech-and-devices-guide-for-creators/"><u>In 2024, YouTube Stream Mastery Top-Rated Tech & Devices Guide for Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-social-media-landscapes-boosting-biz-success/"><u>Leading Social Media Landscapes Boosting Biz Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-your-marketing-with-engaging-facebook-practices/"><u>Revolutionizing Your Marketing with Engaging Facebook Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-news-feed-to-just-feed-on-fb/"><u>The Evolution From News Feed to Just Feed on FB</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

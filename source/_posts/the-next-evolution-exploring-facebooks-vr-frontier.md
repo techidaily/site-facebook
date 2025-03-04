@@ -1,7 +1,7 @@
 ---
 title: "The Next Evolution: Exploring Facebook's VR Frontier"
-date: 2025-02-10T00:00:38.066Z
-updated: 2025-02-15T13:01:49.656Z
+date: 2025-03-02T18:00:08.350Z
+updated: 2025-03-04T19:34:52.905Z
 tags:
   - facebook
 categories:
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 ### Data Brokering and Targeted Ads
@@ -54,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Algorithmic Biases
 
  Many people talk about the algorithm that runs social media platforms and the ads that fund them. While algorithms are not inherently bad, they’re not entirely safe from biases, either. Similar to the people who code them, algorithms fulfill certain needs like efficiency, effectiveness, and so on. Unfortunately, these hallmarks for success often don't necessarily include ethics.
@@ -65,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  As a social media platform, Facebook has a long history of racist, sexist, and other morally ambiguous implications of its complex algorithm. While these algorithmic biases don’t appear so critical at first, they do work to shift public perception and rhetoric that can be damaging to societies as a whole.
 
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
 
@@ -82,19 +70,11 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -119,24 +99,21 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/terra-trotter-a-tech-savvy-goats-new-identity/"><u>'Terra Trotter': A Tech-Savvy Goat's New Identity</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-iosandroid-tips-attaching-audio-posters-on-facebook/"><u>[New] 2024 Approved IOS/Android Tips Attaching Audio Posters on Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-concealed-viewing-of-instagrams-private-content-on-devices-for-2024/"><u>[New] Concealed Viewing of Instagram's Private Content on Devices for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-insta-zoom-mastery-in-and-out-for-clearer-selfies/"><u>[New] Insta Zoom Mastery In and Out for Clearer Selfies</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-silencing-sound-obs-audio-solution/"><u>[Updated] 2024 Approved Silencing Sound OBS Audio Solution</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/getting-handbrake-up-and-running-on-your-windows-pc-tips-and-tricks/"><u>Getting HandBrake Up and Running on Your Windows PC: Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/global-internet-curbs-the-three-with-no-facebook/"><u>Global Internet Curbs: The Three With No Facebook</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/high-definition-griezmann-barcelona-walls-premium-hd-backgrounds-and-imagery-collection-yl-computing/"><u>High-Definition Griezmann Barcelona Walls: Premium HD Backgrounds & Imagery Collection - YL Computing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-g42-5g-by-fonelab-android-recover-messages/"><u>How to recover old messages from your G42 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-view-private-facebook-profiles/"><u>How to View Private Facebook Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-implicit-connotations-in-digital-communication/"><u>Identifying Implicit Connotations in Digital Communication</u></a></li>
-<li><a href="https://driver-install.techidaily.com/optimize-windows-1187-performance-with-asus-bluetooth-driver/"><u>Optimize Windows 11/8/7 Performance with ASUS Bluetooth Driver</u></a></li>
-<li><a href="https://extra-information.techidaily.com/photography-for-the-masses-the-best-12-sites-offering-accessible-stock-images/"><u>Photography for the Masses - The Best 12 Sites Offering Accessible Stock Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-savvy-understanding-and-utilizing-fb-unfollowfollow/"><u>Social Media Savvy: Understanding and Utilizing FB Unfollow/Follow</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-flight-on-social-media-through-imagery/"><u>Taking Flight on Social Media Through Imagery</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-journey-social-medias-rising-stars/"><u>The Journey: Social Media's Rising Stars</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-key-to-successful-business-growth-with-facebook-clients/"><u>The Key to Successful Business Growth with Facebook Clients</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-overlooked-issue-of-facebooks-trackable-web-history/"><u>The Overlooked Issue of Facebook's Trackable Web History</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722607680810-the-premier-list-of-cable-modems-find-the-perfect-match/"><u>The Premier List of Cable Modems - Find the Perfect Match!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-chrome-os-best-free-video-capture-tools-compilation-for-2024/"><u>[New] Chrome OS Best Free Video Capture Tools Compilation for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-cash-only-computers-recording-youtube-video-playback-for-screenshots/"><u>[New] No Cash, Only Computers Recording YouTube Video Playback for Screenshots</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-controlling-bitrate-overload-in-obs/"><u>[Updated] 2024 Approved Controlling Bitrate Overload in OBS</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-convergence-of-social-media-and-smart-tv-roku-and-fb-live/"><u>[Updated] The Convergence of Social Media and Smart TV Roku and FB Live</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-innovative-apps-to-enhance-social-media-dispatch-timing/"><u>5 Innovative Apps to Enhance Social Media Dispatch Timing</u></a></li>
+<li><a href="https://win-special.techidaily.com/pc-onedrive/"><u>複数PCへのデータ保険: OneDriveバックアップ完全手引き</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-a-sea-of-negative-news-on-fb/"><u>Anticipating a Sea of Negative News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-these-3-types-of-app-if-you-care-about-privacy/"><u>Avoid These 3 Types of App if You Care About Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-brother-offers-5m-support-for-viral-outbreak-relief/"><u>Big Brother Offers $5M Support for Viral Outbreak Relief</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-fb-post-clarity-with-alt-texts/"><u>Boosting FB Post Clarity with Alt Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-social-network-groups-fbs-hub-vs-linkedins-professional-circle/"><u>Comparing Social Network Groups: FB's Hub Vs. LinkedIn's Professional Circle</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortlessly-fix-errors-where-windows-cant-find-printer-driver/"><u>Effortlessly Fix Errors Where Windows Can't Find Printer Driver</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154372180-favorite-social-app-cast-your-ballot-now/"><u>Favorite Social App: Cast Your Ballot Now</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-preserving-sound-integrity-while-changing-aif-format-to-wav/"><u>Step-by-Step Guide: Preserving Sound Integrity While Changing AIF Format to WAV</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solutions-for-fixing-missing-binkw32dll-errors-in-windows-systems/"><u>Step-by-Step Solutions for Fixing Missing binkw32.dll Errors in Windows Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-vivo-s17t-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Vivo S17t Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

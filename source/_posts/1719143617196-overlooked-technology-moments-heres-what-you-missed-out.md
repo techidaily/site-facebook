@@ -1,7 +1,7 @@
 ---
 title: Overlooked Technology Moments, Here's What You Missed Out
-date: 2024-08-28T02:59:36.798Z
-updated: 2024-08-29T02:59:36.798Z
+date: 2025-02-25T19:22:29.914Z
+updated: 2025-03-04T19:03:40.665Z
 tags:
   - facebook
 categories:
@@ -47,24 +47,9 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Welcome to the Metaverse
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
  The company is looking at the metaverse as the next significant shift in tech, which changes the way humans interact with the internet. Instead of accessing the internet through disparate apps, services, and hardware, the metaverse links them together to meld a seamless experience almost similar to physical reality.
@@ -75,15 +60,9 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Apple and Facebook's Privacy War
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
  The iOS 15 update further exacerbated this conflict, allowing users to see which apps access which data and sensors, and when. You can even see whether these apps share your data with third-party entities.
@@ -94,23 +73,17 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## What Tech News Will We See in 2022?
 
  These are some of the biggest tech news stories of 2021, and we're looking forward to a more exciting 2022\. While many of us won't feel the immediate impact of these developments, they will shape how we use and interact with technology in the near future.
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +92,26 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-recording-made-easy-tips-for-youtube-vids/"><u>[Updated] In 2024, Recording Made Easy Tips for YouTube Vids</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-windows-best-camcorders-reviewed-and-rated/"><u>[Updated] In 2024, Window's Best Camcorders Reviewed & Rated</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-for-transforming-fragments-into-lasting-memories-for-2024/"><u>[Updated] The Ultimate Guide for Transforming Fragments Into Lasting Memories for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-5-best-non-samsung-camera-picks-for-gear-enthusiasts/"><u>2024 Approved Unveiling 5 Best Non-Samsung Camera Picks for Gear Enthusiasts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/breaking-down-the-impressive-performance-leap-of-amds-newest-zen-5-ryzen-cpu-the-ryzen-9-9950x-eclipses-the-ryzen-9-7950x-with-a-24-boost-in-rendering-bench30/"><u>Breaking Down the Impressive Performance Leap of AMD's Newest Zen #5 Ryzen CPU: The Ryzen 9 9950X Eclipses the Ryzen 9 7950X with a 24% Boost in Rendering Benchmark Results</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-hidden-social-norms-for-online-networking/"><u>Decoding Hidden Social Norms for Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-windows-experience-with-latest-bluetooth-dongle-driver-download-and-update-guide/"><u>Enhance Windows Experience with Latest Bluetooth Dongle Driver – Download and Update Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ning-the-income-mechanics-of-tseries-on-youtube-for-2024/"><u>Examining the Income Mechanics of TSeries on YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-best-of-2022-a-podcast-round-up-review/"><u>Exploring the Best of 2022 - A Podcast Round-Up Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-era-personalizing-content-for-your-preferences/"><u>Facebook's New Era: Personalizing Content for Your Preferences</u></a></li>
+<li><a href="https://windows11.techidaily.com/fine-tune-your-pointers-response-time-and-visibility-on-windows-11/"><u>Fine-Tune Your Pointer's Response Time and Visibility on Windows 11</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-apple-iphone-6s-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile Apple iPhone 6s Before the Plan Expires</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-ancient-news-feed-content-on-fb/"><u>Revisiting Ancient News Feed Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-your-networking-to-net-income-uncover-5-money-makers-on-igfb/"><u>Turn Your Networking to Net Income: Uncover 5 Money Makers on IG/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-silent-social-network-with-troubleshooting-techniques/"><u>Unlock Your Silent Social Network with Troubleshooting Techniques</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: 8 Tips to Avoid Phishing Scams on Facebook
-date: 2024-08-28T02:54:27.847Z
-updated: 2024-08-29T02:54:27.847Z
+date: 2025-03-03T17:45:56.559Z
+updated: 2025-03-04T20:13:59.755Z
 tags:
   - facebook
 categories:
@@ -69,16 +69,10 @@ Close
 
 It’s a good idea to do a privacy check on a regular basis.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Remove Access to Facebook From Suspicious Apps
 
 ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
@@ -89,14 +83,8 @@ It’s a good idea to do a privacy check on a regular basis.
 
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  A common way to scam people is to use Messenger. Scammers send out these links using bots loaded with generic scripts. For instance, “this is hilarious…” or “OMG, check this out!”. If you see a line like this attached to a URL, be careful, especially if it’s out of character for your friend.
@@ -107,9 +95,6 @@ Close
 
  If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of [reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Know the Signs of a Facebook Scam
 
 ![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
@@ -124,9 +109,6 @@ Close
 
  Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Don’t Reply to Trivia Facebook Posts
 
 ![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
@@ -143,9 +125,6 @@ Close
 
 ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
  Make sure you trust someone before accepting a request. Scammers often go after personal details hidden behind “friends only” privacy settings. To protect yourself, it’s a good idea to limit your Facebook Friends to people you actually know.
 
  One of the most common [Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) is to offer a friend request to potential buyers. The seller may pretend that they don’t know another way to contact you, but this is a lie.
@@ -156,9 +135,6 @@ Close
 
 ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Avoid using phone numbers, pet names, and similar information as passwords, as these are easy to guess. Also, avoid having short, simple passwords, and never use the same password on more than one site.
 
  Your password should be 14 characters at least. It should also contain a mix of upper and lower-case letters, numbers, and symbols. There are more ways to [make sure your password is secure](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , but these are the basics.
@@ -169,14 +145,11 @@ Close
 
  If you think you may have been phished, the first thing you should do is change your Facebook password. Then, log out of all devices. It can also help to go through a checklist of security measures.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,8 +158,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-when-does-instagram-get-most-active-a-comprehensive-look/"><u>[New] In 2024, When Does Instagram Get Most Active? A Comprehensive Look</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-for-audio-editors-using-garageband/"><u>[New] The Ultimate Guide for Audio Editors Using GarageBand</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-guide-to-applying-a-realistic-motion-blur-in-photoshop-for-2024/"><u>[Updated] Step-by-Step Guide to Applying a Realistic Motion Blur in Photoshop for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-full-breakdown-of-toolwizs-image-processing/"><u>[Updated] The Full Breakdown of Toolwiz's Image Processing</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-essential-apps-that-make-social-timing-easier/"><u>9 Essential Apps That Make Social Timing Easier</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-lies-top-10-social-media-realities-of-facebook/"><u>Beyond the Lies: Top 10 Social Media Realities of Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-a-path-to-youtube-wealth-cpm-analysis/"><u>Charting a Path to YouTube Wealth CPM Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-social-networks-mechanisms-with-facebooks-openness-portal/"><u>Discovering the Social Network's Mechanisms with Facebook’s Openness Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hush-on-upcoming-oculus-quest-3/"><u>Facebook's Hush on Upcoming Oculus Quest 3</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-instant-thunderbolt-driver-updates-for-intel-secure-and-hassle-free-download/"><u>Get Instant Thunderbolt Driver Updates for Intel - Secure and Hassle-Free Download!</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-managing-linked-apps-and-sites-to-fb/"><u>Guidelines for Managing Linked Apps & Sites to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook/"><u>How to Disconnect Your Instagram Account From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-season-for-altering-fb-identity-snapshot/"><u>Ideal Season for Altering FB Identity Snapshot</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-oppo-a1x-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Oppo A1x 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-pause-perfection-a-step-by-step-guide-to-freezing-frames-in-videos/"><u>New In 2024, Pause Perfection A Step-by-Step Guide to Freezing Frames in Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-fb-sightings-avoid-strangers-glimpses/"><u>Safeguarding FB Sightings: Avoid Stranger's Glimpses</u></a></li>
+<li><a href="https://facebook.techidaily.com/sanctioned-resistance-fb-groups-defy-immunization-bans/"><u>Sanctioned Resistance: FB Groups Defy Immunization Bans</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/stop-unknown-numbers-a-step-by-step-guide-to-filtering-restricted-calls-on-your-iphone/"><u>Stop Unknown Numbers: A Step-by-Step Guide to Filtering Restricted Calls on Your iPhone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-ietfamedll-issues-a-comprehensive-guide/"><u>Troubleshooting ietfame.dll Issues: A Comprehensive Guide</u></a></li>
+</ul></div>
 

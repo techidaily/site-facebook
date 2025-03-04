@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2025-02-11T03:57:44.000Z
-updated: 2025-02-15T11:51:56.013Z
+date: 2025-02-27T19:16:00.524Z
+updated: 2025-03-04T19:39:53.865Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
  The report by[Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
@@ -41,10 +37,6 @@ Adam French, Consumer Rights Expert at Which?, said:
  About 43% of victims said that they didn't even report the ad that scammed them.
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
 
@@ -79,24 +71,22 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-the-art-of-gif-animation-explained-for-2024/"><u>[New] The Art of GIF Animation Explained for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-introduce-circular-smoothing-transition-via-adobe-photoshop/"><u>2024 Approved Introduce Circular Smoothing Transition via Adobe Photoshop</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-smooth-streaming-elite-stabilizers-reviewed/"><u>2024 Approved Smooth Streaming Elite Stabilizers Reviewed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/converting-audio-files-understanding-the-distinct-features-of-m4a-and-m4b-a-comprehensive-guide/"><u>Converting Audio Files: Understanding the Distinct Features of M4A & M4B - A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dial-back-unrequested-youtube-recommendations-for-2024/"><u>Dial Back Unrequested YouTube Recommendations for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/easy-fixes-to-restore-dolby-atmos-functionality-on-your-pc-running-windows-1011/"><u>Easy Fixes to Restore Dolby Atmos Functionality on Your PC Running Windows 10/11</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-the-creators-currency-how-to-turn-streams-into-dollars/"><u>In 2024, The Creator’s Currency How To Turn Streams Into Dollars</u></a></li>
-<li><a href="https://facebook.techidaily.com/majority-us-view-net-negatives-prevail-on-platforms/"><u>Majority U.S. View: Net Negatives Prevail on Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-marketplace-the-best-4-business-analytics-resources/"><u>Master the Marketplace: The Best 4 Business Analytics Resources</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-privacy-a-comprehensive-fb-guide/"><u>Mastering the Art of Privacy: A Comprehensive FB Guide</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-mp4-video-editing-made-easy-a-beginners-guide-for-mac-and-windows/"><u>New In 2024, MP4 Video Editing Made Easy A Beginners Guide for Mac and Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-gen-avatars-roll-out-for-oculus-users/"><u>Next-Gen Avatars Roll Out for Oculus Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/review-the-biggest-news-in-google-history/"><u>Review: The Biggest News in Google History</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-recovery-methods-for-locked-out-facebook-users/"><u>Secure Recovery Methods for Locked-Out Facebook Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/smart-steps-to-avoid-burnout-with-facebook-timers/"><u>Smart Steps to Avoid Burnout with Facebook Timers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-regretful-status-updates/"><u>The Ultimate Guide to Removing Regretful Status Updates</u></a></li>
-<li><a href="https://some-tips.techidaily.com/1726223315920-tiff-movavi/"><u>TIFFフォーマットから自由に変換! 無料オンラインツールで簡単な切り替え - Movaviプロのサポート</u></a></li>
-<li><a href="https://facebook.techidaily.com/truth-battles-rumors-as-facebook-raises-sanctions/"><u>Truth Battles Rumors as Facebook Raises Sanctions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/xsplit-archive-assessing-video-game-splits-for-2024/"><u>XSplit Archive Assessing Video Game Splits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-video-quality-edge-mirrorless-versus-dslr-cameras/"><u>[New] 2024 Approved Video Quality Edge Mirrorless Versus DSLR Cameras</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-comparative-analysis-of-top-screen-recorders-with-a-spotlight-on-apeaksoft/"><u>[New] Comparative Analysis of Top Screen Recorders with a Spotlight on Apeaksoft</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-15-free-budget-friendly-web-photo-editors-2023-review-for-2024/"><u>[New] Top 15 Free, Budget-Friendly Web Photo Editors - 2023 Review for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-precious-playtimes-kids-fun-and-games-anthology/"><u>2024 Approved Precious Playtimes Kids' Fun & Games Anthology</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprerancial-guide-to-facebook-echo-show-vs-portal/"><u>A Comprerancial Guide to Facebook Echo Show vs Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-out-fbs-constant-notification-chirps/"><u>Blocking Out Fb's Constant Notification Chirps</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-in-digital-socialization-with-facebook-updates/"><u>Bridging Gaps in Digital Socialization with Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-realme-12-proplus-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Realme 12 Pro+ 5G Location | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/privacy-expertise-with-proton-vpn-plugin-for-browsers/"><u>Privacy Expertise with Proton VPN Plugin for Browsers</u></a></li>
+<li><a href="https://win-updates.techidaily.com/seamless-file-sharing-how-to-move-content-from-iphone-to-mac/"><u>Seamless File Sharing: How to Move Content From iPhone to Mac</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-issue-why-cant-i-reach-my-steam-community/"><u>Solved Issue: Why Can't I Reach My Steam Community?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-10-useful-settings-found-in-android-dev-mode-a-comprehensive-guide/"><u>Top 10 Useful Settings Found in Android Dev Mode: A Comprehensive Guide</u></a></li>
 </ul></div>
 

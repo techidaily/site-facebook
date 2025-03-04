@@ -1,7 +1,7 @@
 ---
 title: Unexpected Silence in Digital Communication Realms
-date: 2025-01-29T22:16:33.634Z
-updated: 2025-01-31T17:24:53.100Z
+date: 2025-02-11T19:26:01.177Z
+updated: 2025-02-15T14:09:50.829Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,17 +51,24 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-prime-free-improvement-suite-pc-and-phone-edition/"><u>[Updated] Prime FREE Improvement Suite PC & Phone Edition</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-techniques-for-transforming-facespace-lives-into-tv-content-for-2024/"><u>[Updated] Techniques for Transforming Facespace Lives Into TV Content for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-macs-screen-capture-champions-the-premier-tools-evaluation/"><u>2024 Approved Mac's Screen Capture Champions The Premier Tools Evaluation</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-smart-social-networking-balancing-favorites-and-blocks-on-facebook/"><u>A Guide to Smart Social Networking: Balancing Favorites & Blocks on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-sheryl-sandberg-effect-at-facebook/"><u>Analyzing the Sheryl Sandberg Effect at Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-productivity-and-peace-using-facebooks-reminder-feature/"><u>Boost Productivity and Peace Using Facebook’s Reminder Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-disinformation-the-12-influencer-connection/"><u>Covid Disinformation: The 12 Influencer Connection</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-itel-a05s-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Itel A05s Devices</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-canon-image-masters-10plus-luts-some-are-free/"><u>In 2024, Canon Image Masters - 10+ LUTs, Some Are Free</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-easyrecorder-straightforward-windows-10-tool/"><u>In 2024, EasyRecorder - Straightforward Windows 10 Tool</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-realme-12-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Realme 12 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150150084-panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing.</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ditching-the-undesired-backdrop-the-path-less-cluttered/"><u>[New] Ditching the Undesired Backdrop The Path Less Cluttered</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/lashy-fiddles-short-form-melodic-roles-for-2024/"><u>[New] Flashy Fiddles Short Form Melodic Roles for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-script-to-screen-building-a-youtube-trailer-in-filmora/"><u>[New] From Script to Screen Building a YouTube Trailer in Filmora</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-draw-attention-with-smoothly-animated-text-on-ig-stories/"><u>[Updated] Draw Attention With Smoothly Animated Text on IG Stories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-blueprint-of-successful-video-endorsements-for-2024/"><u>[Updated] The Blueprint of Successful Video Endorsements for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-guide-to-adding-motion-blur-effect-in-photoshop/"><u>[Updated] The Ultimate Guide to Adding Motion Blur Effect in Photoshop</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-ultimate-toolkit-for-animating-letters-for-2024/"><u>[Updated] Ultimate Toolkit for Animating Letters for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-media-impact-uploading-hd-to-social-media/"><u>Enhancing Media Impact: Uploading HD to Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-online-activity-camouflaging-your-likes/"><u>Invisible Online Activity: Camouflaging Your Likes</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-startup-hurdles-a-solution-to-the-persistent-origin-wont-open-in-modern-windows-os/"><u>Overcoming Startup Hurdles: A Solution to the Persistent 'Origin Won't Open' In Modern Windows OS</u></a></li>
+<li><a href="https://win-studio.techidaily.com/reordering-images-in-your-flipbook-project-tips-for-using-flipbuilder/"><u>Reordering Images in Your Flipbook Project: Tips for Using FlipBuilder</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-war-on-untruths-increased-fb-fines-introduced/"><u>Social Media War on Untruths: Increased FB Fines Introduced</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-resolving-session-search-issues-on-palworld/"><u>Troubleshooting Guide: Resolving Session Search Issues on Palworld</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-voices-mentioning-full-group-in-social-media/"><u>Uniting Voices: Mentioning Full Group in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-your-fb-blacklist-entities/"><u>Unraveling Your FB Blacklist Entities</u></a></li>
 </ul></div>
 

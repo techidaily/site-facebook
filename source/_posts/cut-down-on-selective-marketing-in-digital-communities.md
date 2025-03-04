@@ -1,7 +1,7 @@
 ---
 title: Cut Down on Selective Marketing in Digital Communities
-date: 2024-08-15T18:43:26.555Z
-updated: 2024-08-16T18:43:26.555Z
+date: 2025-02-13T12:32:13.074Z
+updated: 2025-02-14T18:13:18.370Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/da30e1ebb9eb5ab25a7effb66e03594a33963d6af
 
  This article will cover how to limit personalized ads on three social media apps you probably have—Facebook, Instagram, and Twitter—so you can enjoy better in-app experiences when online.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Minimize Targeted Ads on Social Media?
 
  Nowadays, scrolling through your social media feed can feel like trying to make it through a market where all the vendors are trying to sell you something.
@@ -33,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/da30e1ebb9eb5ab25a7effb66e03594a33963d6af
 
  But there's a way around that. While you can never stop them fully, you can minimize targeted ads on social media. Here's how...
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## How to Minimize Targeted Ads on FB
 
  Facebook shows you ads based on your interests and activities on the app. These include pages you like and follow, places you check in, and posts you engage with.
@@ -48,16 +48,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  You can find this information in the**Ad preferences** section of your**Profile settings** . They’re split into categories and can all be removed, but you’ll have to go through each one to hide the ads you don't want to see.
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ads-1.png)
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ads-2.png)
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ads-3.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -71,19 +65,21 @@ Close
 6. Now scroll down and tap**Advertisers whose ads you've clicked** . Tap**Hide Ads** to the right of each brand you do not wish to see adverts from.
 7. You can also choose to see fewer ads from certain topics. Simply tap**Ad topics** , then tap**See Fewer** to the right of each topic you are not interested in.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Minimize Targeted Ads on Instagram
 
 ![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
 
 ![instagram ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-02.png)
+
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![instagram ad settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/instagram-ad-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -103,14 +99,19 @@ Close
 
  To learn how to block ads about specific brands or topics on Instagram, read our guide on [how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## How to Minimize Targeted Ads on Twitter
 
 ![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot of twitter ads personalization and data settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot of twitter personalized ads settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-3.png)
 
@@ -139,14 +140,11 @@ Here's how:
 
  Reducing the ads you encounter on social media platforms puts you in control of your experience on the apps you love, so you can browse through your social media feeds with ease, and without being annoyingly and repeatedly bombarded by unwelcome ads.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,6 +153,22 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/0plus-incredible-free-youtube-intro-makers/"><u>[New] 10+ Incredible Free YouTube Intro Makers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-awesome-free-webcam-games-for-computer-for-2024/"><u>[New] Awesome Free Webcam Games for Computer for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-optimize-your-playstation-10-best-ssds-hdds/"><u>[Updated] Optimize Your PlayStation 10 Best SSDs, HDDs</u></a></li>
+<li><a href="https://win11.techidaily.com/44cm44kk44oz44k44o844on44od44oi44gl44kj5yuv55s744ks44kt44oj44ox44ob44oj44gz44kl44gf44kb44gu44k544og44od44ox44oq44kk44k544og44od44ox44ks44kk44oj44cn/"><u>「インターネットから動画をキャプチャするためのステップバイステップガイド」</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/dvdiso-wonderfoxno1/"><u>動画化できるワンクリックDVD・ISOファイル処理 - WonderFoxの特集:無料版NO.1ソフトウェア</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fundamentals-of-hashtag-marketing-does-it-work-within-facebooks-social-fabric/"><u>Fundamentals of #Hashtag Marketing: Does It Work Within Facebook's Social Fabric?</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-play-nintendo-switch-games-on-your-mac/"><u>How to Play Nintendo Switch Games on Your Mac</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-lava-storm-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Lava Storm 5G Phones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-video-quality-with-yi-4k-action-camera/"><u>Mastering Video Quality with Yi 4K Action Camera</u></a></li>
+<li><a href="https://facebook.techidaily.com/notification-service-identifying-disappeared-messages-on-messenger/"><u>Notification Service: Identifying Disappeared Messages on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-mobile-payments-facebooks-unique-subscriber-tie-ups-explored/"><u>Revolutionizing Mobile Payments: Facebook's Unique Subscriber Tie-Ups Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-identity-shift-with-an-updated-facebook-graphic/"><u>Simplifying Identity Shift with an Updated Facebook Graphic</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dilemma-is-linking-accounts-via-facebook-login-safe-and-practical/"><u>The Dilemma: Is Linking Accounts Via Facebook Login Safe & Practical?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-three-countries-where-facebooks-illegal/"><u>What Are the Three Countries Where Facebook's Illegal?</u></a></li>
+</ul></div>
 

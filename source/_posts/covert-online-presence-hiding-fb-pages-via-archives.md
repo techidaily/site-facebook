@@ -1,7 +1,7 @@
 ---
 title: "Covert Online Presence: Hiding FB Pages via Archives"
-date: 2024-08-15T18:44:56.631Z
-updated: 2024-08-16T18:44:56.631Z
+date: 2025-02-13T02:15:37.353Z
+updated: 2025-02-15T11:57:48.822Z
 tags:
   - facebook
 categories:
@@ -32,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
  Related:[How to Hide Your Social Media Profiles From Bullies](https://www.makeuseof.com/tag/how-to-hide-your-social-media-profiles/)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Hide Facebook Posts With the Archive Feature
 
  Depending on the number of posts you'd like to hide, you can choose between archiving individual posts or bulk-archiving them.
@@ -45,14 +46,8 @@ This guide will show you how to do both.
 Follow the steps below to archive a post on Facebook.
 
 ![screen showing facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile-page.jpg)
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screen showing move to archive on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-move-to-archive-on-facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -68,8 +63,9 @@ Close
 Here's how you can archive multiple posts at once:
 
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screen showing navigation to activity log on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-activity-log-on-Facebook.jpg)
@@ -77,11 +73,6 @@ Here's how you can archive multiple posts at once:
 ![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
 
 ![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -94,20 +85,22 @@ Close
 This will immediately move the posts to your archive.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Restore Archived Posts on Facebook
 
 Here's how to restore archived posts on Facebook:
 
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screen showing navigation to archive page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-archive-page-on-Facebook.jpg)
 
 ![screen showing how to restore archived post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-restore-archived-post-on-Facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -119,20 +112,21 @@ Close
 
  The process is very similar on the web version of Facebook—just look out for the ellipsis and corresponding action.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Keep Your Memories Away From Prying Eyes
 
  If you want to hide old posts on Facebook but at the same time don't want to delete them, go ahead and archive them.
 
  The archived posts will only be accessible through your Archive page, and others can't see them. You can always restore an archived post anytime in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,6 +135,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-optimize-your-chrome-vocal-experience-select-the-best-text-to-speech-apps-online/"><u>[New] 2024 Approved Optimize Your Chrome Vocal Experience Select the Best Text-to-Speech Apps Online</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-accelerate-profits-using-the-top-15-facebook-data-analyzers/"><u>[Updated] 2024 Approved Accelerate Profits Using the Top 15 Facebook Data Analyzers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-finding-free-music-a-producers-handbook/"><u>[Updated] 2024 Approved Finding Free Music A Producer's Handbook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-trek-through-the-territory-of-talkative-thoughts-for-2024/"><u>[Updated] Trek Through the Territory of Talkative Thoughts for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-new-norms-metaverse-marketing-101/"><u>2024 Approved Navigating New Norms Metaverse Marketing 101</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/easy-techniques-for-ripping-and-playing-dvds-on-ios-gadgets/"><u>Easy Techniques for Ripping and Playing DVDs on iOS Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-visual-experiences-messengers-latest-features/"><u>Enhanced Visual Experiences: Messenger’s Latest Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-push-towards-responsible-user-contributions/"><u>Facebook's Push Towards Responsible User Contributions</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-ready-for-weekend-buzz-at-facebooks-live-shops/"><u>Get Ready for Weekend Buzz at Facebook’s Live Shops</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-digital-footprint-tracing-facebook-breaches/"><u>Guard Your Digital Footprint: Tracing Facebook Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantly-craft-captivating-captions-for-your-facebook-photos/"><u>Instantly Craft Captivating Captions for Your Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-back-into-facebook-post-code-loss/"><u>Navigating Back Into Facebook Post-Code Loss</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-call-silence-11-tips-for-enabling-ringtones-on-iphones/"><u>Overcome Call Silence: 11 Tips for Enabling Ringtones on iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-boosted-facebooks-messenger-and-instagram-now-offering-encrypted-chats/"><u>Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-facebook-survival-kit-your-online-security-roadmap/"><u>The Ultimate Facebook Survival Kit: Your Online Security Roadmap</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-the-art-of-freeze-frame-converting-videos-to-images-with-10-expert-tools/"><u>Updated 2024 Approved The Art of Freeze-Frame Converting Videos to Images with 10 Expert Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-11s-lite-version-exploring-s-mode-benefits/"><u>Windows 11'S Lite Version: Exploring S Mode Benefits?</u></a></li>
+</ul></div>
 

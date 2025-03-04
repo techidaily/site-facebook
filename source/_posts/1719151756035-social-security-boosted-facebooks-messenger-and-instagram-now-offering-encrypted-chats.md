@@ -1,7 +1,7 @@
 ---
 title: "Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats"
-date: 2024-08-23T02:05:18.343Z
-updated: 2024-08-24T02:05:18.343Z
+date: 2025-02-11T20:01:13.311Z
+updated: 2025-02-15T03:13:25.278Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 ## Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats
 
  Facebook is expanding end-to-end encryption to Messenger voice and video calls, as well as direct messages (DMs) on Instagram. Turning on the feature will let users communicate securely, whether over calls or text messages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Brings End-to-End Encryption to More Services
 
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -41,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -57,12 +62,22 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-elevate-your-videos-the-essential-guide-to-screencasts-today/"><u>[New] Elevate Your Videos The Essential Guide to Screencasts Today</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-imovie-blueprint-the-pathway-to-crafting-impressive-square-videos-for-2024/"><u>[Updated] IMovie Blueprint The Pathway to Crafting Impressive Square Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
+<li><a href="https://driver-install.techidaily.com/current-acer-vision-enhancements-in-win11/"><u>Current Acer Vision Enhancements in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-guide-to-activate-sleep-mode-on-messenger-kids/"><u>Essential Guide to Activate Sleep Mode on Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/everson-bows-out-facebook-advertising-leader-resigns/"><u>Everson Bows Out: Facebook Advertising Leader Resigns</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2186884-9789350572429-fit-fine-in-body-mind/"><u>Fit & Fine In Body & Mind | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/flair-in-friends-forum-messagings-textual-tricks/"><u>Flair in Friends' Forum: Messaging's Textual Tricks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-a14-4g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy A14 4G Device</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-enriched-sound-experience-synthesizing-audio-waves-and-animating-them-for-premiere-pro-audience/"><u>New 2024 Approved Enriched Sound Experience Synthesizing Audio Waves and Animating Them for Premiere Pro Audience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revving-through-ruins-a-motorcyclists-review-of-the-zombie-world-in-days-gone/"><u>Revving Through Ruins: A Motorcyclist's Review of the Zombie World in 'Days Gone'</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-vanishing-how-messenger-achieves-it/"><u>The Art of Vanishing: How Messenger Achieves It</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857870-9781941129975-the-complete-works-of-florence-scovel-shinn/"><u>The Complete Works Of Florence Scovel Shinn | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-wave-of-texting-engage-with-fb-messengers-soundmojis/"><u>The New Wave of Texting: Engage with FB Messenger’s Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-facebook-tags-master-3-innovative-techniques/"><u>Unlocking the Power of Facebook Tags – Master 3 Innovative Techniques</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->

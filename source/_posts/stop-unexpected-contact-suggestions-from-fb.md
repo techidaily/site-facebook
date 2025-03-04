@@ -1,7 +1,7 @@
 ---
 title: Stop Unexpected Contact Suggestions From FB
-date: 2025-01-26T00:47:13.234Z
-updated: 2025-02-01T02:07:50.212Z
+date: 2025-02-12T19:42:04.144Z
+updated: 2025-02-15T14:35:00.981Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 * [How to Hide the "People You May Know" Feature on Facebook](#how-to-hide-the-quot-people-you-may-know-quot-feature-on-facebook)
 * [How to Turn off Facebook's "People You May Know" Alerts](#how-to-turn-off-facebook-39-s-quot-people-you-may-know-quot-alerts)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Facebook suggests new people based on your engagement, contact lists, and existing friends, but you can hide the "People You May Know" feature.
@@ -38,15 +34,15 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 
  Many of us would rather scroll through our Facebook feeds without having to deal with friend suggestions. Luckily, you can hide the "People You May Know" feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Come Up With Its Friend Suggestions?
 
  Facebook uses its engagement algorithms, your uploaded contact lists, and existing friends to suggest lists of people it believes you may know. You find some of these people in your News Feed under the "People You May Know" gallery.
 
  It's in Facebook's interest to suggest Facebook friends for you. The more connections you have on the platform, the more likely you are to use it. However, if you're not looking to add new friends on Facebook, the feature could become redundant and better off hidden.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Hide the "People You May Know" Feature on Facebook
 
@@ -69,6 +65,10 @@ Close
 
  Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Turn off Facebook's "People You May Know" Alerts
 
  Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
@@ -77,13 +77,17 @@ Close
 
 ![android screenshot showing facebook settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-settings-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing notification settings on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-notification-settings-on-facebook.jpg)
 
-![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
 
 Close
 
@@ -105,19 +109,15 @@ Close
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
 
@@ -136,16 +136,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/1719153008473-hashed-hay-a-novel-animal-pet-naming-trend/"><u>'Hashed Hay': A Novel Animal Pet Naming Trend.</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-chuckle-trail-your-guide-to-hilarious-online-stars/"><u>[New] In 2024, Chuckle Trail Your Guide to Hilarious Online Stars</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-amplify-your-message-facebook-engagement-secrets/"><u>2024 Approved Amplify Your Message Facebook Engagement Secrets</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-of-social-media-shackles-untagging-techniques/"><u>Breaking Free of Social Media Shackles: Untagging Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/bringing-social-to-your-sidewalits-portal-go/"><u>Bringing Social to Your Sidewalits: Portal Go</u></a></li>
-<li><a href="https://article-tips.techidaily.com/capturing-trust-the-significance-of-client-reviews-for-2024/"><u>Capturing Trust The Significance of Client Reviews for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-deception-12-influencer-misinformation-role/"><u>Covid Deception: 12 Influencer Misinformation Role</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/get-the-most-out-of-your-apple-tv-expert-advice-for-peak-experience/"><u>Get the Most Out of Your Apple TV: Expert Advice for Peak Experience</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-unresponsive-utorrent-in-just-7-simple-steps-pro-tips-inside/"><u>How to Fix Unresponsive uTorrent in Just 7 Simple Steps - Pro Tips Inside</u></a></li>
-<li><a href="https://driver-install.techidaily.com/installation-instructions-easy-setup-of-the-logitech-c270-camera/"><u>Installation Instructions: Easy Setup of the Logitech C270 Camera</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/optimize-your-gaming-experience-with-new-amd-radeon-hd-7870-graphics-card-drivers-compatible-with-windows-11/"><u>Optimize Your Gaming Experience with New AMD Radeon HD 7870 Graphics Card Drivers Compatible with Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-embracing-the-commons-digital-access-to-classics-for-2024/"><u>[New] Embracing the Commons Digital Access to Classics for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-advanced-crossfade-methods-to-elevate-your-audiovisual-projects/"><u>[Updated] Advanced Crossfade Methods to Elevate Your Audiovisual Projects</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-snippets-to-stars-the-essence-of-video-musical-success-for-2024/"><u>[Updated] From Snippets to Stars The Essence of Video Musical Success for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/convertissez-facilement-vos-fichiers-mkv-en-m4v-pour-telecharger-librement-avec-la-solution-gratuite-de-movavi-online/"><u>Convertissez Facilement Vos Fichiers MKV en M4V Pour Télécharger Librement Avec La Solution Gratuite De Movavi Online</u></a></li>
+<li><a href="https://win-superb.techidaily.com/effective-strategies-for-resolving-software-issues-insights-from-yl-computing/"><u>Effective Strategies for Resolving Software Issues: Insights From YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-insight-time-off-for-teens-from-instagram-usage/"><u>Facebook's Insight: Time Off for Teens From Instagram Usage</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/full-feature-dissection-the-sony-fdr-x1000-videographer/"><u>Full Feature Dissection - The Sony FDR-X1000 Videographer</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-honor-90-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Honor 90</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-soundtracks-for-snaps-a-guide-to-video-audio-selection/"><u>In 2024, Soundtracks for Snaps A Guide to Video Audio Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-digital-connection-5-best-platforms-for-companies/"><u>Mastering Digital Connection: 5 Best Platforms for Companies</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/precision-at-your-fingertips-a-guide-to-screen-recording-on-apple-devices/"><u>Precision at Your Fingertips A Guide to Screen Recording on Apple Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-your-social-space-navigating-facebooks-new-moderation-tools/"><u>Steering Your Social Space: Navigating Facebook's New Moderation Tools</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/step-by-step-tutorial-downloading-and-saving-awaan-videos-as-mp4movavi-on-windowsmac-systems/"><u>Step-by-Step Tutorial: Downloading and Saving Awaan Videos as MP4/MOV/AVI on Windows/Mac Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-secure-pieces-from-facebooks-725m-settlement/"><u>Strategies to Secure Pieces From Facebook's $725M Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-feed-intelligent-photo-captioning-tech/"><u>Streamline Your Feed: Intelligent Photo Captioning Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-hints-of-facebooks-upcoming-identity-change/"><u>Unveiling Hints of Facebook's Upcoming Identity Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-safe-germany-orders-stop-to-facebook-data-mining-practices/"><u>WhatsApp Users Safe? Germany Orders Stop to Facebook Data Mining Practices</u></a></li>
 </ul></div>
 

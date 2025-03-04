@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down VK: Russia’s Alternative to Facebook Revealed"
-date: 2024-08-15T18:45:13.541Z
-updated: 2024-08-16T18:45:13.541Z
+date: 2025-02-12T01:50:26.744Z
+updated: 2025-02-15T02:51:45.827Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343eb
 
  There is very little to read about VK in the western world, making the site something of a mystery to those outside of the loop. If you've never heard of VK before, you're about to get an earful.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. VK Is the Most Popular Social Media Website in Russia
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
@@ -29,14 +37,12 @@ thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343eb
 
  According to [Alexa](https://www.alexa.com/topsites/countries/RU) , VK is the third most-visited site in Russia, right behind Google and YouTube; the site's daily mobile audience peaks at nearly 45 million visitors on average.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## 2\. VK is More Popular With Young Users
 
 ![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
+
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[ResearchGate](https://www.researchgate.net/figure/Distribution-of-VK-users-by-age-groups%5Ffig3%5F321459360)
@@ -63,9 +69,6 @@ Some potential explanations for this difference include:
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -73,6 +76,10 @@ Some potential explanations for this difference include:
  Many activist groups at odds with the Russian establishment used the platform frequently, both as ordinary users and as a means to advance their causes. When asked to permanently ban these groups and individuals, Durov refused.
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Russian Users Believe VK is Better than Facebook
 
@@ -82,18 +89,12 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant [security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. The Most Common Password on VK is "123456"
 
  One insight gleaned from the breach described above is that [the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
@@ -101,6 +102,10 @@ Some potential explanations for this difference include:
  Many of these stolen passwords were stored in plaintext by VK, allowing some pioneering academics to crunch the numbers after the big spill. They found that over 700,000 people used the password "123456" and another 400,000 used "123456789".
 
  Other popular passwords included "qwerty," "1111111," and "123321".
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. VK's Website Design Rarely Changes
 
@@ -116,23 +121,17 @@ Some potential explanations for this difference include:
 
  It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## There's a World Outside of Facebook
 
  VK is a streamlined and serene experience, far from the ones that we're familiar with, all punctuated by the out-loud-and-proud stylings of TikTokers and Instagram influencers dying to make a name for themselves.
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,6 +140,24 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-livestran-vs-screen-capture-titans-battle-of-software-giants-obs-and-bandicam/"><u>[New] Livestran vs Screen Capture Titans Battle of Software Giants, OBS & Bandicam</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-master-image-deformation-techniques/"><u>[New] Master Image Deformation Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-snap-and-share-the-brief-vlog-age-for-2024/"><u>[New] Snap & Share The Brief Vlog Age for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-a-practical-approach-to-incorporate-youtube-playlists-online/"><u>[Updated] 2024 Approved A Practical Approach to Incorporate YouTube Playlists Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-audio-upheavals-top-rhythmic-disruptors-for-devices-for-2024/"><u>[Updated] Audio Upheavals Top Rhythmic Disruptors for Devices for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-superior-card-selection-for-4k-edit-workstations/"><u>2024 Approved Superior Card Selection for 4K Edit Workstations</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-moderation-facebook-introduces-sophisticated-solutions/"><u>Enhancing Moderation: Facebook Introduces Sophisticated Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-enhancements-set-to-transform-user-experience/"><u>Facebook's Chat Enhancements Set to Transform User Experience</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-hp-officejet-pro-abrir-la-url-8720-drivers-for-windows-computers/"><u>Get the Latest HP OfficeJet Pro Abrir La URL 8720 Drivers for Windows Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/hush-the-chatter-removing-comments-from-social-media-feeds/"><u>Hush the Chatter: Removing Comments From Social Media Feeds</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-balancing-act-weaving-b-roll-into-main-scenes/"><u>In 2024, Balancing Act Weaving B Roll Into Main Scenes</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-blackout-alert-fb-wa-insta-offline-today/"><u>Platform Blackout Alert: FB, WA, Insta Offline Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-lack-of-security-token-sending-by-facebook/"><u>Troubleshooting Lack of Security Token Sending by Facebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlocking-performance-with-toms-hardware-solutions-your-ultimate-guide/"><u>Unlocking Performance with Tom's Hardware Solutions - Your Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-webs-weaknesses-social-media-drawbacks/"><u>Unraveling the Web's Weaknesses: Social Media Drawbacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-these-certain-ads-on-my-fb-feed/"><u>Why Are These Certain Ads on My Fb Feed?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2025-01-25T06:22:46.928Z
-updated: 2025-02-01T07:29:41.793Z
+date: 2025-02-13T09:22:05.284Z
+updated: 2025-02-15T01:10:30.551Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
@@ -45,14 +49,10 @@ That's it. Here you will find all the recently watched videos.
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -63,7 +63,15 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
@@ -76,7 +84,7 @@ That's it. Here you will find all the recently watched videos.
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
@@ -92,10 +100,6 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -110,10 +114,6 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -134,16 +134,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-behind-the-scenes-music-insights-for-ig-for-2024/"><u>[New] Behind the Scenes Music Insights for IG for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-future-is-now-how-vida-transforms-video-editing/"><u>[New] The Future Is Now How Vida Transforms Video Editing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unlock-the-potential-of-youtube-videos-with-smart-tags/"><u>[Updated] In 2024, Unlock the Potential of YouTube Videos with Smart Tags</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-instagram-mavens-guide-to-spectaculous-unboxing-reels/"><u>[Updated] The Instagram Maven's Guide to Spectaculous Unboxing Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-language-of-data-insights-from-whistleblowers-release/"><u>Deciphering the Language of Data: Insights From Whistleblower's Release</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-signals-whats-next-for-facebook/"><u>Deciphering the Signals: What's Next for Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-your-fb-blocked-network-list/"><u>Decoding Your Fb Blocked Network List</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-management-selecting-the-ideal-page-administrator/"><u>Efficient Management: Selecting the Ideal Page Administrator</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-vivo-y78-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Vivo Y78 5G Unlock Without Password</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-edge-design-tips-for-compelling-video-thumbnails/"><u>In 2024, YouTube's Edge Design Tips for Compelling Video Thumbnails</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-role-of-output-impedance-in-audio-systems/"><u>The Role of Output Impedance in Audio Systems</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-best-9-online-mic-recorders/"><u>[New] Best 9 Online Mic Recorders</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-tech-enthusiasts-manual-mastering-macoss-capture-tool-for-2024/"><u>[New] Tech Enthusiasts' Manual Mastering macOS's Capture Tool for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-picture-and-sound-summary-device-for-2024/"><u>[Updated] Picture and Sound Summary Device for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/apple-tv-4k-2021-review-ultra-high-definition-streaming-with-siri-controls/"><u>Apple TV 4K 2021 Review: Ultra-High Definition Streaming With Siri Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-team-dynamics-with-facebooks-top-8-innovations/"><u>Elevating Team Dynamics with Facebook’s Top 8 Innovations</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-samsung-galaxy-z-flip-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-facebooks-exit-route-via-android/"><u>Navigate Facebook's Exit Route via Android</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-how-to-convert-4k-videos-to-mp4-a-step-by-step-guide-for-2024/"><u>New How to Convert 4K Videos to MP4 A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-synchronizing-audio-with-visual-media-the-quicktime-method/"><u>New Synchronizing Audio with Visual Media The QuickTime Method</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/revolutionize-your-os-upgrading-from-32-bit-win10-to-64-bit/"><u>Revolutionize Your OS: Upgrading From 32-Bit Win10 to 64-Bit</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-an-individualized-online-photo/"><u>Tailoring an Individualized Online Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/to-use-or-not-to-use-meta-ai-instagramfacebook-edition/"><u>To Use or Not to Use Meta AI: Instagram/Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-notification-lights/"><u>Turn Off Facebook's Notification Lights</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-indirectness-the-rationale-behind-vague-blogging/"><u>Why Indirectness? The Rationale Behind Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-youll-thank-your-smartphone-for-these-9-advantages/"><u>Why You'll Thank Your Smartphone for These 9 Advantages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zendures-mighty-power-bank-unveiled-introducing-the-supermini-go-your-reliable-travel-charger-with-impressive-features-zdnet/"><u>Zendure's Mighty Power Bank Unveiled: Introducing the SuperMini Go, Your Reliable Travel Charger with Impressive Features | ZDNET</u></a></li>
 </ul></div>
 

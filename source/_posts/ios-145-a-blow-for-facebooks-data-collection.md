@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2025-01-28T23:33:25.103Z
-updated: 2025-02-01T05:27:15.009Z
+date: 2025-02-09T05:00:22.401Z
+updated: 2025-02-15T05:39:10.109Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
@@ -42,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -60,16 +56,24 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
@@ -85,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -127,24 +127,18 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-ace-the-art-of-digital-photography-with-lunapic/"><u>[Updated] Ace the Art of Digital Photography with LunaPic</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-posting-videos-on-instagram-easy/"><u>[Updated] In 2024, Posting Videos on Instagram Easy</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-craft-your-vision-essential-windows-10-tips-for-future-directors/"><u>2024 Approved Craft Your Vision Essential Windows 10 Tips for Future Directors</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/7-pulse-pounding-workouts-that-gain-traction-on-social-media-for-2024/"><u>7 Pulse-Pounding Workouts That Gain Traction on Social Media for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/a-comprehensive-look-at-vlc-recorder/"><u>A Comprehensive Look at VLC Recorder</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-duplicitous-online-barter-schemes-on-facebook/"><u>Deciphering Duplicitous Online Barter Schemes on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-fbcta-implications-for-internet-use/"><u>Deciphering FBCTA: Implications for Internet Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-public-antipathy-towards-social-media-ecosystems/"><u>Deciphering Public Antipathy Towards Social Media Ecosystems</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-revenue-plan-with-song-royalties/"><u>Decoding Facebook's Revenue Plan with Song Royalties</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-use-ceiling-for-facebooks-neighborhood-users/"><u>Decoding the Use Ceiling for Facebook's Neighborhood Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-downtime-social-networking-havoc-strikes/"><u>Digital Downtime: Social Networking Havoc Strikes</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-e-commerce-algos-know-you-better-than-friends/"><u>Do E-Commerce Algos Know You Better Than Friends?</u></a></li>
-<li><a href="https://facebook.techidaily.com/driving-results-with-key-business-meta-tools-and-strategies/"><u>Driving Results with Key Business Meta Tools and Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/driving-traffic-and-interaction-post-tactics-via-ripl/"><u>Driving Traffic and Interaction: Post Tactics via Ripl</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/eyelaughs-funny-image-generator-for-2024/"><u>EyeLaughs Funny Image Generator for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-nokia-c110-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nokia C110 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solution-guide-how-to-restore-your-utorrents-ability-to-connect-and-download-torrents-correctly/"><u>Solution Guide: How to Restore Your uTorrent's Ability to Connect & Download Torrents Correctly</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-watching-dvds-on-your-samsung-galaxy-s4/"><u>Step-by-Step Guide: Watching DVDs on Your Samsung Galaxy S4</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-isolated-viewers-to-shared-experiences-online-for-2024/"><u>[New] From Isolated Viewers to Shared Experiences Online for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-editing-workshop-portal/"><u>[New] In 2024, Editing Workshop Portal</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-naming-wizards-the-best-ai-tools-for-podcast-titles-for-2024/"><u>[New] Naming Wizards The Best AI Tools for Podcast Titles for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cloaked-glance-at-social-media-snapshits/"><u>2024 Approved Cloaked Glance at Social Media Snapshits</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/chromebooks-best-vocal-transformers-the-top-5-chrome-apps-for-2024/"><u>Chromebook's Best Vocal Transformers The Top 5 Chrome Apps for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/detailed-assessment-editorpro-xs-the-ultimate-video-tool/"><u>Detailed Assessment EditorPro XS, the Ultimate Video Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-recognition-metas-paid-verification-badge/"><u>Gain Recognition: Meta's Paid Verification Badge</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-nubia-red-magic-8s-pro-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Nubia Red Magic 8S Pro 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-constructing-cinema-stories/"><u>In 2024, Constructing Cinema Stories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-save-photo-from-video-in-windows-11-photos-app/"><u>In 2024, How to Save Photo From Video in Windows 11 Photos App</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-transformations-shunning-partisan-and-dogmatic-content/"><u>Profile Transformations: Shunning Partisan & Dogmatic Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefine-ig-live-no-video-no-sound-required/"><u>Redefine IG Live - No Video, No Sound Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-digital-interactions-on-fb/"><u>Streamlining Your Digital Interactions on FB</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Best Platforms Catering to the Elderly Social Scene
-date: 2024-08-23T02:05:23.832Z
-updated: 2024-08-24T02:05:23.832Z
+date: 2025-02-07T20:47:38.343Z
+updated: 2025-02-15T11:15:06.852Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 
 ![senior man and woman laughing in front of phone and laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-6667799.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  As one of the older social platforms, Facebook has gained a lot of popularity among senior citizens. In a study conducted by the College of Communications of Pennsylvania State University and published on [ScienceDirect](https://www.sciencedirect.com/science/article/abs/pii/S0747563216301431) , research examined what it was exactly that seniors get from Facebook.
 
  From the online survey, 352 seniors over 60 revealed that their primary reasons for using the platform were social bonding, social bridging, responding to family and friends, as well as curiosity. Facebook [provides seniors with online communities where they can interact](https://www.makeuseof.com/online-communities-for-seniors/) with like-minded individuals.
@@ -35,9 +39,17 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 
  Facebook also offers suggestions based on interests. For example, if a senior citizen is part of a group dedicated to gardening, they will get suggestions for other groups that are also about gardening. Facebook offers seniors endless opportunities to socialize both online and offline.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2. LinkedIn
 
 ![An elderly man and a younger man looking at a tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-7983582-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  LinkedIn is yet another social platform with a broad age range. It is not only popular with job-seekers, but with people wanting to find and establish connections in their industries. For seniors, the platform can provide a lot of stimulation because of its useful content.
 
@@ -47,17 +59,10 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 
  LinkedIn is also a place where companies, businesses, and industries advertise their online and offline events. For seniors who want to stay professionally connected and who want to hone their skills and enlarge their network, LinkedIn is a perfect platform for doing that.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## 3. WhatsApp
 
 ![Woman using laptop and holding a coffee cup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-marcus-aurelius-6787904.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  WhatsApp is an excellent way to stay connected with friends and family via instant messaging. It is readily accessible and has a ton of benefits. By encouraging people to build networks, its [users can also create WhatsApp communities](https://www.makeuseof.com/how-to-create-whatsapp-community/) .
 
  For seniors, the communities feature on WhatsApp makes it easy for them to put related groups into one folder. When optimizing their communities, they can manage their groups from one space, as well as keep their chats focused. For example, their work-related communities can be grouped, and their family-related communities can also be grouped.
@@ -67,31 +72,27 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
  Another feature of WhatsApp is that it allows people to also share their location, and enables both audio and video calling at the tap of a button. Document sharing is also easy, as well as sending out photos and videos.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. YouTube
 
 ![Elderly man watching something on the tablet with headphones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-tima-miroshnichenko-5708716.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
  The amount of footage on YouTube is enormous. The platform can keep seniors stimulated for hours. They can watch, like, share, and comment on anything they interact with. Not only that, they can search for topics that are interesting and important to them.
 
  YouTube also provides a lot of classic movies for free. Seniors can search for their favorite music, documentaries of any topic, news channels, entertainment, educational videos, as well as useful "how to" videos for any problem they encounter in their lives.
 
  There are recipes for just about any dish, DIY and decorating channels, as well as exercise and health videos for active seniors. For especially tech-savvy seniors, they can also make their own channel and upload their own videos if they have some interesting content to share.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5. Blogger
 
 ![elderly woman using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-anna-shvets-5257246.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  There's no doubt that seniors have a lot of stories to tell. Some stories are rich in historical detail that only they can recall, and other stories can be as simple as sharing something about their day. For seniors who have considered writing about their lives, starting a blog through a platform like Blogger, is an excellent first step.
 
  Platforms like Blogger allow seniors to start journaling. For seniors looking to start a blog offering their expert advice about something, the platform also fulfills its purpose. Whether they're looking to reflect on their lives, or start a recipe blog, getting on the platform gives them the exposure they need.
@@ -104,14 +105,11 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 
  These days, with the internet at the tip of our fingertips, seniors don't need to live isolated lives. Whether they're of retirement age or are no longer getting the social interactions they crave, using social media can help them feel like they're still as active as ever.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,8 +118,21 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2023s-undisclosed-video-download-tools-1-8-rankings-for-2024/"><u>[New] 2023'S Undisclosed Video Download Tools #1-8 Rankings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-pro-tips-for-crafting-and-sharing-content-on-reddit/"><u>[New] 2024 Approved Pro Tips for Crafting & Sharing Content on Reddit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unveiling-the-power-of-video-enhancer-22-for-professionals/"><u>[Updated] 2024 Approved Unveiling the Power of Video Enhancer 2.2 for Professionals</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/3-ways-to-redeem-digital-codes-for-your-xbox/"><u>3 Ways to Redeem Digital Codes for Your Xbox</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-honor-80-pro-straight-screen-edition-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Honor 80 Pro Straight Screen Edition PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cted-non-existence-of-shorts-on-feeds/"><u>Corrected Non-Existence of Shorts on Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-fb-tracking-with-off-facebook-activity-controls/"><u>Eliminate FB Tracking with Off-Facebook Activity Controls</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimizing-constant-calculator-positioning-on-pcs/"><u>Optimizing Constant Calculator Positioning on PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/regulating-visibility-of-facebook-interactions/"><u>Regulating Visibility of Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-goodbye-to-digital-distractions-with-these-reasons/"><u>Say Goodbye to Digital Distractions with These Reasons</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scope-expansion-locating-page-and-profile-links-on-fb/"><u>Social Scope Expansion: Locating Page and Profile Links on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-reaccess-facebook-without-original-codes/"><u>Strategies to Reaccess Facebook Without Original Codes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-professionals-guide-to-innovative-360-cams-2023/"><u>The Professionals’ Guide to Innovative 360° Cams, 2023</u></a></li>
+</ul></div>
 

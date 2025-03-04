@@ -1,7 +1,7 @@
 ---
 title: Clearing Up Conversation Clutter in Facebook
-date: 2024-08-15T18:42:14.027Z
-updated: 2024-08-16T18:42:14.027Z
+date: 2025-02-07T18:45:40.798Z
+updated: 2025-02-15T09:22:03.349Z
 tags:
   - facebook
 categories:
@@ -24,8 +24,9 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
  When you remove such comments, Facebook does not send notifications to the person who commented. However, they may notice their comments have been deleted when viewing the post.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Delete a Comment on Your Facebook Post
 
  Deleting an offensive comment is simply a few clicks away. Just follow the steps below on how you can delete them, whether you're accessing Facebook on a PC or through the mobile app.
@@ -35,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
 Here's how to remove comments using a PC:
 
 ![screenshot showing how to delete comment on facebook desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-desktop-1.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Navigate to the upsetting comment, and hover your cursor over the comment. You'll see three dots next to the comment.
@@ -45,20 +47,23 @@ Here's how to remove comments using a PC:
 4. Click on**Delete,** and the comment is deleted.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Delete a Comment on a Mobile App
 
  The process slightly differs on a Facebook mobile app. Follow these steps to delete a comment under your post directly from your mobile app.
 
 ![screenshot showing how to delete comment on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-mobile.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -69,23 +74,17 @@ Close
 
  Related:[What Happens to Your Data if Facebook Ever Dies?](https://www.makeuseof.com/what-happens-to-facebook-data-if-it-dies/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Get Rid of Negative Comments on Your Posts
 
  You can't always control what comments people drop on your Facebook posts. However, Facebook empowers you to delete the comments you find offensive.
 
  If you have any such comments on your Facebook posts, follow the steps we've shared above to remove the comment.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,6 +93,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-samsungs-competitors-top-gear-360-alternative-cameras-of-the-year/"><u>[New] In 2024, Samsung’s Competitors Top Gear 360 Alternative Cameras of the Year</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-installation-instructions-for-snapchat-on-a-mac-for-2024/"><u>[Updated] Installation Instructions for Snapchat on a Mac for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-videos-not-playing-10-ways-to-fix-it/"><u>Facebook Videos Not Playing? 10 Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-facebook-image-techniques-for-personal-brands/"><u>Innovative Facebook Image Techniques for Personal Brands</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-scandal-an-insight-into-facebook-disclosures/"><u>Inside the Scandal: An Insight Into Facebook Disclosures</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-second-hand-mac-shopping-essential-strategies-to-dodge-scams-and-snag-top-deals/"><u>Mastering Second-Hand Mac Shopping: Essential Strategies to Dodge Scams & Snag Top Deals</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-the-solution-overcoming-a-catastrophic-fatal-ark-error/"><u>Mastering the Solution: Overcoming a Catastrophic Fatal ARK Error</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571032-9781449724672-moving-meditation/"><u>Moving Meditation | Free Book</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/resolving-computer-freezes-when-playing-stardew-valley/"><u>Resolving Computer Freezes When Playing Stardew Valley</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-an-avatar-on-your-facebook-profile-picture/"><u>Step-by-Step: An Avatar on Your Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emerging-world-of-virtual-socializing-why-worry/"><u>The Emerging World of Virtual Socializing - Why Worry?</u></a></li>
+</ul></div>
 

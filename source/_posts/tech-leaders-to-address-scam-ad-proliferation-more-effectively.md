@@ -1,7 +1,7 @@
 ---
 title: Tech Leaders to Address Scam Ad Proliferation More Effectively
-date: 2025-01-27T17:50:42.602Z
-updated: 2025-02-01T00:54:07.511Z
+date: 2025-02-09T19:47:23.303Z
+updated: 2025-02-14T19:39:44.192Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,19 +79,22 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-mastering-identity-change-on-google-meet-via-pc-and-phone-for-2024/"><u>[New] Mastering Identity Change on Google Meet via PC & Phone for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-enhance-your-iphones-photography-top-rated-film-and-shot-accessories/"><u>[Updated] Enhance Your iPhone's Photography Top-Rated Film & Shot Accessories</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-taking-command-of-zoom-breakout-sessions/"><u>[Updated] Taking Command of Zoom Breakout Sessions</u></a></li>
-<li><a href="https://win-great.techidaily.com/1-expert-aomei-data-restoration-solutions-your-trusted-source-for-secure-file-retrieval/"><u>1. Expert AOMEI Data Restoration Solutions - Your Trusted Source for Secure File Retrieval</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/assassins-vikings-and-empire-domination-the-ultimate-review-of-assassins-creed-valhalla/"><u>Assassins, Vikings, and Empire Domination: The Ultimate Review of Assassin's Creed: Valhalla</u></a></li>
-<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-infinix-zero-5g-2023-turbo-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Infinix Zero 5G 2023 Turbo to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-facebooks-home-smart-hub/"><u>Maximizing Facebook's Home Smart Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/recovering-an-invalidated-facebook-login-attempt/"><u>Recovering an Invalidated Facebook Login Attempt</u></a></li>
-<li><a href="https://games-able.techidaily.com/resolving-issues-with-microsoft-controllers-on-pcs/"><u>Resolving Issues with Microsoft Controllers on PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-login-simplified-instagram-to-whatsapp-2fa-codes/"><u>Secure Login Simplified: Instagram to WhatsApp 2FA Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-your-sound-experience-spotify-on-facebook-tips/"><u>Streamline Your Sound Experience: Spotify on Facebook Tips</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-honor-magic-5-lite-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Honor Magic 5 Lite Phone Pattern Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-suggested-for-you-content-on-facebook-and-why-cant-you-disable-it/"><u>What Is “Suggested for You” Content on Facebook, and Why Can’t You Disable It?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-ultimate-memes-edit-master/"><u>[New] 2024 Approved Ultimate Memes Edit Master</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-bring-your-photos-to-life-adding-radial-focus-effects-ps-for-2024/"><u>[New] Bring Your Photos to Life Adding Radial Focus Effects PS for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cognitive-cornerstones-essential-educational-content-yt-for-2024/"><u>[New] Cognitive Cornerstones Essential Educational Content YT for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-invisible-viewers-of-fb-episodes-for-2024/"><u>[New] Invisible Viewers of Fb Episodes for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-four-k-faceoff-sj6-legend-versus-xiaomis-yi-prototype/"><u>[Updated] Four-K Faceoff SJ6 Legend Versus Xiaomi's Yi Prototype</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-iphone-8-plus-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to iPhone 8 Plus Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-default-public-tags-everyone/"><u>How To Turn Off Default Public Tags (@Everyone)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-rhythms-of-romance-most-beloved-ballads-for-engagement/"><u>In 2024, Rhythms of Romance Most Beloved Ballads for Engagement</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-transforming-unboxing-into-art/"><u>In 2024, Transforming Unboxing Into Art</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-untagging-from-facebook-pics/"><u>Mastering Untagging From Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-tactic-purging-your-fb-search-logs/"><u>Privacy Tactic: Purging Your FB Search Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscover-the-social-network-guided-password-recovery-on-fb/"><u>Rediscover the Social Network - Guided Password Recovery on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/scouring-cyberspace-advanced-tactics-for-finding-emerging-communities/"><u>Scouring Cyberspace: Advanced Tactics for Finding Emerging Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-childs-digital-domain-on-facebook/"><u>Securing Your Child's Digital Domain on Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-offscreen-enigma-solving-xboxs-social-puzzle/"><u>The Offscreen Enigma: Solving Xbox's Social Puzzle</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-governments-targeting-techs-colossal-entities/"><u>Why Are Governments Targeting Tech's Colossal Entities?</u></a></li>
 </ul></div>
 

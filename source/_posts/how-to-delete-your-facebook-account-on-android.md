@@ -1,7 +1,7 @@
 ---
 title: How to Delete Your Facebook Account on Android
-date: 2024-10-12T19:13:34.308Z
-updated: 2024-10-15T11:42:30.742Z
+date: 2025-02-11T09:34:15.290Z
+updated: 2025-02-14T17:33:23.914Z
 tags:
   - facebook
 categories:
@@ -34,13 +34,6 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
  On the other hand, account deletion is when you wish to leave Facebook for good. Instead of undergoing the painful process of[deleting your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) and other data, account deletion does that in a single step. But, if you change your mind later and wish to come back, you'll have to create a new account. Plus, if you run a page as the sole administrator, it will also be deleted.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What to Do Before Deleting Your Facebook Account
 
  Deleting your Facebook account will purge your profile from the company's servers for good. With that in mind, you need to do several things first before tapping that Delete button. The first thing you should do is download your data.
@@ -56,16 +49,13 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 ![Facebook Android menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Android-menu-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook Settings and Privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Settings-Android.jpg)
 
 ![Permissions section in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Permissions-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -83,22 +73,12 @@ Close
 ![Facebook Settings and privacy page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-settings-and-privacy-page-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Personal account information page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Personal-account-information-facebook-android.jpg)
 
 ![Account deactivation and deletion options on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/account-ownership-and-control-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -111,16 +91,17 @@ Close
 
 ![Facebook account deletion and deactivation page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Delete-facebook-account-selected-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Account deletion page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-account-deletion-page-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook account deletion confirmation on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-android-account-deletion-confirmation.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -129,6 +110,10 @@ Close
  Don't log in for the next 30 days if you're done with Facebook. Despite that, Facebook says it can take up to 90 days from the start of the deletion process to delete all the information you've shared permanently. However, don't fret; your information will not be accessible to other users during the entire process.
 
  Once you've deleted your Facebook account, the next step is to uninstall the app. Here's a step-by-step guide on[how to remove unwanted Android apps](https://www.makeuseof.com/tag/remove-unwanted-apps-android-device/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deactivate Your Facebook Account on Android
 
@@ -145,14 +130,11 @@ Close
 
 ![Key reasons for deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-reasons.jpg)
 
-![Final step in deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-android.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Final step in deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-android.jpg)
 
 Close
 
@@ -179,16 +161,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-breakdown-of-vivacuts-new-tools-and-features/"><u>[Updated] Step-by-Step Breakdown of VivaCut's New Tools and Features</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1-free-online-converter-change-webm-files-to-swf-format-with-ease-movavi/"><u>1. Free Online Converter: Change WebM Files to SWF Format with Ease - Movavi</u></a></li>
-<li><a href="https://games-able.techidaily.com/hush-the-controller-shakes-on-xbox-s/"><u>Hush the Controller Shakes on Xbox S</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-you-cast-your-apple-iphone-6-plus-to-windows-pc-with-ease-drfone-by-drfone-ios/"><u>In 2024, How Can You Cast Your Apple iPhone 6 Plus to Windows PC With Ease? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-ar-a-modern-illusionists-toolkit/"><u>In 2024, Unveiling AR A Modern Illusionist's Toolkit</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionized-a-seamless-social-media-feed-customization/"><u>Revolutionized: A Seamless Social Media Feed Customization</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-role-of-sleep-mode-in-enhancing-the-user-experience-on-messenger-kids/"><u>The Role of Sleep Mode in Enhancing the User Experience on Messenger Kids</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-resolving-issues-when-minecraft-wont-launch/"><u>Troubleshooting Guide: Resolving Issues When Minecraft Won't Launch</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-tutorial-for-downloading-wm6/"><u>Ultimate Tutorial for Downloading WM6</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-network-ties-discovering-group-links-on-fb/"><u>Uncovering Network Ties: Discovering Group Links on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/upcoming-guidance-teenagers-time-away-from-instagram/"><u>Upcoming Guidance: Teenagers' Time Away From Instagram?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crystal-clear-capture-amping-up-your-home-studio-recordings/"><u>[Updated] 2024 Approved Crystal Clear Capture Amping Up Your Home Studio Recordings</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-experts-take-on-magix-video-pro-x/"><u>[Updated] 2024 Approved Expert's Take on Magix Video Pro X</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-countries-where-you-cant-use-facebook/"><u>3 Countries Where You Can't Use Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-protection-in-mail-applications-implementing-robust-2fa-systems/"><u>Boosting Protection in Mail Applications - Implementing Robust 2FA Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-time-unveiling-instagrams-plea-for-digital-detox/"><u>Break Time: Unveiling Instagram's Plea for Digital Detox</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/customize-desktop-space-adding-personalized-weather-symbols-on-taskbar-in-windows-11/"><u>Customize Desktop Space: Adding Personalized Weather Symbols on Taskbar in Windows 11</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dragon-quest-xi-crash-woes-heres-the-solution/"><u>Dragon Quest XI Crash Woes? Here's the Solution</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/eliminating-persistent-pop-up-alerts-during-application-use-a-guide-by-yl-computing/"><u>Eliminating Persistent Pop-Up Alerts During Application Use: A Guide by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-engagement-in-social-networking-with-ripl/"><u>Enhancing Engagement in Social Networking With Ripl</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-deskjet-2600-windows-drivers-compatible-versions-for-os-7-8-and-10/"><u>HP DeskJet 2600 Windows Drivers: Compatible Versions for OS 7, 8 & 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-copyright-after-sharing-a-selfie/"><u>Navigating Copyright After Sharing a Selfie</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-maze-of-public-television-download/"><u>Navigating the Maze of Public Television Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-personal-info-tracking-unauthorized-use/"><u>Protect Personal Info: Tracking Unauthorized Use</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722965620214-quick-guide-how-to-seamlessly-upgrade-and-install-amd-radeon-rx-480-gpu-drivers/"><u>Quick Guide: How to Seamlessly Upgrade and Install AMD Radeon RX 480 GPU Drivers!</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-sphere-oversight-with-facebooks-modern-moderators/"><u>Strategic Social Sphere Oversight with Facebook's Modern Moderators</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152117996-will-the-verdict-fall-soon-facebooks-governance-on-trump-ban/"><u>Will the Verdict Fall Soon? Facebook's Governance on Trump Ban.</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-vs-dailymention-identifying-key-variations-for-2024/"><u>YouTube Vs. DailyMention Identifying Key Variations for 2024</u></a></li>
 </ul></div>
 

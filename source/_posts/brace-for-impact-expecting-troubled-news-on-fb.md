@@ -1,7 +1,7 @@
 ---
 title: "Brace for Impact: Expecting Troubled News on FB"
-date: 2024-08-15T18:44:01.619Z
-updated: 2024-08-16T18:44:01.619Z
+date: 2025-02-12T13:07:46.597Z
+updated: 2025-02-14T22:28:12.654Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d47941553c96756e0922bd70e1fb7654903727793
 
  But why is Facebook bracing itself for bad headlines? Read on to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## More Bad Headlines for Facebook
 
  Facebook has had a tough few months, and has been taking several blows in the media all year. For instance, Facebook has received backlash for announcing plans to launch an Instagram app for kids, and has been grilled by US Congress.
@@ -27,15 +31,16 @@ thumbnail: https://thmb.techidaily.com/d47941553c96756e0922bd70e1fb7654903727793
 
 ![facebook logo on a multicolored pastel background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-on-a-multicolored-pastel-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
  And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Who Is the Facebook Whistleblower?
 
  The Facebook whistleblower is Frances Haugen, a 37-year-old woman and data scientist from Iowa. Haugen was a product manager on the Civic Integrity team at Facebook. Before joining Facebook, she worked for big tech companies like Google and Pinterest for nearly two decades.
@@ -49,13 +54,15 @@ thumbnail: https://thmb.techidaily.com/d47941553c96756e0922bd70e1fb7654903727793
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Facebook Consortium?
 
 ![A visual showing manager instructing resources](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Asana-Reporting-Resource-Management.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Facebook Consortium is a group of reporters tasked with releasing information from copies of leaked documents from Haugen. These include publications like the Associated Press, The New York Times, The Washington Post, and CNN. A few European outlets are also included.
@@ -67,22 +74,20 @@ thumbnail: https://thmb.techidaily.com/d47941553c96756e0922bd70e1fb7654903727793
  However, that plan fell apart when some outlets contacted Facebook shortly after receiving the documents on October 10, 2021, after which the rest of the news outlets—including The New York Times, CNN, NBC News, and Bloomberg—started publishing their stories.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can Facebook Overcome This Storm?
 
  Facebook has had a lot of negative press in recent months. While it has had some challenges over the years, the challenges Facebook now faces are quite serious.
 
  Facebook will probably overcome this current scandal, but its goodwill may be tarnished in the process, given the sensitivity and seriousness of the documents shared by Haugen. However, as to how much damage it will do to Facebook overall, only time will tell.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,6 +96,24 @@ thumbnail: https://thmb.techidaily.com/d47941553c96756e0922bd70e1fb7654903727793
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-chatcam-downloader-high-quality/"><u>[New] In 2024, ChatCam Downloader, High Quality</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-zap-extra-details-sharpen-logitech-webcam-recordings/"><u>[Updated] 2024 Approved Zap Extra Details - Sharpen Logitech Webcam Recordings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-heres-what-you-dont-know-about-instagram-story-viewer-for-2024/"><u>[Updated] Here's What You Don't Know About Instagram Story Viewer for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/cloud-focused-firms-meet-aristas-latest-innovations-in-routing-technology-zdnet-updates/"><u>Cloud-Focused Firms, Meet Arista's Latest Innovations in Routing Technology | ZDNET Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/encouraging-insightful-dialogue-facebooks-experimental-prompt/"><u>Encouraging Insightful Dialogue: Facebook's Experimental Prompt</u></a></li>
+<li><a href="https://facebook.techidaily.com/hiding-like-counts-the-new-facebook-and-instagram-trend/"><u>Hiding Like Counts: The New Facebook & Instagram Trend</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/mastering-screen-record-on-windows-10-devices/"><u>Mastering Screen Record on Windows 10 Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tip-recent-fb-video-discovery/"><u>Quick Tip: Recent FB Video Discovery</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-fixing-the-steam-content-file-blocked-issue/"><u>Resolved: Fixing the 'Steam Content File Blocked' Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/seven-myths-about-the-metaverse-fact-checked/"><u>Seven Myths About the Metaverse, Fact-Checked</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-journey-leadership-at-facebook/"><u>Sheryl's Journey: Leadership at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-anatomy-revealed-through-facebooks-openness-portal/"><u>Social Network Anatomy Revealed Through Facebook's Openness Portal</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-to-safeguarding-your-data-with-dynamic-disks-on-windows-versions/"><u>Step-by-Step Guide to Safeguarding Your Data with Dynamic Disks on Windows Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-method-to-delete-a-fb-group/"><u>The Step-by-Step Method to Delete a FB Group</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-9-essential-tiff-viewer-programs-compatible-with-online-windows-and-mobile-devices/"><u>Top 9 Essential TIFF Viewer Programs Compatible with Online, Windows, and Mobile Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unleash-your-broadcast-potential-with-manycams-advanced-video-editing-tools-and-virtual-camera-tech/"><u>Unleash Your Broadcast Potential with ManyCam's Advanced Video Editing Tools and Virtual Camera Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-shifted-semantics-in-facebooks-changed-page-labels/"><u>Unraveling the Shifted Semantics in Facebook's Changed Page Labels</u></a></li>
+</ul></div>
 

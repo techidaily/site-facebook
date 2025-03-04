@@ -1,7 +1,7 @@
 ---
 title: 8 Life Hacks to Break Your Screen Addiction Habit
-date: 2024-08-23T02:06:33.631Z
-updated: 2024-08-24T02:06:33.631Z
+date: 2025-02-10T00:11:55.221Z
+updated: 2025-02-15T01:07:30.426Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
 
  Let's discuss the benefits of taking a little social media detox.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. It Lets You Embark on a Journey of Mindfulness
 
  The [effects of technology on our mental health](https://www.makeuseof.com/tech-effects-on-mental-health/) are undeniable. People who completely depend on social media for entertainment or to eliminate loneliness from their lives suffer from more compromised mental health in comparison to those who don't.
@@ -33,13 +37,14 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
 
  Also, looking at others and comparing them with your life is a stressful experience for some people. When you stop using social media for a while, it improves your health and peace of mind.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Releases Stress
 
 ![A stressed out man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/A-stressed-out-man.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Stress from social media might come from various sources. The fear of missing out on the news, not getting enough reach on a post, and not getting your opinion respected and liked are some stress-inducing reasons.
 
  Taking a break from social media is the most tested cure for these stresses. The only solution is to just leave your socials for a while and use [apps that improve mental health](https://www.makeuseof.com/best-apps-to-improve-mental-health-iphone-android/) .
@@ -50,19 +55,24 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
 
 ![man standing on top of a mountain](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Man-exploring-nature.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you are among those who prefer using a phone instead of going for outdoor activities, it's time to put your phone aside for some time. Instead of scrolling aimlessly through Twitter or Instagram, go for a walk.
 
  Go hiking, swimming, walking along the beach, jogging in the park, or sitting in the sun with friends and having drinks. Gardening is also considered a good way to pass the time by most people.
 
  This is just a concept. You do not need to [erase your social media presence](https://www.makeuseof.com/tag/delete-social-media/) to appreciate nature. Take time out of your routine to appreciate the world we are living in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Say Goodbye to Anxiety Brought On by the Fear of Missing Out
 
 ![Woman sad and sitting on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Woman-sad-and-sitting-on-a-beach.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Fear of missing out (FOMO) is a familiar feeling while scrolling through any social media platform. We tend to forget the golden rule of social media: everything is not as it seems.
 
  Who knows, maybe a person shopping from luxury brands and posting it on social media isn't as happy as he or she seems.
@@ -71,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
 
  Comparing ourselves to others often leads to depression and anxiety disorders, making us insecure. A limited social media user has healthier traits than a person with intense usage.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Improved Brain Functioning
 
  People who use too much social media have the brain functionality of an addicted person. You may notice that getting more than expected likes and sharing gorgeous pictures or attention releases feelings of happiness. This feeling of pleasure is a dopamine release.
@@ -84,16 +91,10 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
 
  So, by reducing your time on social apps, you can get plenty of physical and mental health benefits.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Spend Quality Time With Your Loved Ones
 
 ![Spending quality time](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Spending-quality-time-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Spending time with family and friends should be a priority for everyone. Social media has made some people oblivious that the nearest family is supposed to come first, then the friends in real life, and then online friends.
 
  Take a break from the online world to avoid this critical yet common mistake. Spend time with family and check up on your friends. Take the spare time to party with the neighbors and show affection to your pets. Moments like these are never forgotten and often create bonds that are never broken.
@@ -101,12 +102,9 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
  Also, it's a good idea to teach your kids the [negative effects of social media](https://www.makeuseof.com/tag/negative-effects-social-media/) and that there is more to life than scrolling social media in the bedroom.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. More Time to Do Something Productive
 
  Spending less time online mostly results in productivity. Higher efficiency in studies, better results in work, and more time to take care of other matters are some of the positive effects of spending less time on social media.
@@ -119,14 +117,11 @@ No advertising on the website.
 
  Take back control of your life, for it is too important to waste away. Use less social media and focus on something productive that leads to long-term physical and mental health benefits.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,8 +130,23 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-basic-framework-for-crafting-persuasive-social-media-messages/"><u>[New] Basic Framework for Crafting Persuasive Social Media Messages</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aking-yt-thumbnails-pop-a-mac-centric-approach/"><u>[New] Making YT Thumbnails Pop A Mac-Centric Approach</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-filmmakers-handbook-secrets-to-stellar-youtube-video-production/"><u>[Updated] 2024 Approved The Filmmaker's Handbook Secrets to Stellar YouTube Video Production</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-youtube-masterpieces-with-powerful-hashtag-strategies-for-2024/"><u>[Updated] Crafting YouTube Masterpieces with Powerful Hashtag Strategies for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1-seamless-free-screen-capture-tool-perfect-mac-companion-for-uninterrupted-live-broadcasting/"><u>1. Seamless Free Screen Capture Tool: Perfect Mac Companion for Uninterrupted Live Broadcasting</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbs-ethical-stewardship-board/"><u>Exploring FB's Ethical Stewardship Board</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-yourself-lost-facebook-posts-against-all-odds/"><u>How to Find Yourself Lost Facebook Posts Against All Odds</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-hearing-trumps-facebook-prohibition/"><u>January Hearing: Trump's Facebook Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-credible-communities-with-meta-usa/"><u>Step Into Credible Communities with Meta USA</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-massive-outage-across-platforms/"><u>Tech Turmoil: Massive Outage Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-telegram-users-following-facebook-downtime/"><u>The Surge in Telegram Users Following Facebook Downtime</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-performance-with-the-asus-rt-ac68u-a-detailed-guide-to-its-5g-wi-fi-capabilities/"><u>Top Performance with the Asus RT-AC68U: A Detailed Guide to Its 5G Wi-Fi Capabilities</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-future-of-tech-comprehensive-gadget-and-hardware-analysis-by-toms-team/"><u>Unveiling the Future of Tech: Comprehensive Gadget and Hardware Analysis by Tom's Team</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-is-not-planning-to-follow-facebook-into-the-metaverse/"><u>Why Apple Is Not Planning to Follow Facebook Into the Metaverse</u></a></li>
+</ul></div>
 

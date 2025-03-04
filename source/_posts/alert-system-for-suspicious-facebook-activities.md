@@ -1,7 +1,7 @@
 ---
 title: Alert System for Suspicious Facebook Activities
-date: 2024-08-23T02:05:54.725Z
-updated: 2024-08-24T02:05:54.725Z
+date: 2025-02-08T19:59:25.105Z
+updated: 2025-02-14T19:52:41.061Z
 tags:
   - facebook
 categories:
@@ -37,13 +37,14 @@ thumbnail: https://thmb.techidaily.com/9105fef2820e9cb0cafb243a0fa4a6bdd2cfafcad
 
  Look for any devices you don't use or haven't recently used to sign in to Facebook. Also look for devices from locations you don't recognize.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Do if Someone Is Accessing Your Facebook Account
 
  If you suspect your Facebook account has been breached, you must remove the suspicious device's access. Then you should change your password and set up two-factor authentication (2FA) for an added layer of security. You can also set up alerts for unrecognized logins and log out of all devices.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Remove Device Access to Facebook
 
  If you see something that looks suspicious, you can use this list to revoke that device's access. Keep in mind that some IP address glitches might occasionally see one of your legitimate devices pop up in an unrecognized location. Using a VPN set to a server in a different location will do this, too. These cases are safe to ignore.
@@ -71,13 +72,13 @@ To revoke device access on your Facebook account:
 ![Change password form on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/change-password-form-on-facebook-for-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Set Up Two-Factor Authentication (2FA)
 
  Changing your password is only half the story. You should also consider setting up 2FA. 2FA can use either a text message, a security key, or an authentication app.
@@ -92,8 +93,9 @@ To turn on 2FA on Facebook:
 ![Re-entering password to enable two-factor authentication on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/re-entering-password-to-enable-two-factor-authentication-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Set Up Alerts for Unrecognized Logins
 
  You should also set up alerts for unrecognized logins. By enabling the feature, Facebook will notify you if it sees a login from a suspicious source. It will allow you to react more quickly in the event of a breach.
@@ -106,9 +108,6 @@ To set up the feature:
 
 ![setting up login alerts on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/setting-up-login-alerts-on-facebook-for-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Log Out of All Devices
 
  This final step logs you out of all devices except for the one you're currently using.
@@ -119,6 +118,10 @@ To set up the feature:
 4. Now click**Select all** in the top-right corner of the list and click the **Log out** button.
 
 ![Logging out of all devices on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/logging-out-of-all-devices-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Has Your Facebook Account Been Breached?
 
@@ -131,24 +134,17 @@ Let's quickly summarize what we have learned:
 
  Unauthorized access to your account can also put your other social media profiles at risk, or allow the hacker to send malware to your friends. Make sure to resolve it as soon as possible.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## Be Wary Around the Web
 
  Facebook is far from being the only service that has the potential to leave your life in ruins if someone gets unauthorized access to it. To stay safe on the web, ensure you follow basic security principles.
 
  For example, don't use the same password on two different sites, use 2FA where available, and don't access highly sensitive data on either public computers or public Wi-Fi networks. Always use a VPN, especially when using a public Wi-Fi network.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,8 +153,19 @@ Let's quickly summarize what we have learned:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-enhancing-stories-through-animations-with-movie-maker-for-2024/"><u>[New] Enhancing Stories Through Animations with Movie Maker for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-add-emojis-on-youtube-comments/"><u>[Updated] 2024 Approved How to Add Emojis on YouTube Comments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-gamers-blueprint-for-a-booming-youtube-channel/"><u>[Updated] The Gamer's Blueprint for a Booming YouTube Channel</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlocking-untapped-utility-zoom-in-on-minecraft/"><u>[Updated] Unlocking Untapped Utility Zoom in on Minecraft</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dissecting-the-newest-elite-model-of-parrots-20/"><u>Dissecting the Newest Elite Model of Parrot's 2.0</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-chat-on-the-horizon-for-facebook-users/"><u>Enhanced Chat on the Horizon for Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes.</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-dell-graphics-and-sound-card-drivers-optimized-for-windows/"><u>Get the Newest Dell Graphics and Sound Card Drivers Optimized for Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-polls-on-facebook-stories-and-pages-effectively/"><u>Initiating Polls on Facebook Stories and Pages Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-web-searches-post-fbcta-implementation/"><u>Navigating Web Searches Post-FBCTA Implementation</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-anonymity-avoid-risky-privacy-apps/"><u>Preserve Your Anonymity: Avoid Risky Privacy Apps</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solutions-for-resolving-dll-file-not-found-or-missing-error-messages/"><u>Solutions for Resolving 'DLL File Not Found' Or Missing Error Messages</u></a></li>
+</ul></div>
 

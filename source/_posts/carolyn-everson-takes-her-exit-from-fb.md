@@ -1,7 +1,7 @@
 ---
 title: Carolyn Everson Takes Her Exit From FB
-date: 2024-08-15T18:45:07.205Z
-updated: 2024-08-16T18:45:07.205Z
+date: 2025-02-07T21:09:51.951Z
+updated: 2025-02-15T06:40:03.475Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/f5d1594082aca6452dbc25a49388a37fc7e84721f
 
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Loses Its Top Ad Executive
 
  Carolyn Everson, now former vice president of Facebook's Global Business Group, has [posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/f5d1594082aca6452dbc25a49388a37fc7e84721f
  "I am extremely proud of what we set out to accomplish but way more proud of my team and the support we showed each other, especially in difficult times," Everson writes. "I am very much looking forward to starting a new chapter."
 
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
@@ -44,13 +52,15 @@ thumbnail: https://thmb.techidaily.com/f5d1594082aca6452dbc25a49388a37fc7e84721f
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
@@ -59,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/f5d1594082aca6452dbc25a49388a37fc7e84721f
 
  It's a role with a lot of responsibilities, and thus, a lot of stress. We'll have to wait and see whether this'll cause any major changes to the company's operations.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,6 +82,21 @@ thumbnail: https://thmb.techidaily.com/f5d1594082aca6452dbc25a49388a37fc7e84721f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-become-a-pic-pro-the-top-10-iphonesandroid-apps-with-stickers-for-2024/"><u>[New] Become a Pic Pro The Top 10 iPhones/Android Apps with Stickers for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-portable-battery-packs-to-keep-recording-longer/"><u>[New] In 2024, Portable Battery Packs to Keep Recording Longer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-balancing-creativity-and-logic-in-gaming-videos-for-2024/"><u>[Updated] Balancing Creativity and Logic in Gaming Videos for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/achieve-excellence-in-learning-portuguese-with-top-6-approaches/"><u>Achieve Excellence in Learning Portuguese with Top 6 Approaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-restoration-after-a-social-setback/"><u>Friendship Restoration After a Social Setback</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-views-to-value-how-meta-supports-creator-monetization-through-reels/"><u>From Views to Value: How Meta Supports Creator Monetization Through Reels</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-youtube-integration-in-instagram-narratives/"><u>In 2024, YouTube Integration in Instagram Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/lawsuit-lodged-by-trump-against-tech-firms-for-censorship/"><u>Lawsuit Lodged by Trump Against Tech Firms for Censorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-nirvana-a-look-at-facebook-group-benefits/"><u>Networking Nirvana: A Look at Facebook Group Benefits</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-false-debit-alerts-on-game-console/"><u>Overcoming False Debit Alerts on Game Console</u></a></li>
+<li><a href="https://fox-that.techidaily.com/restoring-functionality-what-to-do-with-a-broken-iphone-nearness-sensor/"><u>Restoring Functionality: What to Do with a Broken iPhone Nearness Sensor</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synapse-the-cutting-edge-of-online-interaction-spaces/"><u>Social Synapse: The Cutting Edge of Online Interaction Spaces</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-converting-your-old-home-video-collection-into-digital-dvd-format/"><u>Step-by-Step Guide: Converting Your Old Home Video Collection Into Digital DVD Format</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-top-rated-free-video-storage-sites-for-online-sharing/"><u>Updated Top-Rated Free Video Storage Sites for Online Sharing</u></a></li>
+</ul></div>
 

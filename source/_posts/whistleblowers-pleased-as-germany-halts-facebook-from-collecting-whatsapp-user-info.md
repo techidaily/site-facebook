@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2025-01-24T19:20:54.155Z
-updated: 2025-02-01T09:46:59.929Z
+date: 2025-02-08T09:08:08.945Z
+updated: 2025-02-15T07:37:45.244Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,16 +81,16 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/cutting-edge-tablets-for-artists-your-guide-to-the-best-picks-of-202/"><u>Cutting-Edge Tablets for Artists: Your Guide to the Best Picks of 202</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-nubia-red-magic-8s-proplus-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Nubia Red Magic 8S Pro+</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-depth-analysis-the-powerhouse-that-is-dji-phantom-3/"><u>In-Depth Analysis The Powerhouse That Is DJI Phantom 3</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-expands-reels-with-advertising-facebook-explores-stickers/"><u>Instagram Expands Reels with Advertising, Facebook Explores Stickers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mindful-studying-foregoing-gpt-for-assistance/"><u>Mindful Studying: Foregoing GPT for Assistance</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamping-your-online-persona-with-a-new-profile-picture/"><u>Revamping Your Online Persona with a New Profile Picture</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-social-networks-identifying-fb-intrusions/"><u>Secure Your Social Networks: Identifying FB Intrusions</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-infinix-smart-7-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Infinix Smart 7 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthing-trumps-digital-history/"><u>Unearthing Trump’s Digital History</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-an-objective-iphone-13-overview/"><u>Unveiling the Pros and Cons: An Objective iPhone 13 Overview</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-world-awaits-6-compelling-reasons-for-facebooks-metaverse-journey/"><u>Virtual World Awaits: 6 Compelling Reasons for Facebook's Metaverse Journey</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unraveling-virtual-realitys-interactive-gear/"><u>[New] 2024 Approved Unraveling Virtual Reality's Interactive Gear</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-deciphering-youtubes-featured-comment-selection/"><u>[New] In 2024, Deciphering YouTube's Featured Comment Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-profile-name-vs-username-the-differences-and-what-you-should-know/"><u>Facebook Profile Name Vs. Username: The Differences and What You Should Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-10-essential-iphone-photo-layout-principles/"><u>In 2024, 10 Essential iPhone Photo Layout Principles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-selective-recommendations-for-advanced-voice-alteration-tools/"><u>In 2024, Selective Recommendations for Advanced Voice Alteration Tools</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/optimizing-data-recovery-a-guide-to-effective-backup-configurations/"><u>Optimizing Data Recovery: A Guide to Effective Backup Configurations</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-rooms-potential-additions-to-facebook-stories-panels/"><u>Reels & Rooms: Potential Additions to Facebook Stories Panels</u></a></li>
+<li><a href="https://games-able.techidaily.com/transform-your-gaming-experience-a-comprehensive-guide-for-steam-play-on-meta-quest-xbox-series-s/"><u>Transform Your Gaming Experience: A Comprehensive Guide for Steam Play on Meta Quest Xbox Series S</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ling-the-potential-of-thumbnails-in-video-marketing-for-2024/"><u>Unveiling the Potential of Thumbnails in Video Marketing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/vanishing-visibility-of-friends-on-fb/"><u>Vanishing Visibility of Friends on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-behind-metas-choice-to-wait-until-2023-for-default-encryption/"><u>What's Behind Meta's Choice to Wait Until 2023 for Default Encryption</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2025-01-29T18:11:44.651Z
-updated: 2025-02-01T09:35:40.825Z
+date: 2025-02-10T21:45:29.759Z
+updated: 2025-02-14T18:36:32.538Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
@@ -55,20 +55,20 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use Monospace Text in Messenger
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
@@ -77,12 +77,16 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -95,10 +99,6 @@ To send text in a block of code:
 5. Type three more backticks and send your text.
 
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
 
@@ -121,20 +121,21 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-view-old-stories-on-facebook-laptop-and-mobile-for-2024/"><u>[New] How to View Old Stories on Facebook? [Laptop and Mobile] for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-innovative-house-blueprints-for-snapshot-players/"><u>[New] Innovative House Blueprints for Snapshot Players</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-dancing-to-the-tune-youtubes-hottest-music-video-responses-23/"><u>[Updated] 2024 Approved Dancing to the Tune YouTube's Hottest Music Video Responses, '23</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-a-step-by-step-journey-to-pc-live-streams-master-tiktok-live-for-2024/"><u>[Updated] A Step-By-Step Journey to PC Live Streams – Master TikTok LIVE for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-master-the-art-of-fb-story-downloads-on-every-device/"><u>2024 Approved Master the Art of FB Story Downloads on Every Device</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionize-your-movie-experience-with-free-apps/"><u>2024 Approved Revolutionize Your Movie Experience with Free Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-safety-concern-data-erasure-of-facial-recognition-records/"><u>Facebook's Safety Concern: Data Erasure of Facial Recognition Records?</u></a></li>
-<li><a href="https://win-great.techidaily.com/ford-bronco-desktop-backgrounds-and-screensaver-pack-by-yl-computing-innovative-imagery-collection/"><u>Ford Bronco Desktop Backgrounds & Screensaver Pack by YL Computing: Innovative Imagery Collection</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-artists-can-now-gain-money-via-facebook-features/"><u>How Artists Can Now Gain Money via Facebook Features</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-xiaomi-redmi-note-12r-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Xiaomi Redmi Note 12R Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-collective-recognition-in-one-facebook-post/"><u>Mastering Collective Recognition in One Facebook Post</u></a></li>
-<li><a href="https://facebook.techidaily.com/restoring-facebook-access-post-phone-theft-steps-for-you/"><u>Restoring Facebook Access Post-Phone Theft: Steps for You</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplified-content-distribution-sharing-instagram-reels-on-facebook/"><u>Simplified Content Distribution: Sharing Instagram Reels on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-the-social-media-gem-in-you/"><u>Uncover the Social Media Gem in You</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-fb-security-2fa-essentials-and-usage/"><u>Unlock FB Security: 2FA Essentials and Usage</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-screen-recording-for-snapchat-stories-on-mobile-for-2024/"><u>[New] Step-by-Step Screen Recording for Snapchat Stories on Mobile for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-transforming-brands-with-language-mastery-techniques/"><u>[New] Transforming Brands with Language Mastery Techniques</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-build-a-fortified-mc-base-plan-6-10/"><u>[Updated] 2024 Approved Build a Fortified MC Base Plan #6-10</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-thrifty-fliers-list-best-drones-for-the-price-point-for-2024/"><u>[Updated] Thrifty Flier's List Best Drones for the Price Point for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-transforms-the-top-six-advantages-of-its-envisioned-metaverse/"><u>Facebook Transforms: The Top Six Advantages of Its Envisioned Metaverse</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-f34-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy F34 5G Phone?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the iPhone 12 mini Without Previous Owner?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-insta-magic-rotation-elevate-your-video-game/"><u>In 2024, Insta-Magic Rotation Elevate Your Video Game</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-motorola-moto-e13-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Motorola Moto E13 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://network-issues.techidaily.com/lenovos-lackluster-display-no-more/"><u>Lenovo's Lackluster Display No More</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policies-on-display-in-new-facebook-governance-center/"><u>Platform Policies on Display in New Facebook Governance Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserving-or-purging-managing-late-family-members-on-fb/"><u>Preserving or Purging: Managing Late Family Members on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/recognizing-teen-behavior-on-online-platforms-facebook/"><u>Recognizing Teen Behavior on Online Platforms, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-duplicate-personalities-on-social-media/"><u>Spotting Duplicate Personalities on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-altered-significance-in-facebooks-recent-pages-updates/"><u>Understanding the Altered Significance in Facebook's Recent Pages Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-future-self-edit-past-blogs/"><u>Will Future Self Edit Past Blogs?</u></a></li>
 </ul></div>
 

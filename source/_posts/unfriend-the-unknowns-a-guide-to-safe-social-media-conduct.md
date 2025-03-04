@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2025-01-31T06:32:46.444Z
-updated: 2025-01-31T18:30:16.359Z
+date: 2025-02-12T00:50:17.016Z
+updated: 2025-02-14T20:28:42.330Z
 tags:
   - facebook
 categories:
@@ -27,12 +27,16 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
 
@@ -40,16 +44,12 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Impairment of the Privacy of Your Friends
 
 ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Accepting requests from strangers not just gives them access to your content but also to specific information about your friends. Consider a situation where you and your friends tag each other in pictures, check-ins, and stories.
 
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Access to Harmful Links
 
@@ -82,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
  People who talk to strangers can suffer from isolation, meaning they are glued to the screen all day instead of meeting new people. Addiction to online socialization reduces your confidence level and willingness to maintain good physical and mental health.
@@ -99,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
 
@@ -124,10 +128,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
  Facebook is the most popular platform of all time. It allows you to interact with others and make friends online. Sometimes, interacting with strangers and adding them to your profile might not be as good as it sounds. Other than getting your personal space invaded, there is also a possibility of getting scammed.
@@ -149,18 +149,18 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-diving-deep-reviewing-your-old-tweets/"><u>[New] Diving Deep Reviewing Your Old Tweets</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-harness-the-power-of-editing-for-fashion-hauls/"><u>[New] In 2024, Harness the Power of Editing for Fashion Hauls</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-high-quality-audio-excellence-with-these-mics/"><u>2024 Approved High-Quality Audio Excellence with These Mics</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-realme-narzo-n53-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Realme Narzo N53</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intels-new-dual-p-core-310-still-thriving-in-the-world-of-processors/"><u>Intel's New Dual-P Core 310: Still Thriving in the World of Processors</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-implications-the-aftermath-of-facial-id-removal-on-social-media/"><u>Privacy Implications: The Aftermath of Facial ID Removal on Social Media</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/quickstart-guide-making-videography-easier-with-pixiz/"><u>Quickstart Guide Making Videography Easier with Pixiz</u></a></li>
-<li><a href="https://facebook.techidaily.com/saturation-point-is-facebook-there-now/"><u>Saturation Point – Is Facebook There Now?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-stitching-piecing-together-profile-and-group-links/"><u>Social Stitching: Piecing Together Profile & Group Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-invisible-networker-eliminating-public-view-of-fb-stories/"><u>The Invisible Networker: Eliminating Public View of Fb Stories</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-10-desired-features-for-the-next-visionos-update-hopes-for-apples-wwdc-reveal/"><u>Top 10 Desired Features for the Next VisionOS Update - Hopes for Apple's WWDC Reveal</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-power-dynamics-between-metaai-and-bots/"><u>Unraveling the Power Dynamics Between MetaAI and Bots</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-pauses-policy-change-rollout-beyond-may-15/"><u>WhatsApp Pauses Policy Change Rollout Beyond May 15</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-5-best-live-stream-video-conference-recorders-for-2024/"><u>[New] Top 5 Best Live Stream Video Conference Recorders for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/achieve-smoother-gameplay-how-to-cut-down-on-delays-and-up-your-frame-rates-in-fall-guys/"><u>Achieve Smoother Gameplay: How to Cut Down on Delays and Up Your Frame Rates in Fall Guys</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/confident-data-retrieval-for-iphones-a-safe-path-to-recovering-lost-memories/"><u>Confident Data Retrieval for iPhones: A Safe Path to Recovering Lost Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-your-facebook-search-history/"><u>How to Clear Your Facebook Search History</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-retire-your-facebook-business-profile-without-astonishment/"><u>How to Retire Your Facebook Business Profile Without Astonishment</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-samsung-galaxy-a15-4g-easily-by-drfone-android/"><u>How To Unlock a Samsung Galaxy A15 4G Easily?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-oppo-k11x-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Oppo K11x FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-dangerous-trade-tide-scam-spotting-and-safeguarding-tips-for-facebook/"><u>Navigating the Dangerous Trade Tide – Scam Spotting & Safeguarding Tips for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-new-journey-begins-with-launch-of-go-model/"><u>Portal’s New Journey Begins with Launch of Go Model</u></a></li>
+<li><a href="https://win-guides.techidaily.com/securing-your-data-a-step-by-step-guide-to-password-protecting-files-and-folders-in-windows-by-yl-computing/"><u>Securing Your Data: A Step-by-Step Guide to Password-Protecting Files & Folders in Windows - By YL Computing</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-dichotomy-of-ai-mass-engagement-vs-precious-data/"><u>The Dichotomy of AI: Mass Engagement Vs. Precious Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-on-the-horizon-facebooks-new-story-panel-features/"><u>What's on the Horizon? Facebook's New Story Panel Features?</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-owns-the-photos-you-upload-online/"><u>Who Owns the Photos You Upload Online?</u></a></li>
 </ul></div>
 

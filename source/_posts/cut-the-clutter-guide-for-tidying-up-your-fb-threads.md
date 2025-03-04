@@ -1,7 +1,7 @@
 ---
 title: "Cut the Clutter: Guide for Tidying Up Your Fb Threads"
-date: 2024-08-15T18:44:09.079Z
-updated: 2024-08-16T18:44:09.079Z
+date: 2025-02-12T08:26:18.966Z
+updated: 2025-02-15T11:10:08.997Z
 tags:
   - facebook
 categories:
@@ -23,23 +23,22 @@ thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff4
 
  When you remove such comments, Facebook does not send notifications to the person who commented. However, they may notice their comments have been deleted when viewing the post.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How to Delete a Comment on Your Facebook Post
 
  Deleting an offensive comment is simply a few clicks away. Just follow the steps below on how you can delete them, whether you're accessing Facebook on a PC or through the mobile app.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Delete a Comment When Accessing Facebook From a PC
 
 Here's how to remove comments using a PC:
 
 ![screenshot showing how to delete comment on facebook desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-desktop-1.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Navigate to the upsetting comment, and hover your cursor over the comment. You'll see three dots next to the comment.
@@ -48,20 +47,19 @@ Here's how to remove comments using a PC:
 4. Click on**Delete,** and the comment is deleted.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Delete a Comment on a Mobile App
 
  The process slightly differs on a Facebook mobile app. Follow these steps to delete a comment under your post directly from your mobile app.
 
 ![screenshot showing how to delete comment on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-mobile.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -72,20 +70,21 @@ Close
 
  Related:[What Happens to Your Data if Facebook Ever Dies?](https://www.makeuseof.com/what-happens-to-facebook-data-if-it-dies/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Get Rid of Negative Comments on Your Posts
 
  You can't always control what comments people drop on your Facebook posts. However, Facebook empowers you to delete the comments you find offensive.
 
  If you have any such comments on your Facebook posts, follow the steps we've shared above to remove the comment.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,6 +93,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-video-reach-tactics-against-bot-visitors-for-2024/"><u>[New] Enhancing Video Reach Tactics Against Bot Visitors for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-sky-high-storages-expert-recommendations/"><u>[New] In 2024, Sky-High Storages Expert Recommendations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-essential-steps-for-transitioning-videos-from-youtube-to-dailymotion/"><u>[New] The Essential Steps for Transitioning Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-free-techniques-for-turning-youtube-watching-into-a-screenshot/"><u>[Updated] 2024 Approved Free Techniques for Turning YouTube Watching Into a Screenshot</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-cutting-edge-anime-ideas-dominating-social-media-screens/"><u>2024 Approved Cutting-Edge Anime Ideas Dominating Social Media Screens</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/data-backup-transfer-and-restoration-techniques/"><u>数据备份与传输恢复方法 - Data Backup, Transfer and Restoration Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-review-on-the-powerhouse-linksys-ea9500-router-with-advanced-tech-capabilities/"><u>Expert Review on the Powerhouse Linksys EA9500 Router with Advanced Tech Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-3d-photo-on-facebook/"><u>How to Create a 3D Photo on Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-top-8-best-free-srt-translators-online-tips-to-choose/"><u>In 2024, Top 8 Best Free SRT Translators Online (Tips to Choose)</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-realism-how-fb-messenger-expands-ar-horizons/"><u>Interactive Realism: How FB Messenger Expands AR Horizons</u></a></li>
+<li><a href="https://facebook.techidaily.com/netball-teams-abandon-digital-connections/"><u>Netball Teams Abandon Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-connections-facebooks-latest-dating-upgrade/"><u>Revolutionizing Connections: Facebook’s Latest Dating Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-push-for-non-partisan-non-denominational-profile-spaces/"><u>The Push for Non-Partisan, Non-Denominational Profile Spaces</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlock-new-dimensions-exploring-xbox-ones-zooming-feature/"><u>Unlock New Dimensions Exploring Xbox One's Zooming Feature</u></a></li>
+</ul></div>
 

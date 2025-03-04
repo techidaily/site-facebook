@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Pre-FB Account Removal
-date: 2024-08-23T02:03:44.528Z
-updated: 2024-08-24T02:03:44.528Z
+date: 2025-02-11T19:34:46.408Z
+updated: 2025-02-14T18:33:42.980Z
 tags:
   - facebook
 categories:
@@ -23,11 +23,19 @@ thumbnail: https://thmb.techidaily.com/c5a835a587cbde63390ec7ae0f646f52f65cc154a
 
 ![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You might think of ending your journey on Facebook, but it doesn't mean leaving your friends uninformed about the decision. Start by informing your close contacts that you are deleting your Facebook account.
 
  You can leave a message in any mutual group or text your friends individually. Some people also prefer posting a Facebook status, so everyone on the list is aware. If you’re feeling more expressive,[post a video on Facebook](https://www.makeuseof.com/how-to-post-video-on-facebook/) telling your friends about your decision to leave Facebook.
 
  Informing your close contacts about such decisions builds better relationships and keeps them close to you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Save the Media You Wish to Keep
 
@@ -55,22 +63,16 @@ thumbnail: https://thmb.techidaily.com/c5a835a587cbde63390ec7ae0f646f52f65cc154a
 
 ![Messenger Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Messenger-Account-Settings.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Personal information on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-information-on-Messenger.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage account of Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Manage-account-of-Messenger.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![Deactivate Messenger account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-Messenger-account.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Close
 
 ## 4\. Change Your Page Admins
@@ -86,11 +88,16 @@ Close
  Once you have talked to someone and promoted them as an admin of your group, they will manage the group, even after you’re gone.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Wind Up Any Professional Business
 
 ![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook has become a hub of professional businesses where everyone can thrive equally. We understand that leaving all that can be difficult if you are among those people. What will happen to your customers? Can you survive without your business?
 
@@ -101,17 +108,15 @@ Close
  Those who feel their business should continue can pick another admin to manage things. It can be any trustworthy person or even a business partner.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Save and Download Your Facebook Data and History
 
  Before leaving Facebook, saving your data and history is a wise choice. It includes everything from your comments to posts, friends, messages, photos, and the history of other Facebook activities.
 
  Facebook allows users to [download a copy of their entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) and obtain everything they might not have after becoming an ex-Facebook user. Also, it is beneficial to maintain security and keep proof if something goes wrong.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## 8\. Organize and Save Your Facebook Memories
 
 ![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
@@ -128,23 +133,17 @@ Close
 
 **Download:** Google Photos for [iOS](https://apps.apple.com/us/app/google-photos/id962194608) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017148/https://play.google.com/store/apps/details?id=com.google.android.apps.photos&hl=en&gl=US)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Leave Facebook But Not the Memories
 
  Despite being an exciting and useful app, some people think it’s better to put an end to using Facebook. When leaving the app for good, organize your memories and save valuable content by downloading it from the app.
 
  You have the option to wind up or pass on any Facebook pages and groups to someone equally passionate about them as you were. If Facebook isn't your thing, try something else. Maybe you’ll find an app that accurately represents your social media presence.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,8 +152,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/nhancing-on-screen-appeal-essential-tips-for-talking-head-shots/"><u>[New] Enhancing On-Screen Appeal Essential Tips for Talking-Head Shots</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-video-posts-on-tiktok-your-guide-for-mac-and-pc-users/"><u>[Updated] Mastering Video Posts on TikTok Your Guide for MAC & PC Users</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-stream-your-webcam-in-real-time-using-vlc-software/"><u>[Updated] Stream Your Webcam in Real Time Using VLC Software</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mkv-movies-on-galaxy-s23plus-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Failed to play MKV movies on Galaxy S23+</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/ishowu-audio-capture-review-for-2024/"><u>IShowU Audio Capture Review for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/method-to-overhaul-your-digital-identitys-password/"><u>Method to Overhaul Your Digital Identity's Password</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/restore-deleted-or-lost-folders-on-your-windows-10-pc-a-step-by-step-guide/"><u>Restore Deleted or Lost Folders on Your Windows 10 PC: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/reverse-deletion-restoring-past-facebook-activity/"><u>Reverse Deletion: Restoring Past Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-strategies-surge-in-popularity-for-online-clans/"><u>Social Strategies: Surge in Popularity for Online Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-efficiently-exiting-social-network-groups/"><u>The Art of Efficiently Exiting Social Network Groups</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-of-video-polishing-with-youtube-studio-tools-for-2024/"><u>The Art of Video Polishing with YouTube Studio Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-functions-of-facebooks-troubleshooters/"><u>The Essential Functions of Facebook's Troubleshooters</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-mac-capture-techniques-overview-char-limit-156/"><u>Top Mac Capture Techniques Overview (Char Limit 156)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unshackle-notepad-quick-efficient-ways-to-restart-on-windows-pcs/"><u>Unshackle Notepad: Quick, Efficient Ways to Restart on Windows PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-future-of-customer-relationships-on-facebooks-newsfeed/"><u>Unveiling the Future of Customer Relationships on Facebook's Newsfeed</u></a></li>
+</ul></div>
 

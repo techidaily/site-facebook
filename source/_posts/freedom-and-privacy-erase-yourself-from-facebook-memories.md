@@ -1,7 +1,7 @@
 ---
 title: "Freedom and Privacy: Erase Yourself From Facebook Memories"
-date: 2025-01-25T04:35:50.473Z
-updated: 2025-01-31T19:55:16.525Z
+date: 2025-02-09T00:09:22.402Z
+updated: 2025-02-14T17:03:44.403Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Find Your Photos on Facebook
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 ![Access photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/profile-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The thumbnail for each image should have a**pencil icon** in the upper right-hand corner. Click this to access the settings and options for that image. If you uploaded the picture, you can delete it. If you didn't upload it, you will still have the option to untag yourself.
@@ -47,13 +47,13 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 ![Facebook warns you before you delete a photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/fb-delete-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Related:[How to Make Your Photos Private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Happens When You Delete or Remove Tags in Facebook Photos?
@@ -67,7 +67,7 @@ When you delete a photo from Facebook, it's gone forever.
  Related:[How to Delete a Facebook Post (or Posts)](https://www.makeuseof.com/how-to-delete-facebook-posts/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## There's Always More That You Can Do
@@ -91,17 +91,18 @@ When you delete a photo from Facebook, it's gone forever.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-audio-modification-software-with-enchanting-features/"><u>2024 Approved Superior Audio Modification Software with Enchanting Features</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/boost-performance-essential-wsl-2-approaches-for-win-users/"><u>Boost Performance: Essential WSL 2 Approaches for Win Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-gap-between-metaverse-and-vr-understanding-6-key-variations/"><u>Deciphering The Gap Between Metaverse & VR: Understanding 6 Key Variations</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-posts-that-pass-unnoticed/"><u>Decoding Facebook: Posts That Pass Unnoticed</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-contentious-facebook-papers/"><u>Dissecting the Contentious Facebook Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-semantics-of-icons-and-glyphs-on-online-platforms-like-fb/"><u>Dissecting the Semantics of Icons and Glyphs on Online Platforms Like FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-brand-with-these-top-8-business-page-advantages/"><u>Elevate Your Brand with These Top 8 Business Page Advantages</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-insights-handling-and-preventing-tear-down-application-from-crashing/"><u>Expert Insights: Handling and Preventing Tear Down Application From Crashing</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/intersecting-experiences-dissecting-vr-augmented-and-mixed-reality-for-2024/"><u>Intersecting Experiences Dissecting VR, Augmented & Mixed Reality for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-modifying-your-windows-11-taskbar-hue/"><u>Step-by-Step Guide: Modifying Your Windows 11 Taskbar Hue</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/ultimate-tutorial-on-maintaining-your-pcs-health-in-windows-11-advanced-chkdsk-techniques-for-data-integrity/"><u>Ultimate Tutorial on Maintaining Your PC's Health in Windows 11: Advanced CHKDSK Techniques for Data Integrity</u></a></li>
-<li><a href="https://win-web3.techidaily.com/zdnet-exclusive-how-the-rise-of-microsofts-surface-pro-and-laptop-signals-a-shift-in-ai-pc-innovation-challenging-apple/"><u>ZDNet Exclusive: How the Rise of Microsoft's Surface Pro and Laptop Signals a Shift in AI PC Innovation, Challenging Apple</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-becoming-the-ultimate-streamer-on-youtube-and-twitch-using-obs/"><u>[New] 2024 Approved Becoming the Ultimate Streamer on YouTube and Twitch Using OBS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-fostering-flourishing-visuals-with-after-effects-fonts-for-2024/"><u>[New] Fostering Flourishing Visuals with After Effects Fonts for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-for-maximizing-gopro-battery-life/"><u>[New] Techniques for Maximizing GoPro Battery Life</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1-free-online-conversion-change-mp4-audio-files-into-high-quality-flac-format-with-movavi/"><u>1. Free Online Conversion: Change MP4 Audio Files Into High-Quality FLAC Format with Movavi</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/conquer-the-world-of-video-downloads-software-or-freely-whats-best-for-you-for-2024/"><u>Conquer the World of Video Downloads Software or Freely, What's Best for You for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-logitech-t630-ready-full-drivers-support-for-windows-7810/"><u>Get Your Logitech T630 Ready: Full Drivers Support for Windows 7/8/10</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-different-messaging-services-not-fbs/"><u>Leveraging Different Messaging Services, Not FB's</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-solving-common-social-media-troubles-on-fb/"><u>Quick Guide to Solving Common Social Media Troubles on FB</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionizing-product-quality-modelfarm-halves-defects-with-unreal-engine-and-intel-eyes-amd-ryzen-9-for-next-level-performance/"><u>Revolutionizing Product Quality: ModelFarm Halves Defects with Unreal Engine and Intel, Eyes AMD Ryzen 9 for Next Level Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-tuned-why-twitters-user-tracking-supports-uninterrupted-live-streams/"><u>Stay Tuned: Why Twitter’s User Tracking Supports Uninterrupted Live Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-image-mashups-on-instagram-and-facebook/"><u>The Art of Image Mashups on Instagram & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unveiling-of-oculus-gos-true-potential-through-facebooks-move/"><u>The Unveiling of Oculus Go's True Potential Through Facebook's Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovered-secrets-possible-new-identity-for-fb/"><u>Uncovered Secrets: Possible New Identity for FB</u></a></li>
 </ul></div>
 

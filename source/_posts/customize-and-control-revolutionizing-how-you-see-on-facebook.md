@@ -1,7 +1,7 @@
 ---
 title: "Customize & Control: Revolutionizing How You See on Facebook"
-date: 2024-08-15T18:42:44.011Z
-updated: 2024-08-16T18:42:44.011Z
+date: 2025-02-13T12:24:21.628Z
+updated: 2025-02-15T13:43:13.299Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/6c7b51dcfdae2a8da726c75853a324eb9a3939b33
 
  If you're tired of seeing the same old posts from the same people on your Facebook feed, it may be time to customize your preferences. Let's take a look at some ways in which you can make your Facebook feed more relevant to you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. React to Posts
 
 ![Man showing a thumb up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-william-fortunato-6140706.jpg)
@@ -27,19 +31,17 @@ thumbnail: https://thmb.techidaily.com/6c7b51dcfdae2a8da726c75853a324eb9a3939b33
 
  Alternatively, if you like the content, you can also turn on notifications for the post (which will allow you to see when and what people say in response to it), and you can also save it for future reference.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Manage Your Feed Preferences
 
  You can also manage your feed preferences. For example, if you choose to "snooze" something for 30 days, you'll be taken to another set of options where you can choose to**Report** the piece of content or**Manage Your Feed** . If you choose to Manage Your Feed, you can**Favorite,** **Snooze** ,**Unfollow** , or**Reconnect** with people, groups, and pages.
 
 ![Facebook settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315957579_537820348160467_7357108104714132_n.png)
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Facebook settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316085431_487992473306097_3670768993159819399_n.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Facebook settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316057294_497844138975994_5709024957778245697_n.png)
 
@@ -59,22 +61,24 @@ Close
 
  You can also easily**Add Friends** and**Pages** to favorites by clicking on the blue button opposite their name. You can add up to 30 friends and Pages and prioritize their posts. You can also filter your news feed to see your favorite posts first.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Choose Ad Preferences
 
 ![Facebook ad settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315966540_709127307399275_7803740968097717654_n.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook ad settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316016806_1110427606332962_1602856131441474800_n.png)
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook ad settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316023802_729704451863518_8824159090415447131_n.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -87,23 +91,17 @@ Close
 
  To**Manage Your Ad Preferences** , go to your profile picture on the right-hand side of Facebook, click**Settings** and scroll all the way down until you get to**Ads** . Click on**Ad Preferences** . In this section, you will be able to**Hide Ads** you've recently seen. You can also filter by ad topics and ad settings. You will also see advertisers whose ads you've clicked on.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Be in Control of What You See on Facebook
 
  You don't have to accept everything that you're offered on Facebook, especially if you find the content annoying, distressing, or irrelevant. It's likely that you have several social media profiles, but you should be aware that you are able to monitor and control your news feed preferences by going into your profile settings.
 
  With just a few clicks, you can potentially get rid of content that wastes your time, and personalize your news feed in a way that you want it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,6 +110,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-video-watchlist-activate-av1-on-youtube/"><u>[New] 2024 Approved Elevate Your Video Watchlist - Activate AV1 on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-set-up-zoom-for-video-meeting/"><u>[New] How to Set up Zoom for Video Meeting</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-complete-guide-to-reversed-videos-on-instagram-for-2024/"><u>[New] The Complete Guide to Reversed Videos on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-youtube-monetization-a-cpm-perspective/"><u>[Updated] 2024 Approved Mastering YouTube Monetization A CPM Perspective</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-resource-for-artists-identifying-the-top-10-free-online-creative-communities/"><u>[Updated] 2024 Approved The Ultimate Resource for Artists Identifying the Top 10 Free Online Creative Communities</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-download-instagram-vids-effortlessly-on-your-desktop-system-pcmac/"><u>2024 Approved Download Instagram Vids Effortlessly on Your Desktop System (PC/Mac)</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-explore-silent-bubbles-auditory-display/"><u>2024 Approved Explore Silent Bubbles Auditory Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/experimental-meta-drop-support-for-social-media-users/"><u>Experimental Meta Drop Support for Social Media Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-dawn-in-my-digital-history/"><u>Facebook's Dawn in My Digital History</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/free-online-mpg-to-mp3-converter-by-movavi-easy-and-reliable-file-format-transformation/"><u>Free Online MPG to MP3 Converter by Movavi: Easy and Reliable File Format Transformation</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-permanent-exclusion-from-facebook-services/"><u>Initiating Permanent Exclusion From Facebook Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-unveils-a-major-obstacle-for-facebook-analytics/"><u>IOS 14.5 Unveils a Major Obstacle for Facebook Analytics</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-era-of-virtual-social-spaces/"><u>Navigating the New Era of Virtual Social Spaces</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-silence-fixed-audio-issues-on-wow/"><u>Resolving Silence: Fixed Audio Issues on WoW</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-former-facebook-interactions/"><u>Retrieving Former Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-hiatus-taking-a-break-from-facebook-friends/"><u>Social Hiatus: Taking a Break From Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/solve-your-facebook-dilemmas-addressing-11-common-issues/"><u>Solve Your FaceBook Dilemmas: Addressing 11 Common Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-functionality-and-operation-of-sleep-mode-in-messenger-kids/"><u>The Functionality & Operation of Sleep Mode in Messenger Kids</u></a></li>
+</ul></div>
 

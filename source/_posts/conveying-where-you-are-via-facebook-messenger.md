@@ -1,7 +1,7 @@
 ---
 title: Conveying Where You Are via Facebook Messenger
-date: 2024-08-15T18:45:19.293Z
-updated: 2024-08-16T18:45:19.293Z
+date: 2025-02-14T03:15:13.467Z
+updated: 2025-02-15T00:45:56.910Z
 tags:
   - facebook
 categories:
@@ -33,11 +33,23 @@ thumbnail: https://thmb.techidaily.com/0a1a7225cf59c67660e5517795e22301d6d92dc24
 
 ![Contact Open in Messenger With Whom Location Is Going to Be Shared](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/1-Contact-Open-in-Messenger-WIth-Whom-Location-Is-Going-to-Be-Shared.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Location Sharing Direction Icon In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/2-Location-Sharing-Direction-Icon-In-Facebook-Messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Permitting Facebook to Access Location in Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/3-Permitting-Facebook-to-Access-Location-in-Facebook-Messenger.jpg)
 
 ![Live Location Shared In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/4-Live-Location-Shared-In-Facebook-Messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -45,9 +57,6 @@ Close
 
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Share a Pinned Location in Facebook Messenger
 
  Facebook Messenger also allows you to share any other point on the map instead of your current location by pinning it.
@@ -61,56 +70,34 @@ Follow these simple instructions to send a pinned location:
  Here, you have two ways to pin a specific location. Either manually drag the pin to your desired location and hit the**Send Location** button or enter a location in the search field and hit the**Share icon** next to it.
 
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of [deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Share Live Location or Pin It Through Facebook Messenger
 
  Whether you're sharing your live location or a pinned position, Facebook Messenger makes navigation easier for you and your loved ones.
 
  Besides Messenger, A few other Android apps also allow you to find your friends via GPS, such as Glympse, Family Locator, Geo Tracker, etc.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,6 +106,22 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-ideal-free-webcam-video-grabber-solution/"><u>[Updated] 2024 Approved Ideal Free Webcam Video Grabber Solution</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-proven-methods-for-logging-digital-audio-data/"><u>[Updated] Proven Methods for Logging Digital Audio Data</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-proactive-measures-for-managing-comments-on-educational-videos/"><u>2024 Approved Proactive Measures for Managing Comments on Educational Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/complete-epic-of-dragons-and-riders-ordering-the-how-to-train-your-dragon-movie-series/"><u>Complete Epic of Dragons and Riders - Ordering the How to Train Your Dragon Movie Series</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-friends-to-partners-initiating-facebook-dating/"><u>From Friends to Partners: Initiating Facebook Dating</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-realme-gt-5-240w-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-chat-using-whatsapp-with-facebook-avatars/"><u>Maximizing Your Chat: Using WhatsApp with Facebook Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-life-beyond-the-social-media-realm/"><u>Navigating Life Beyond the Social Media Realm</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/overcoming-the-blue-screen-of-death-with-rtkvhd64sys-error-on-windows-machines/"><u>Overcoming the Blue Screen of Death with RTKVHD64.sys Error on Windows Machines</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-data-breach-understanding-9-social-signals/"><u>Prevent Data Breach: Understanding 9 Social Signals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-freedom-formula-forgetting-facebook-habits/"><u>The Freedom Formula: Forgetting Facebook Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-friendly-face-of-technology-integrating-fb-avatars-into-whatsapp/"><u>The Friendly Face of Technology: Integrating FB Avatars Into WhatsApp</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-importance-of-secondary-footage-in-engaging-editors/"><u>The Importance of Secondary Footage in Engaging Editors</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-asus-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Asus Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-a-dying-deck-isnt-quite-like-facebooks-tale/"><u>Why a Dying Deck Isn't Quite Like Facebook’s Tale</u></a></li>
+</ul></div>
 

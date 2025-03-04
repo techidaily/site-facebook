@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Administrative Conduct Under Scrutiny by Amazon
-date: 2025-01-13T16:24:50.616Z
-updated: 2025-01-18T16:08:28.852Z
+date: 2025-02-10T14:05:07.331Z
+updated: 2025-02-14T17:56:18.345Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
@@ -46,13 +46,13 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -101,19 +101,22 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-prime-streaming-platforms-for-authors-for-2024/"><u>[New] Prime Streaming Platforms for Authors for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ielding-income-a-streamers-guide-to-earning-for-2024/"><u>[New] Yielding Income A Streamer's Guide to Earning for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/fixing-the-inability-to-load-facebook-alertsupdates/"><u>Fixing the Inability to Load Facebook Alerts/Updates</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Vivo Y36i? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-6-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone 6 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-ultimate-list-free-online-video-conferencing-software/"><u>In 2024, The Ultimate List Free Online Video Conferencing Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinventing-your-social-circle-without-facebook-top-10-proposals-for-quitting/"><u>Reinventing Your Social Circle Without Facebook - Top 10 Proposals for Quitting</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tipping-point-apples-ios-145-and-its-impact-on-facebook/"><u>The Tipping Point: Apple's iOS 14.5 and Its Impact on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/theft-from-social-networks-how-often/"><u>Theft From Social Networks: How Often?</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-safe-social-networking-sites/"><u>Top: Safe Social Networking Sites?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/trouble-with-iphone-6s-plus-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with iPhone 6s Plus Swipe-Up? Try These 11 Solutions</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/update-your-karaoke-mobile-experience-for-free-get-the-110-enhanced-version-today/"><u>Update Your Karaoke Mobile Experience for Free – Get the 1.1.0 Enhanced Version Today!</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-facebook-ditch-news-feed-in-favor-of-just-feed/"><u>Why Did Facebook Ditch 'News Feed' In Favor of Just 'Feed'?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-legacy-in-pixels-iphone-x-memories-photography/"><u>[New] Legacy in Pixels IPhone X Memories Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-next-level-video-top-webcam-filters-for-flawless-broadcasts/"><u>[New] Next Level Video Top Webcam Filters for Flawless Broadcasts</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1-como-conversion-wav-a-mp3-en-linea-sin-coste-y-con-excelente-claridad/"><u>1. Cómo Conversión WAV a MP3 en Línea Sin Coste Y Con Excelente Claridad</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-timelapse-excellence-iphones-quick-guide/"><u>2024 Approved Timelapse Excellence IPhone's Quick Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-tailored-newsfeed-to-skip-unwelcome-ads-on-social-media/"><u>Creating a Tailored Newsfeed to Skip Unwelcome Ads on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-pinpoint-friends-3-tagging-tactics-on-facebook/"><u>Efficiently Pinpoint Friends: 3 Tagging Tactics on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
+<li><a href="https://win-superb.techidaily.com/how-to-fix-a-scanner-that-will-not-start-tips-by-yl-software-professionals/"><u>How to Fix a Scanner That Will Not Start: Tips by YL Software Professionals</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-photo-editing-essentials-cut-out-unwanted-borders-smoothly/"><u>In 2024, Photo Editing Essentials Cut Out Unwanted Borders Smoothly</u></a></li>
+<li><a href="https://techtrends.techidaily.com/master-meal-planning-with-these-of-favorite-food-tracker-apps-replace-with-your-target-number/"><u>Master Meal Planning with These # of Favorite Food Tracker Apps (Replace # with Your Target Number)</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-data-analysis-with-8-crowdflower-features/"><u>Master the Art of Data Analysis with 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-fb-backgrounds/"><u>Mastering The Art of Captivating FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-moment-for-facebooks-user-base/"><u>Peaking Moment for Facebook's User Base</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/premier-select-androidiphone-facial-editing-apps/"><u>Premier Select Android/iPhone Facial Editing Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-the-hate-for-universal-network-engagement-platforms/"><u>Sifting Through the Hate for Universal Network Engagement Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-making-profitable-facebook-reels/"><u>Simplifying the Process of Making Profitable Facebook Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-complete-guide-to-reversed-videos-on-instagram/"><u>The Complete Guide to Reversed Videos on Instagram</u></a></li>
 </ul></div>
 

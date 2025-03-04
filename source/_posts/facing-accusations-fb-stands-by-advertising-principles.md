@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2025-01-26T00:35:52.113Z
-updated: 2025-02-01T06:03:33.470Z
+date: 2025-02-12T08:15:06.174Z
+updated: 2025-02-14T23:47:48.117Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Signal Sees Its Facebook Ad Account Disabled
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -53,7 +53,7 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -65,7 +65,7 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -93,14 +93,22 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-top-6-digital-engagement-channels-for-companies/"><u>[New] 2024 Approved Essential Top 6 Digital Engagement Channels for Companies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-finding-a-quality-microphone-for-every-yt-style/"><u>[Updated] The Ultimate Guide to Finding a Quality Microphone for Every YT Style</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-iphone-se-2020-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On iPhone SE (2020)? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-photo-privacy-settings-everything-you-need-to-know/"><u>Facebook Photo Privacy Settings: Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-securing-fb-profile-against-unseen-eyes/"><u>Master Securing FB Profile Against Unseen Eyes</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-social-media-success-tips-for-creating-effective-facebook-reels/"><u>Streamline Social Media Success: Tips for Creating Effective Facebook Reels</u></a></li>
-<li><a href="https://games-able.techidaily.com/streamlining-game-footage-extraction-on-various-gpus/"><u>Streamlining Game Footage Extraction on Various GPUs</u></a></li>
-<li><a href="https://facebook.techidaily.com/unknown-ventures-facebooks-secret-wrist-tech-project/"><u>Unknown Ventures: Facebook's Secret Wrist Tech Project</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-to-the-newest-version-of-logitech-g910-software-direct-download-and-installation-instructions-for-windows-users/"><u>Update to the Newest Version of Logitech G910 Software: Direct Download and Installation Instructions for Windows Users</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-scriptwriting-mastery-conveying-emotions-through-words/"><u>[Updated] 2024 Approved Scriptwriting Mastery Conveying Emotions Through Words</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-lifes-journey-videos-creating-authentic-online-experiences/"><u>[Updated] Life's Journey Videos Creating Authentic Online Experiences</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-enhance-gameplay-the-ultimate-guide-to-using-steams-switch-controller/"><u>2024 Approved Enhance Gameplay The Ultimate Guide to Using Steam's Switch Controller</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-fb-presence-with-a-great-pic/"><u>Elevating Your FB Presence with a Great Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-boosts-listening-options-in-new-hub-launch/"><u>Facebook Boosts Listening Options in New Hub Launch</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-itel-a70-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Itel A70? Try These Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-craft-and-share-content-in-multiple-languages-on-social-networking-sites/"><u>How to Craft and Share Content in Multiple Languages on Social Networking Sites</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-honor-x9a-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Honor X9a to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-beyond-like-and-share-on-facebook/"><u>Life Beyond Like-and-Share on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-marvels-fastest-lite-android-apps-ahead/"><u>Mobile Marvels: Fastest Lite Android Apps Ahead</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-refunds-a-step-by-step-guide/"><u>Navigating Facebook Refunds: A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-iron-bank-of-erebor-online-resources-for-got-audio-calls-for-2024/"><u>The Iron Bank of Erebor Online Resources for GoT Audio Calls for 2024</u></a></li>
+<li><a href="https://win-great.techidaily.com/the-ultimate-list-of-debunked-wedding-djmyths-insights-for-your-big-day-soundtrack/"><u>The Ultimate List of Debunked Wedding DJmyths: Insights for Your Big Day Soundtrack</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-apple-iphone-14-plus-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your Apple iPhone 14 Plus Is Unlocked</u></a></li>
+<li><a href="https://article-posts.techidaily.com/tips-to-rectify-broken-airdrop-connectivity-across-apple-gadgets/"><u>Tips to Rectify Broken AirDrop Connectivity Across Apple Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-why-did-major-apps-crash/"><u>Unveiling the Truth: Why Did Major Apps Crash?</u></a></li>
+<li><a href="https://facebook.techidaily.com/vital-actions-ensuring-fb-access-on-demand/"><u>Vital Actions: Ensuring FB Access on Demand</u></a></li>
 </ul></div>
 

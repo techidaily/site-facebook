@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2025-01-31T05:04:29.492Z
-updated: 2025-01-31T18:25:22.427Z
+date: 2025-02-10T18:42:28.147Z
+updated: 2025-02-15T12:24:19.548Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
 
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
@@ -47,12 +43,16 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -101,19 +101,24 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-triumph-over-tiktoks-unseen-ban-barriers/"><u>[New] 2024 Approved Triumph Over TikTok's Unseen Ban Barriers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unseen-underpinnings-of-user-interface-craftsmanship/"><u>[New] Unseen Underpinnings of User Interface Craftsmanship</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-5-mac-videography-tools-unleashed-in-sierra-os/"><u>[Updated] In 2024, Top 5 Mac Videography Tools Unleashed in Sierra OS</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exclusive-look-at-apples-latest-upgrades-for-all-airpods-lineup-reveal-the-top-four-must-have-improvements/"><u>Exclusive Look at Apple's Latest Upgrades for All AirPods Lineup – Reveal the Top Four Must-Have Improvements</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-fb-events-as-a-key-tool-for-organizing-activities/"><u>Exploring FB Events as a Key Tool for Organizing Activities</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-(securityfacebookmailcom)-legitimate/"><u>Is the Facebook Protect Email From <Security@facebookmail.com> Legitimate?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/leading-mobile-and-desktop-photography-sync-tools-apple-ecosystem-edition/"><u>Leading Mobile & Desktop Photography Sync Tools: Apple Ecosystem Edition</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/obtain-your-startech-usb-video-graphics-adapter-drivers-included/"><u>Obtain Your StarTech USB Video Graphics Adapter - Drivers Included!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-club-rollout-in-status-updates-on-social-media/"><u>The Complete Club Rollout in Status Updates on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-mystery-behind-snapchat-messenger-and-instagram-outages/"><u>The Mystery Behind Snapchat, Messenger & Instagram Outages</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-new-intel-kingpin-core-i7-14700k-shines-with-a-7-single-core-supremacy-over-competitor-core-ultra-7-arrow-lake-chip-dominates-benchmarks/"><u>The New Intel Kingpin: Core I7-14700K Shines with a 7% Single-Core Supremacy over Competitor Core Ultra 7 - Arrow Lake Chip Dominates Benchmarks!</u></a></li>
-<li><a href="https://win11.techidaily.com/ultimate-savings-612-annual-windows-10-lifetime/"><u>Ultimate Savings: $6.12 Annual Windows 10 Lifetime</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-crypto-stablecoins-definitions-and-dynamics/"><u>Unveiling Crypto Stablecoins: Definitions and Dynamics</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-oversight-committee-powers/"><u>Unveiling Facebook’s Oversight Committee Powers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-reclaim-your-iphone-x-experience-with-these-tips/"><u>[New] 2024 Approved Reclaim Your iPhone X Experience with These Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-premier-iphone-gif-application-compendium/"><u>[New] The Premier iPhone GIF Application Compendium</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-discover-these-must-try-iphone-vr-titles-for-2024/"><u>[Updated] Discover These Must-Try iPhone VR Titles for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expert-guide-to-scripting-ae-plug-ins/"><u>[Updated] Expert Guide to Scripting AE Plug-Ins</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-cutting-edge-webcam-editing-emphasize-focus-not-the-fence/"><u>2024 Approved Cutting Edge Webcam Editing – Emphasize Focus, Not the Fence</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-social-sites-ideal-for-corporate-growth/"><u>Essential Social Sites: Ideal for Corporate Growth</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-tips-for-fixing-not-found-advapi32dll-system-errors-on-your-pc/"><u>Expert Tips for Fixing 'Not Found: Advapi32.dll' System Errors on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-ar-world-with-new-messenger-features-from-fb/"><u>Explore AR World with New Messenger Features From FB</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-digital-pathways-of-the-vatican-how-does-pope-francis-incorporate-email-into-his-correspondence/"><u>Exploring the Digital Pathways of the Vatican: How Does Pope Francis Incorporate Email Into His Correspondence?</u></a></li>
+<li><a href="https://facebook.techidaily.com/free-tricks-to-enhance-your-facebook-schedules-efficiency/"><u>Free Tricks to Enhance Your Facebook Schedule's Efficiency</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-y02t-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo Y02T FRP In 3 Different Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebooks-reel-capable-of-dethroning-tiktok/"><u>Is Facebook's Reel Capable of Dethroning TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-layers-understanding-fbctas-intent/"><u>Peeling Back Layers: Understanding FBCTA's Intent</u></a></li>
+<li><a href="https://facebook.techidaily.com/phone-data-silent-salesperson-real-luck-or-designed-deception/"><u>Phone Data: Silent Salesperson? Real Luck, Or Designed Deception?</u></a></li>
+<li><a href="https://win11.techidaily.com/streamlining-password-management-with-windows-texts/"><u>Streamlining Password Management with Windows Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-highlights-distrust-toward-major-internet-companies/"><u>Survey Highlights Distrust Toward Major Internet Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-leaders-to-address-scam-ad-proliferation-more-effectively/"><u>Tech Leaders to Address Scam Ad Proliferation More Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-transformative-power-of-sharing-on-facebook/"><u>The Transformative Power of 'Sharing' On Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-roots-of-human-verbal-expression/"><u>Unearthing the Roots of Human Verbal Expression</u></a></li>
 </ul></div>
 

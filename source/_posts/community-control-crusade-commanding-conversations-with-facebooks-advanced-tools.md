@@ -1,7 +1,7 @@
 ---
 title: "Community Control Crusade: Commanding Conversations with Facebook’s Advanced Tools"
-date: 2024-08-15T18:44:23.019Z
-updated: 2024-08-16T18:44:23.019Z
+date: 2025-02-13T21:43:56.961Z
+updated: 2025-02-14T17:22:46.733Z
 tags:
   - facebook
 categories:
@@ -35,8 +35,9 @@ In a nutshell, these new moderation tools allow group admins to:
 ### Content Moderation
 
 ![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This tool allows you to police posts, comments, and promotions. If you'd like to moderate spam comments, for example, here's how:
@@ -44,9 +45,6 @@ In a nutshell, these new moderation tools allow group admins to:
  1\. Click**Admin Assist** on the left side of the screen. Then click**Add** next to**Decline incoming post if** .
 
 ![Decline incoming posts in Facebook Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Decline-incoming-posts-in-Facebook-Groups.png)
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  2\. Click on the**Spam posts** option and either choose the default criteria or click**Edit** to change how you'd like to mark spam. Finally, click**Apply Criteria** .
 
@@ -54,15 +52,16 @@ In a nutshell, these new moderation tools allow group admins to:
 
  You can follow the same steps to moderate how published posts will be removed and whether people can comment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Conflict Alerts
 
  Facebook also offers Conflict Alerts to draw an admin's attention if a potentially contentious conversation is occurring. When these comments happen, an alert will automatically be sent to the group admin.
 
  In these situations, the admin can slow conversations by limiting how often post members can make comments.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Member Summary
 
  Another new feature of Facebook's moderation tools is Member Summary. This function allows admins to oversee the activity log of specific group members. For example, you can see the number of posts and comments individuals have shared and how many were removed. That way, you'll have a clear picture of the types of interactions members have within the group.
@@ -72,8 +71,9 @@ In a nutshell, these new moderation tools allow group admins to:
 ![Member-Summary-in-Facebook-Groups-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Member-Summary-in-Facebook-Groups-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Appeals
 
  Admins can now appeal violations for any posts on their page. Facebook will then review these appeals to ensure that the right decision has been made for a particular post. You can find appeals under the**Group Quality** subheading on the left sidebar.
@@ -85,17 +85,19 @@ In a nutshell, these new moderation tools allow group admins to:
  To use Tag Group Rules, tap the**three dots** next to an offending comment, then click**Remove comment** . A window will pop up asking you for additional information, and you can tag a group rule by clicking in the**checkbox** next to it.
 
 ![Remove Comment screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/RemoveComment.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Before this feature works, however, you will need to create a set of rules for your group. You can navigate to**Group Rules** in the left sidebar to do so.
 
 ![Group Rules in FB Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Group-Rules-in-FB-Groups.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Keyword Alerts
 
  This tool will alert an admin when a specific keyword is used in the community. To set Keyword Alerts:
@@ -106,23 +108,17 @@ In a nutshell, these new moderation tools allow group admins to:
 
  Related:[Do Hashtags Work on Facebook? What You Need to Know](https://www.makeuseof.com/do-hashtags-work-on-facebook/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## Gain More Control Over Your Facebook Groups
 
  With these new functions, Facebook group admins can use automated rules to maintain positive discussions and resolve conflicts. Thanks to Facebook's AI, admins can also detect any rule-breaking conversations and quickly act.
 
  These new tools help reduce the spread of controversial material and misinformation, improve Facebook's interactions, and reduce the work hoisted on group admins.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,6 +127,20 @@ In a nutshell, these new moderation tools allow group admins to:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-top-10-best-apps-for-editing-igtv-vertical-videos/"><u>[New] 2024 Approved Top 10 Best Apps for Editing IGTV Vertical Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hythm-reversal-top-10-audio-distortors-for-devices-for-2024/"><u>[New] Rhythm Reversal Top 10 Audio Distortors for Devices for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-steps-to-adobe-audition-fade-in/"><u>[Updated] 2024 Approved Steps to Adobe Audition Fade In</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-simple-process-for-preserving-tweets-imagesvideos/"><u>[Updated] Simple Process for Preserving Tweets' Images/Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-windows-for-videographers-hdr-insights-for-2024/"><u>[Updated] Windows for Videographers HDR Insights for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-buzz-generation-through-hashing-techniques-on-facebook/"><u>Examining #Buzz Generation Through Hashing Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaining-insight-the-power-of-friendly-polling-tactics/"><u>Gaining Insight: The Power of Friendly Polling Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-updating-your-fb-security-code/"><u>Guidelines for Updating Your FB Security Code</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-poco-f5-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Poco F5 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-effortless-image-editing-picart-background-removal/"><u>In 2024, Effortless Image Editing PicArt Background Removal</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-yourself-stream-ig-live-simplified/"><u>Quiet Yourself: Stream IG Live Simplified</u></a></li>
+<li><a href="https://facebook.techidaily.com/rowing-collectives-end-social-media-use/"><u>Rowing Collectives End Social Media Use</u></a></li>
+</ul></div>
 

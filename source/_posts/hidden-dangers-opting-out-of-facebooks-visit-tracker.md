@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2025-01-27T01:22:22.445Z
-updated: 2025-02-01T05:55:15.302Z
+date: 2025-02-13T01:41:37.486Z
+updated: 2025-02-15T11:31:47.411Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -30,20 +30,12 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 * [How to Check if You've Opted In to Facebook's Link History](#how-to-check-if-you-39-ve-opted-in-to-facebook-39-s-link-history)
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Enabling Link History in the Facebook app will allow Meta to track your data.
 * You can turn the Link History feature on or off from the Settings & Privacy section of the Facebook app.
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Facebook's Link History Feature Works
 
@@ -54,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
  Enabling Link History allows Meta to track the sites you visited through the Facebook app in the last 30 days. And by doing so, it's able to deliver targeted ads across its apps and services, including Instagram and Threads (both owned by Meta).
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
 
@@ -70,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
@@ -93,12 +85,20 @@ Close
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -121,24 +121,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-creating-professional-level-xbox-screen-recordings/"><u>[New] 2024 Approved Creating Professional-Level Xbox Screen Recordings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-top-10plus-online-photo-background-changers-to-remove-background-easily/"><u>[New] Top 10+ Online Photo Background Changers to Remove Background Easily</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-halt-spotify-from-automatically-playing-podcasts/"><u>[Updated] How to Halt Spotify From Automatically Playing Podcasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-master-your-live-video-setting-up-dslr-on-laptop-or-desktop/"><u>[Updated] In 2024, Master Your Live Video Setting Up DSLR on Laptop or Desktop</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-crafting-stunning-slideshows-on-iphone-series-13/"><u>2024 Approved Crafting Stunning Slideshows on iPhone Series 13</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-social-media-presence-with-effective-fb-tactics/"><u>Elevating Social Media Presence with Effective FB Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-fabrications-the-cloning-catastrophe-explored/"><u>Facebook Fabrications: The Cloning Catastrophe Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/global-connectivity-crisis-six-hour-network-failure/"><u>Global Connectivity Crisis: Six-Hour Network Failure</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-turn-off-comments-on-a-facebook-post/"><u>How to Turn Off Comments on a Facebook Post</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-12-proipad-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone 12 Pro/iPad | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-best-first-flight-drones-for-youngsters-and-new-pilots/"><u>In 2024, Best First Flight Drones for Youngsters & New Pilots</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unlocking-the-potential-of-monetized-vlogs/"><u>In 2024, Unlocking the Potential of Monetized Vlogs</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-online-content-purge-techniques/"><u>Mastering Online Content Purge Techniques</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/mkv-to-mp4-obs/"><u>MKV to MP4への変換 - OBS録画ファイルを簡単に変換するガイド</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-facebook-mini-posts-hd-edition/"><u>The Ultimate Guide to Facebook Mini Posts (HD Edition)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-itel-a05s-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Itel A05s Phone Pattern Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/towards-a-diverse-social-ecosystem/"><u>Towards a Diverse Social Ecosystem</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-do-before-permanently-saying-goodbye-to-facebook/"><u>What to Do Before Permanently Saying Goodbye to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-reinventing-user-interface-is-key-for-instagrams-future/"><u>Why Reinventing User Interface Is Key for Instagram’s Future</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-perfect-instruction-manual-for-wm6/"><u>[New] Perfect Instruction Manual for WM6</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-create-powerful-biz-decks-with-no-cost-templates/"><u>[Updated] Create Powerful Biz Decks with No-Cost Templates</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-mastering-visual-clarity-for-remote-communications-with-ease/"><u>2024 Approved Mastering Visual Clarity for Remote Communications with Ease</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/affordable-z-edge-z3plus-dashcam-comprehensive-review-and-user-experience/"><u>Affordable Z-Edge Z3+ Dashcam - Comprehensive Review & User Experience</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-5-ai-powered-writers-to-ignite-imagination-and-ideas/"><u>Best 5 AI-Powered Writers to Ignite Imagination and Ideas</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/capturing-every-moment-in-motion-with-polaroids-new-release/"><u>Capturing Every Moment in Motion with Polaroid's New Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-public-distrust-large-companies-and-facebook/"><u>Emerging Public Distrust: Large Companies and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-tightens-policy-on-political-jokes/"><u>Facebook Tightens Policy on Political Jokes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-essential-compilation-top-10-budget-friendly-lut-sources/"><u>In 2024, The Essential Compilation Top 10 Budget-Friendly LUT Sources</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-youtube-partnership-reaching-10k-views-quickly/"><u>Mastering YouTube Partnership Reaching 10K Views Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-digital-integrity-tech-pointed-at-curbing-online-scams-and-fake-ads/"><u>Securing Digital Integrity: Tech' Pointed at Curbing Online Scams and Fake Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-the-exit-strategy-for-your-facebook-enterprise-pages/"><u>Securing the Exit Strategy for Your Facebook Enterprise Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-people-you-might-know-recommendations-in-fb/"><u>Stop 'People You Might Know' Recommendations in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-experience-best-lite-android-software/"><u>Streamlined Experience: Best Lite Android Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-eliminating-negative-comments-on-fb/"><u>Tips for Eliminating Negative Comments on Fb</u></a></li>
+<li><a href="https://article-helps.techidaily.com/venture-into-the-best-sites-for-innovative-text-manipulation-tools-for-2024/"><u>Venture Into the Best Sites for Innovative Text Manipulation Tools for 2024</u></a></li>
 </ul></div>
 

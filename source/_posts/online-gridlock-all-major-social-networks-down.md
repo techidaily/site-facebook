@@ -1,7 +1,7 @@
 ---
 title: "Online Gridlock: All Major Social Networks Down"
-date: 2025-01-15T16:15:02.619Z
-updated: 2025-01-18T16:22:51.359Z
+date: 2025-02-10T01:12:14.861Z
+updated: 2025-02-15T12:56:02.666Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are All Facebook Services Down?
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -109,20 +109,24 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-clearer-photos-with-blur-effects-apps/"><u>[New] Clearer Photos with Blur Effects Apps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-guide-to-purging-youtube-videos/"><u>[Updated] 2024 Approved The Ultimate Guide to Purging YouTube Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-nokia-c12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/1728472974732-aomei-backupper/"><u>AOMEI Backupperを使用した効果的なディスクバックアップ手順のガイド</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-steps-for-deleting-your-fb-business-pages/"><u>Essential Steps for Deleting Your FB Business Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-digital-dimensions-to-metaverse-realities-6-key-differences/"><u>From Digital Dimensions to Metaverse Realities - 6 Key Differences</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-z-flip-5-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy Z Flip 5 PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://facebook.techidaily.com/image-input-ai-output-new-form-of-writing-experiment/"><u>Image Input, AI Output: New Form of Writing Experiment</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-a-thorough-evaluation-of-the-high-resolution-dell-p2715q-monitor/"><u>In 2024, A Thorough Evaluation of the High-Resolution Dell P2715Q Monitor</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-tecno-camon-20-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Tecno Camon 20 Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-metas-approved-content-worthiness/"><u>Investigating Meta’s Approved Content Worthiness</u></a></li>
-<li><a href="https://some-tips.techidaily.com/meta-aws-synergy-accelerates-pytorch-integration-promises-advanced-machine-learning-capabilities-technews-today/"><u>Meta-AWS Synergy Accelerates PyTorch Integration, Promises Advanced Machine Learning Capabilities | TechNews Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-visionary-crusade-for-ai-supremacy-at-lightning-speed/"><u>Meta's Visionary Crusade for AI Supremacy at Lightning Speed</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/next-gen-key-smartwatch-opens-your-mac/"><u>Next-Gen Key Smartwatch Opens Your Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/tackling-the-glitch-restoring-active-facebook-status/"><u>Tackling the Glitch: Restoring Active Facebook Status</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-detailed-overview-of-lightroom-on-android-devices/"><u>[New] In 2024, Detailed Overview of Lightroom on Android Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-samurais-modern-journey-10-games-similar-to-ghost-of-tsushima/"><u>[New] In 2024, Samurai's Modern Journey 10 Games Similar to Ghost of Tsushima</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-evaluating-the-user-interface-aesthetics-of-huawei-p10/"><u>[Updated] Evaluating the User Interface Aesthetics of Huawei P10</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-complete-guide-to-the-latest-in-lgs-ultra-clear-monitoring/"><u>[Updated] In 2024, The Complete Guide to the Latest in LG’s Ultra-Clear Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/capitalizing-on-our-daily-movements/"><u>Capitalizing on Our Daily Movements</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-peak-wnbas-online-strategy-via-social/"><u>Connectivity Peak: WNBA's Online Strategy via Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-beyond-facebook-the-future-outlook/"><u>Data Beyond Facebook: The Future Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149763759-fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-spark-10-4g-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Spark 10 4G</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/how-to-transform-your-pdf-documents-into-kindle-ebooks-an-in-depth-walkthrough/"><u>How to Transform Your PDF Documents Into Kindle eBooks: An In-Depth Walkthrough</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-what-every-youtuber-should-know-about-live-thumbnails/"><u>In 2024, What Every YouTuber Should Know About Live Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-network-for-high-quality-work-clients/"><u>Leveraging Facebook's Network for High-Quality Work Clients</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-friend-inquiry-utilizing-messengers-polls/"><u>Mastering Friend Inquiry: Utilizing Messenger's Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-use-of-facebooks-shield-against-threats/"><u>Mastering the Use of Facebook’s Shield Against Threats</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-high-point-of-facebook-is-it-there-yet/"><u>The High Point of Facebook – Is It There Yet?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-stealthy-seduction-of-user-data-through-interfaces/"><u>The Stealthy Seduction of User Data Through Interfaces</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-oneplus-nord-ce-3-lite-5g-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on OnePlus Nord CE 3 Lite 5G without backup.</u></a></li>
+<li><a href="https://win-blog.techidaily.com/tips-and-solutions-for-diablo-2-resurrected-game-stop-issues/"><u>Tips and Solutions for Diablo 2 Resurrected Game-Stop Issues</u></a></li>
+<li><a href="https://win-web3.techidaily.com/yl-software-visual-content-stunning-high-resolution-hd-backgrounds-and-imagery/"><u>YL Software Visual Content: Stunning High-Resolution HD Backgrounds and Imagery</u></a></li>
 </ul></div>
 

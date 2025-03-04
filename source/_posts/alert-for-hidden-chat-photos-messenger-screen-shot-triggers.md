@@ -1,7 +1,7 @@
 ---
 title: "Alert for Hidden Chat Photos: Messenger Screen Shot Triggers"
-date: 2024-08-23T02:06:37.042Z
-updated: 2024-08-24T02:06:37.042Z
+date: 2025-02-11T10:41:48.674Z
+updated: 2025-02-14T18:51:52.306Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 
  Meta expects default encryption on Messenger to be [globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -47,31 +51,41 @@ thumbnail: https://thmb.techidaily.com/f86055b0c210c48b3bc87c8b80af070af1138eb8b
 
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Updates to Messenger
 
  Besides the opt-in end-to-end encryption feature, encrypted voice and video calls are also now available to everyone. Users can also reply to specific messages in their end-to-end encrypted chats, either by long pressing or swiping to reply. In addition, typing indicators have been added, so you can now see when others are typing.
 
  Meta has also added Verified Badges to help identify authentic accounts and have meaningful interactions. The new Save Media feature will let you save a video or image by long-pressing any media you receive. And lastly, the Video edits feature will enable you to edit a photo or video from your gallery before sending it, meaning you can add stickers, text, or crop and edit audio (for videos).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,8 +94,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-inside-look-freewebcampro-software-overview/"><u>[Updated] In 2024, Inside Look FreeWebcamPro Software Overview</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-nokia-c02-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Nokia C02 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-your-spotify-collection-with-youtube-music-integration/"><u>Enhancing Your Spotify Collection with YouTube Music Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-social-networking-changed-the-privacy-of-our-contacts/"><u>Has Social Networking Changed the Privacy of Our Contacts?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-assessment-the-versatile-samsung-gear-s3-frontier-an-extensive-feature-set-on-your-wrist/"><u>In-Depth Analysis & Assessment: The Versatile Samsung Gear S3 Frontier - An Extensive Feature Set on Your Wrist</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-metaverse-a-new-threat-here-are-three-reasons-to-be-careful/"><u>Is the Metaverse a New Threat? Here Are Three Reasons to Be Careful</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/leapfrogging-tech-titans-apples-opportunity-at-wwdc-2024-to-surpass-openai-microsoft-and-google-insights-for-innovators-zdnet/"><u>Leapfrogging Tech Titans: Apple's Opportunity at WWDC 2024 to Surpass OpenAI, Microsoft, and Google | Insights for Innovators - ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unlocks-trumps-online-accounts/"><u>Meta Unlocks Trump's Online Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/severing-social-ties-removing-instagram-links-to-facebook/"><u>Severing Social Ties: Removing Instagram Links to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-content-tiktok-eats-into-facebooks-pieces/"><u>The New Era of Content: TikTok Eats Into Facebook’s Pieces</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-premium-usb-wi-fi-network-adaptors-for-optimal-performance/"><u>The Ultimate Selection: Premium USB Wi-Fi Network Adaptors for Optimal Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-prior-public-commentaries-on-fb/"><u>Unearthing Prior Public Commentaries on FB</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-educational-theme-features-in-win-11/"><u>Unlocking Educational Theme Features in Win 11</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2025-01-29T00:41:13.292Z
-updated: 2025-01-31T23:34:20.096Z
+date: 2025-02-14T14:53:26.085Z
+updated: 2025-02-14T16:31:30.585Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,18 +51,18 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-streamlined-strategy-to-create-your-custom-youtube-queue/"><u>[New] 2024 Approved Streamlined Strategy to Create Your Custom YouTube Queue</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-comprehensive-selection-of-top-10-free-srt-changers/"><u>[New] In 2024, The Comprehensive Selection of Top 10 FREE SRT Changers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-past-paints-legal-freedoms-for-classics/"><u>[New] Past Paints Legal Freedoms for Classics</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-techniques-for-capturing-wide-angle-360-photos-effortlessly/"><u>[New] Techniques for Capturing Wide Angle 360 Photos Effortlessly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-your-complete-guide-to-understanding-tiktoks-pfp-symbol/"><u>[Updated] Your Complete Guide to Understanding TikTok’s PFP Symbol</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-breakdown-of-sharex-scrutiny-and-substitutes/"><u>2024 Approved Breakdown of ShareX Scrutiny & Substitutes</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unlocking-instagrams-hidden-filter-tools/"><u>2024 Approved Unlocking Instagram's Hidden Filter Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-facebooks-operational-architecture-plan/"><u>Deciphering Facebook’s Operational Architecture Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-googles-significant-announcements/"><u>Decoding Google's Significant Announcements</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dystopia-major-social-networks-downed/"><u>Digital Dystopia: Major Social Networks Downed</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-social-medias-survivor-the-case-for-facebook/"><u>Dissecting Social Media's Survivor - The Case for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-privacy-dont-join-facebooks-link-ledger/"><u>Dive Into Privacy: Don't Join Facebook's Link Ledger</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/401487-9780446554053-second-sight/"><u>Second Sight | Free Book</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-elevating-your-creations-with-instagrams-soundtrack-feature/"><u>[New] In 2024, Elevating Your Creations with Instagram's Soundtrack Feature</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unlock-the-secrets-essential-tiktok-video-editing-techniques-for-2024/"><u>[New] Unlock the Secrets Essential TikTok Video Editing Techniques for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-facebook-glamourously-on-android-devices/"><u>Exiting Facebook Glamourously on Android Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/immersive-metaverse-reflections-inspirational-messages-for-2024/"><u>Immersive Metaverse Reflections Inspirational Messages for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-sound-of-funny-ringtones-recommended-websites/"><u>In 2024, Sound of Funny Ringtones' Recommended Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-chat-opportunities-invite-on-facebook-messenger/"><u>Maximize Chat Opportunities: Invite on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/metatrend-trumps-social-media-revival/"><u>Metatrend: Trump's Social Media Revival</u></a></li>
+<li><a href="https://facebook.techidaily.com/operating-without-obstruction-whatsapps-functionality-post-privacy-policy/"><u>Operating Without Obstruction: WhatsApp's Functionality Post-Privacy Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/share-your-vision-designing-instagram-friendly-collections/"><u>Share Your Vision: Designing Instagram-Friendly Collections</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/sidestep-the-lure-of-a-gpt-phone-app/"><u>Sidestep the Lure of a GPT Phone App</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unmissable-advantages-of-using-facebook-a-list/"><u>The Unmissable Advantages of Using Facebook: A List</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-ranking-substitutes-for-leawo-dvd-ripper-unleash-superior-quality/"><u>Top-Ranking Substitutes for Leawo DVD Ripper: Unleash Superior Quality</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Itel P40+? | Dr.fone</u></a></li>
 </ul></div>
 

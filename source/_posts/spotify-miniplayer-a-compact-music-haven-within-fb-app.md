@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2025-01-28T20:57:16.089Z
-updated: 2025-02-01T07:30:46.368Z
+date: 2025-02-11T10:11:33.763Z
+updated: 2025-02-15T13:01:09.347Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Enjoy Your Favorite Spotify Content on the Facebook App
 
  Before the rollout of this new miniplayer, it was already possible to share Spotify songs on Facebook with friends and family. But whenever you wanted to listen to them, you were automatically redirected to the Spotify app or website.
@@ -37,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
@@ -52,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
 
  To launch the new Facebook player, simply tap the**Play** button on the Spotify song shared on the News Feed.
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -77,7 +77,7 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -101,22 +101,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-editors-eye-view-visualscape-pro-edition/"><u>[Updated] Editor's Eye View VisualScape Pro Edition</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-facebooks-pathway-to-viral-stardom-explained/"><u>[Updated] In 2024, Facebook's Pathway to Viral Stardom Explained</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-secrets-to-dominating-your-social-networks-featured-pages/"><u>[Updated] In 2024, Secrets to Dominating Your Social Network's Featured Pages</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-revolutionizing-voice-capture-a-compreenas-guide-to-facetime-recording/"><u>[Updated] Revolutionizing Voice Capture A Compreenas Guide to FaceTime Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151722546-be-part-of-the-future-facebooks-10000-metaverse-builders-wanted/"><u>Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted</u></a></li>
-<li><a href="https://facebook.techidaily.com/beginners-blueprint-for-mastering-message-hubs/"><u>Beginner's Blueprint for Mastering Message Hubs</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-for-bilingualmultilingual-content-on-fb/"><u>Best Practices for Bilingual/Multilingual Content on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-brands-presence-8-superior-reasons-to-opt-for-a-business-page/"><u>Boost Your Brand's Presence: 8 Superior Reasons to Opt for a Business Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-social-graces-elevating-your-facebook-groups-fame/"><u>Boosting Social Graces: Elevating Your Facebook Group's Fame</u></a></li>
-<li><a href="https://facebook.techidaily.com/clubhouse-facebook-showdown-new-sound-platforms-unveiled/"><u>Clubhouse-Facebook Showdown: New Sound Platforms Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-fables-influencers-among-most-perpetuators/"><u>Covid Fables: Influencers Among Most Perpetuators</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-lava-yuva-3-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Lava Yuva 3 Without PUK Codes</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-why-apple-discontinued-final-cut-express-what-are-the-major-differences-between-final-cut-express-and-final-cut-pro/"><u>New 2024 Approved Why Apple Discontinued Final Cut Express? What Are the Major Differences Between Final Cut Express and Final Cut Pro?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/progressive-presentation-kick-off/"><u>Progressive Presentation Kick-Off</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145303400-stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-windows-hello-unavailability-issues-in-windows-10-systems/"><u>Troubleshooting Windows Hello Unavailability Issues in Windows 10 Systems</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-record-ruckus-samsung-phone-gaming-chronicles/"><u>[New] Record Ruckus Samsung Phone Gaming Chronicles</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-unveiling-the-essence-of-streaming-with-recordcast-for-2024/"><u>[New] Unveiling the Essence of Streaming with RecordCast for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audiophiles-choice-premium-asmr-recording-mics/"><u>[Updated] 2024 Approved Audiophiles' Choice Premium ASMR Recording Mics</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-exploring-6-exquisite-eastern-themed-homes-in-mc/"><u>2024 Approved Exploring 6 Exquisite Eastern Themed Homes in MC</u></a></li>
+<li><a href="https://facebook.techidaily.com/exemption-persists-vaccine-skeptics-flourish-on-facebook-platform/"><u>Exemption Persists: Vaccine Skeptics Flourish on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hidden-features-for-improved-spotify-use/"><u>Facebook's Hidden Features for Improved Spotify Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-memory-purgatory-how-to-uninvite-acquaintances/"><u>FB's Memory Purgatory: How to Uninvite Acquaintances</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-z-fold-5-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy Z Fold 5</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/profits-from-peoples-partnership-platforms/"><u>Profits From People's Partnership Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/some-bacteria-can-be-tricky-to-classify-using-gram-stain-alone-due-to-atypical-cell-wall-structures-additional-biochemical-tests-may-be-required-for-accurat79/"><u>Some Bacteria Can Be Tricky to Classify Using Gram Stain Alone Due to Atypical Cell Wall Structures; Additional Biochemical Tests May Be Required for Accurate Identification.</u></a></li>
+<li><a href="https://facebook.techidaily.com/sprinkle-life-back-into-your-dead-end-facebook-account/"><u>Sprinkle Life Back Into Your Dead-End Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-of-your-digital-footprint-profiles-vs-unames/"><u>The Essence of Your Digital Footprint: Profiles vs UNAMES</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ultimate-guide-to-choosing-the-perfect-small-tablets-in-202-cued-industry-experts-weigh-in/"><u>Ultimate Guide to Choosing the Perfect Small Tablets in 202 Cued: Industry Experts Weigh In</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unveiling-the-best-zoomed-experience-in-virtual-meetings-for-2024/"><u>Unveiling the Best Zoomed Experience in Virtual Meetings for 2024</u></a></li>
 </ul></div>
 

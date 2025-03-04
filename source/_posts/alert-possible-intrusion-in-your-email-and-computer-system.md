@@ -1,7 +1,7 @@
 ---
 title: Alert! Possible Intrusion in Your Email & Computer System
-date: 2024-08-23T02:06:30.323Z
-updated: 2024-08-24T02:06:30.323Z
+date: 2025-02-11T10:51:59.623Z
+updated: 2025-02-14T18:31:26.936Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/ebbfde368b81e7f396fe512ace44b149bef6fef39
  We take a look at how you can keep your PC safe and check if someone has been using it this week. We also tell you what anyone who has hacked your email account might do with it, and show you how to check your Google activity.
 
  You can subscribe to the Really Useful Podcast on [Apple Podcasts](https://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) ,[Spotify](https://open.spotify.com/show/283gDxLd6OTNEpRq6tN7ha) ,[Google Podcasts](https://www.google.com/podcasts?feed=aHR0cHM6Ly9hbmNob3IuZm0vcy8zMWJlNDcwL3BvZGNhc3QvcnNz) ,[Amazon Music and Audible](https://music.amazon.co.uk/podcasts/20ab73d4-5da2-46c7-a17f-dc6eb39bdb48/The-Really-Useful-Podcast) ,[Player FM](https://player.fm/series/the-really-useful-podcast-2491856) , or copy the [RSS feed](https://feeds.transistor.fm/the-really-useful-podcast) into your podcast player.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Shownotes
 
@@ -39,14 +43,11 @@ We finish the show with the following recommendations:
 
  Christian Cawley and Gavin Phillips host this podcast. Contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) and [@gavinspavin](https://twitter.com/gavinspavin) , with your suggestions for future topics. Oh, and don't forget to leave us a review on [Apple Podcasts](http://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) !
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -55,13 +56,22 @@ We finish the show with the following recommendations:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-top-10-compact-drones-current-market-leaders-for-2024/"><u>[Updated] Top 10 Compact Drones Current Market Leaders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-disconnecting-instagram-from-facebook/"><u>Ensuring Privacy: Disconnecting Instagram From Facebook</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-toms-hardware-a-comprehensive-guide-t17239718756091/"><u>Exploring Tom's Hardware: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-controlled-cycle-of-online-socializing/"><u>Implementing a Controlled Cycle of Online Socializing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-instant-image-clarity-picart-background-cleansing-hacks/"><u>In 2024, Instant Image Clarity PicArt Background Cleansing Hacks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-podcast-prominence-with-advanced-seo-techniques/"><u>In 2024, Unlock Podcast Prominence with Advanced SEO Techniques</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/innovative-ai-development-sparks-progress-in-autonomous-vehicle-technology-insights-from-zdnet/"><u>Innovative AI Development Sparks Progress in Autonomous Vehicle Technology - Insights From ZDNet</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-diversity-croatia/"><u>Language Diversity: Croatia</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-art-of-screenshots-for-personal-computers/"><u>Mastering the Art of Screenshots for Personal Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/minimize-custom-advertisements-on-online-networks/"><u>Minimize Custom Advertisements on Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-new-frontiers-what-are-crypto-stability-tokens/"><u>Navigating New Frontiers: What Are Crypto Stability Tokens?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/y-sensations-top-youtube-food-influencers/"><u>Savory Sensations Top YouTube Food Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-7-content-planning-tools-for-maximum-impact/"><u>Top 7 Content Planning Tools for Maximum Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-demands-unbiased-platforms-in-freedom-of-expression-case/"><u>Trump Demands Unbiased Platforms in Freedom of Expression Case</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-countries-have-banned-the-worlds-most-popular-site-facebook/"><u>What Countries Have Banned the World’s Most Popular Site, Facebook?</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->

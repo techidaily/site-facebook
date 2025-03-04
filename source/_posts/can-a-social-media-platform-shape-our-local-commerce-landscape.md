@@ -1,7 +1,7 @@
 ---
 title: Can a Social Media Platform Shape Our Local Commerce Landscape?
-date: 2024-08-15T18:43:39.641Z
-updated: 2024-08-16T18:43:39.641Z
+date: 2025-02-11T16:57:03.139Z
+updated: 2025-02-15T13:16:53.142Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282
 
  The company is building physical stores in its bid to create a metaverse, but why retail? Apparently, Meta’s stores will focus on connected video hardware, from conferencing to Oculus VR.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook May Be Opening Retail Stores Near You
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook,[now known as Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , is discussing plans to build retail stores around the world. They will showcase the company’s virtual reality and augmented reality products, according to the [New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) , which claims to have seen supporting documents.
 
@@ -32,13 +40,15 @@ thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282
  The stores may also showcase voice-activated sunglasses, developed in conjunction with Ray-Ban, that you can use to take photos and videos.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Could Open Retail Stores
 
 ![Oculus Quest 2 headset and controllers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Oculus-Quest-2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Essentially, Meta wants you to hop onto its vision and buy into the concepts of virtual reality and augmented reality. The [New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) says the documents reveal that the focus of the retail stores is to make the world “more open and connected.”
@@ -56,8 +66,9 @@ thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282
  And Meta’s plans for building these stores aren’t cast in stone. Because the project is still in development, there’s a possibility they may scrap it altogether.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Doubling Down on Its Plans to Build a Metaverse
 
  Meta has been undergoing changes, and Mark Zuckerberg wants to make sure the metaverse is one of them. Zuckerberg has been talking about the metaverse a lot in 2021, so the tech giant’s PR push comes as no surprise.
@@ -66,14 +77,11 @@ thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282
 
 ​​​​​
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,6 +90,20 @@ thumbnail: https://thmb.techidaily.com/59bb6881bb451ab6f15e5a33afa6f776cb1ec0282
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-complete-overview-screenflow-v4-for-macos-for-2024/"><u>[New] Complete Overview ScreenFlow v4 for macOS for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-maximize-your-workflow-with-efficient-use-of-macs-preview-tool/"><u>[New] Maximize Your Workflow with Efficient Use of Mac's Preview Tool</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-elevating-discussions-speaking-to-subscribers-effectively/"><u>[Updated] In 2024, Elevating Discussions Speaking to Subscribers Effectively</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-leveraging-hashtags-in-twitter-advertising-for-2024/"><u>[Updated] Leveraging Hashtags in Twitter Advertising for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategic-hashing-techniques-for-success-in-youtube-game-vids/"><u>[Updated] Strategic Hashing Techniques for Success in YouTube Game Vids</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-realme-c51-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Realme C51 Phone When You Forget the Password</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/benchmark-of-best-4k-youtube-to-mp3-video-processors/"><u>Benchmark of Best 4K YouTube to MP3 Video Processors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cadences-and-crescendos-your-ringtone-repository-guide/"><u>Cadences and Crescendos Your Ringtone Repository Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-catalyst-for-change-challenge-or-conflict/"><u>Facebook: Catalyst for Change, Challenge or Conflict?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-prune-out-of-touch-fb-content/"><u>How to Prune Out of Touch FB Content</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-iphone-14-pro-smoothly-by-drfone-ios/"><u>How To Remove iCloud On iPhone 14 Pro Smoothly</u></a></li>
+<li><a href="https://facebook.techidaily.com/share-fb-content-embrace-transfers-to-top-3-platforms/"><u>Share FB Content: Embrace Transfers to Top 3 Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-teamwork-approach-discover-facebooks-8-elements/"><u>Transform Your Teamwork Approach - Discover Facebook’s 8 Elements</u></a></li>
+</ul></div>
 

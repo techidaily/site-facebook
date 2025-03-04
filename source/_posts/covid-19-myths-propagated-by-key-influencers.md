@@ -1,7 +1,7 @@
 ---
 title: Covid-19 Myths Propagated by Key Influencers
-date: 2024-08-15T18:44:04.877Z
-updated: 2024-08-16T18:44:04.877Z
+date: 2025-02-11T10:33:15.445Z
+updated: 2025-02-15T02:52:00.791Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/dc576bce0a179ba7a635140f867e3e38f81d54c67
  With all the misleading and false information about the pandemic going around on social media, you would expect that hundreds or thousands of people are responsible for the spread across the internet's most popular platforms.
 
 But what if, in reality, there are only 12 prime suspects?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
@@ -41,8 +45,9 @@ But what if, in reality, there are only 12 prime suspects?
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -55,14 +60,11 @@ But what if, in reality, there are only 12 prime suspects?
 
  Unfortunately, even as Facebook, Instagram, and Twitter make moves to fight against misinformation, this doesn't seem to be a battle that any of the platforms is actually winning. Something more aggressive needs to be done, and soon.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,6 +73,20 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-5-essential-strategies-for-successful-twitch-livestreaming-for-2024/"><u>[New] 5 Essential Strategies for Successful Twitch Livestreaming for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-using-hashtags-for-youtube-gaming-videos/"><u>[New] The Ultimate Guide To Using Hashtags For YouTube Gaming Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tailoring-audio-alerts-setting-custom-ringtones-and-sounds-on-android-devices-for-2024/"><u>[Updated] Tailoring Audio Alerts Setting Custom Ringtones & Sounds on Android Devices for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-evolved-discover-the-features-that-matter-most/"><u>ChatGPT Evolved: Discover the Features That Matter Most!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-lenovo-bluetooth-drivers-for-windows-710-free-reliable-update-guide/"><u>Get the Latest Lenovo Bluetooth Drivers for Windows 7/10 - Free, Reliable Update Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/goovision-elite-next-gen-screen-capture/"><u>GooVision Elite Next-Gen Screen Capture</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-rewards-you-with-improved-earnings-mechanisms/"><u>Instagram Rewards You with Improved Earnings Mechanisms</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-queries-revealing-friends-preferences-on-messenger/"><u>Interactive Queries: Revealing Friends' Preferences on Messenger</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/logiciel-winxdvd-compagnie-dextraction-et-conversion-video-experte-offrant-les-fonctionnalites-dtransfert-iphone/"><u>Logiciel WinXDVD : Compagnie D'Extraction Et Conversion Vidéo Experte Offrant Les Fonctionnalités D’Transfert iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-on-this-day-feature-like-a-pro/"><u>Navigating Facebook’s On This Day Feature Like a Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-decreasing-time-on-social-media-platforms-especially-fb-reels/"><u>Strategies for Decreasing Time on Social Media Platforms, Especially Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-swap-your-facebook-id-image/"><u>Swiftly Swap Your Facebook ID Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-accuses-g-f-t-of-hindering-free-speech-and-opinions/"><u>Trump Accuses G-F-T of Hindering Free Speech and Opinions</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2025-01-29T18:59:05.709Z
-updated: 2025-01-31T18:52:50.933Z
+date: 2025-02-08T01:05:40.927Z
+updated: 2025-02-14T19:23:18.022Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,21 +61,20 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-unleashing-the-power-of-screen-capture-with-hp-notebooks/"><u>[New] Unleashing the Power of Screen Capture with HP Notebooks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-amass-1000-visionary-supporters-fast-track-style/"><u>[Updated] 2024 Approved Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-revolutionizing-adventure-recording-with-garmin-ultra-30/"><u>[Updated] 2024 Approved Revolutionizing Adventure Recording with Garmin Ultra 30</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-an-impactful-waterway-teaser/"><u>[Updated] Crafting an Impactful Waterway Teaser</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-tailored-sound-solutions-ideal-mics-for-educational-gaming-and-blogging-channels/"><u>[Updated] Tailored Sound Solutions Ideal Mics For Educational, Gaming & Blogging Channels</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/assemble-mp3-files-with-powerpoint-narratives/"><u>Assemble MP3 Files with PowerPoint Narratives</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-change-from-a-narrative-perspective/"><u>Decoding Facebook's Change From a Narrative Perspective</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-decision-to-quit-face-recognition-on-facebook/"><u>Decoding Meta's Decision to Quit Face Recognition on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-age-shift-facebooks-social-influence/"><u>Digital Age Shift: Facebook’s Social Influence</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-goodbye-rituals-facebook-post-mortem-options/"><u>Digital Goodbye Rituals: Facebook Post-Mortem Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-the-world-of-virtual-mall-on-fb-fridays/"><u>Discover the World of Virtual Mall on FB Fridays</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-non-facebook-messenger-platforms/"><u>Discovering Non-Facebook Messenger Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-fb-profile-with-impactful-covers/"><u>Elevate Your Fb Profile With Impactful Covers</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/keep-your-pc-running-smoothly-essential-guide-to-modifying-motherboard-drivers-on-windows-os/"><u>Keep Your PC Running Smoothly: Essential Guide to Modifying Motherboard Drivers on Windows OS</u></a></li>
-<li><a href="https://some-tips.techidaily.com/leading-macbook-and-imac-models-a-comprehensive-guide-from-zdnet/"><u>Leading MacBook and iMac Models : A Comprehensive Guide From ZDNet</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-fixes-to-get-the-scroll-wheel-working-again-on-your-logitech-mouse/"><u>Quick Fixes to Get the Scroll Wheel Working Again on Your Logitech Mouse</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-techniques-for-streamers-on-macos/"><u>[New] Expert Techniques for Streamers on macOS</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-depth-instructions-installing-countdown-clocks-in-obs-for-2024/"><u>[Updated] In-Depth Instructions Installing Countdown Clocks in OBS for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-crafting-the-perfect-soundtrack-for-your-vimeo-content/"><u>2024 Approved Crafting the Perfect Soundtrack for Your Vimeo Content</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-overwriting-game-achievements-on-steam/"><u>Guide to Overwriting Game Achievements on Steam</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broadcast-your-location-in-a-chat-room/"><u>How to Broadcast Your Location in a Chat Room</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-note-30-pro-phone-without-password-by-drfone-android/"><u>How To Unlock Infinix Note 30 Pro Phone Without Password?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-poco-c65-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Poco C65? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-htc-u23-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From HTC U23 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-shifts-in-meaning-for-facebook-page-names/"><u>Interpreting Shifts in Meaning for Facebook Page Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-image-permissions/"><u>Navigating Facebook Image Permissions</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-compress-mpeg2-files-with-virtualdub-a-step-by-step-guide/"><u>New Compress MPEG2 Files with VirtualDub A Step-by-Step Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/solve-the-user-account-control-prompt-operation-requires-administrator-level-issue-on-your-windows-machine/"><u>Solve the 'User Account Control Prompt: Operation Requires Administrator Level' Issue on Your Windows Machine</u></a></li>
+<li><a href="https://facebook.techidaily.com/tuning-up-your-social-media-visibility/"><u>Tuning Up Your Social Media Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-of-(securityfacebookmailcom)-for-authenticity-and-protection/"><u>Validation of @<security@facebookmail.com> for Authenticity and Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-new-us-antitrust-laws-and-how-will-they-takedown-big-tech/"><u>What Are the New US Antitrust Laws and How Will They Takedown Big Tech?</u></a></li>
 </ul></div>
 

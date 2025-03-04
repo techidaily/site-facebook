@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2025-01-29T08:21:34.720Z
-updated: 2025-02-01T03:20:39.950Z
+date: 2025-02-13T12:49:16.116Z
+updated: 2025-02-15T10:47:43.150Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Spotify Team up on Project Boombox
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -67,19 +67,18 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-prime-6-web-spaces-for-corporate-social-connections/"><u>[New] 2024 Approved Prime 6 Web Spaces for Corporate Social Connections</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-complete-manual-for-instagram-selfies/"><u>[New] 2024 Approved The Complete Manual for Instagram Selfies</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/xploring-ajeys-youtube-revenue/"><u>[New] Exploring Ajey's YouTube Revenue</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-installation-of-brother-dcp-l2540dw-driver-for-microsoft-windows-os/"><u>Easy Installation of Brother DCP-L2540DW Driver for Microsoft Windows OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-new-virtual-reality-potential-on-messenger/"><u>Facebook Unveils New Virtual Reality Potential on Messenger</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/traction-in-the-digital-sphere-explore-the-quintessential-five-youtube-tactics-for-2024/"><u>Gain Traction in the Digital Sphere - Explore the Quintessential Five YouTube Tactics for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/go-live-on-instagram-with-minimalist-approach/"><u>Go Live on Instagram With Minimalist Approach</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-vlcs-features-for-mp4-and-diverse-format-changes/"><u>In 2024, Navigating VLC's Features for MP4 & Diverse Format Changes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-the-secrets-of-lut-customization-in-premiere/"><u>In 2024, Unveiling the Secrets of LUT Customization in Premiere</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-likes-with-strategic-use-of-hashtags-in-facebook-posts/"><u>Maximizing Likes with Strategic Use of Hashtags in Facebook Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-reassessment-of-trumps-status/"><u>Platform Reassessment of Trumps' Status</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/tips-to-reduce-compression-artifacts-in-obs/"><u>Tips to Reduce Compression Artifacts in OBS</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-whitelist-system/"><u>Understanding Facebook's Whitelist System</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-why-disable-isnt-an-option-for-facebook-suggests/"><u>Understanding Why Disable Isn’t an Option for Facebook Suggests</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-business-slide-show-essentials-free-access-and-customization/"><u>[Updated] Business Slide Show Essentials Free Access & Customization</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-smartphone-identity-iphone-x-and-galaxy-phones-through-the-lens-of-faces/"><u>[Updated] In 2024, Smartphone Identity IPhone X and Galaxy Phones Through the Lens of Faces</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-joins-the-rust-foundation-to-help-grow-the-programming-language/"><u>Facebook Joins the Rust Foundation to Help Grow the Programming Language</u></a></li>
+<li><a href="https://win-dash.techidaily.com/guide-to-resolve-unrecognized-usb-devices-on-windows-11/"><u>Guide to Resolve Unrecognized USB Devices on Windows 11</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-6s-plus-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset Apple iPhone 6s Plus to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/melodic-sharing-on-instagram-legalities-for-2024/"><u>Melodic Sharing on Instagram Legalities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-journey-backwards-revoking-access-then-vanishing-your-facebook-business-page/"><u>The Journey Backwards: Revoking Access, Then Vanishing Your Facebook Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shift-how-meta-plans-to-kill-off-fbs-face-tech/"><u>The Shift: How Meta Plans to Kill Off FB’s Face Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-social-spot-how-to-silence-your-fb-visibility/"><u>The Unseen Social Spot: How to Silence Your FB Visibility</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/transform-your-word-docs-into-professional-pdfs-using-yl-software-solutions/"><u>Transform Your Word Docs Into Professional PDFs Using YL Software Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transforming-replies-with-ai-merging-gpt-3-and-whatsapp-help/"><u>Transforming Replies with AI: Merging GPT-3 and WhatsApp Help</u></a></li>
+<li><a href="https://facebook.techidaily.com/verified-victory-quest-who-reigns-supreme-gold-metas-or-silver-twitters/"><u>Verified Victory Quest: Who Reigns Supreme, Gold Metas or Silver Twitters?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-social-media-personalization-is-unchangeable/"><u>Why Social Media Personalization Is Unchangeable?</u></a></li>
 </ul></div>
 

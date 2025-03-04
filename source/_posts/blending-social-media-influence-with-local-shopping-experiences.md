@@ -1,7 +1,7 @@
 ---
 title: Blending Social Media Influence With Local Shopping Experiences
-date: 2024-08-15T18:44:10.101Z
-updated: 2024-08-16T18:44:10.101Z
+date: 2025-02-11T05:16:34.571Z
+updated: 2025-02-15T08:20:51.267Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
  The company is building physical stores in its bid to create a metaverse, but why retail? Apparently, Meta’s stores will focus on connected video hardware, from conferencing to Oculus VR.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook May Be Opening Retail Stores Near You
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook,[now known as Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , is discussing plans to build retail stores around the world. They will showcase the company’s virtual reality and augmented reality products, according to the [New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) , which claims to have seen supporting documents.
 
@@ -32,14 +40,15 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
  The stores may also showcase voice-activated sunglasses, developed in conjunction with Ray-Ban, that you can use to take photos and videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Could Open Retail Stores
 
 ![Oculus Quest 2 headset and controllers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Oculus-Quest-2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Essentially, Meta wants you to hop onto its vision and buy into the concepts of virtual reality and augmented reality. The [New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) says the documents reveal that the focus of the retail stores is to make the world “more open and connected.”
@@ -57,12 +66,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  And Meta’s plans for building these stores aren’t cast in stone. Because the project is still in development, there’s a possibility they may scrap it altogether.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Doubling Down on Its Plans to Build a Metaverse
 
  Meta has been undergoing changes, and Mark Zuckerberg wants to make sure the metaverse is one of them. Zuckerberg has been talking about the metaverse a lot in 2021, so the tech giant’s PR push comes as no surprise.
@@ -71,14 +77,11 @@ No advertising on the website.
 
 ​​​​​
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,6 +90,23 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-sharing-is-caring-but-not-without-copyright-checks-tiktok/"><u>[New] 2024 Approved Sharing Is Caring - But Not Without Copyright Checks (TikTok)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/mpower-your-video-creation-blending-youtube-and-imovie-for-impressive-results/"><u>[New] Empower Your Video Creation Blending YouTube and iMovie for Impressive Results</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-unlocking-the-potential-ps4-recording-techniques-in-obs/"><u>[New] In 2024, Unlocking the Potential PS4 Recording Techniques in OBS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metaverse-vs-multiverse-a-comprehensive-breakdown/"><u>[New] Metaverse vs Multiverse A Comprehensive Breakdown</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hook-creating-headline-helper/"><u>2024 Approved Hook-Creating Headline Helper</u></a></li>
+<li><a href="https://facebook.techidaily.com/elude-common-facebook-frauds-the-essential-list-of-14/"><u>Elude Common Facebook Frauds: The Essential List of 14</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-mind-behavior-interactions-the-latest-isbm-cbt-strategies/"><u>Harnessing Mind-Behavior Interactions: The Latest ISBM CBT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-life-on-facebook-protecting-you-from-unfamiliar-eyes/"><u>Hidden Life on Facebook: Protecting You From Unfamiliar Eyes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-apple-iphone-se-by-drfone-ios/"><u>How to Fix when Apple Account Locked On Apple iPhone SE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-effective-privacy-rules-for-youth-on-facebook/"><u>Implementing Effective Privacy Rules for Youth on Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/optimizing-channels-with-tubebuddy-expertise/"><u>Optimizing Channels with TubeBuddy Expertise</u></a></li>
+<li><a href="https://common-error.techidaily.com/restoring-illuminated-typing-fixes-for-malfunctioning-keyboard-lights-mac-and-pc/"><u>Restoring Illuminated Typing: Fixes for Malfunctioning Keyboard Lights (Mac & PC)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shutdown-unraveling-causes/"><u>Social Media Shutdown: Unraveling Causes</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-your-fb-content-global-upload-and-transfer-to-major-websites-now/"><u>Take Your Fb Content Global: Upload and Transfer to Major Websites Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-foundations-of-hosting-virtual-festivals-on-fb/"><u>The Foundations of Hosting Virtual Festivals on FB</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11-select-and-modify-your-screensaver/"><u>Windows 11: Select and Modify Your Screensaver</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Global Digital Disconnect: FB, WhatsApp, & Instagram Downed"
-date: 2025-01-17T16:10:37.182Z
-updated: 2025-01-18T16:05:37.519Z
+date: 2025-02-14T11:05:48.716Z
+updated: 2025-02-15T01:23:28.508Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,18 +87,22 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/1716070221557-updated-in-2024-snap-and-save-your-android-no-price-tag/"><u>[Updated] In 2024, Snap & Save Your Android - No Price Tag!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-pioneering-youtube-success-stories-via-tubebuddy/"><u>2024 Approved Pioneering YouTube Success Stories via TubeBuddy</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-extraneous-exchanges-from-your-fb-posts-quickly/"><u>Eliminate Extraneous Exchanges From Your FB Posts Quickly</u></a></li>
-<li><a href="https://common-error.techidaily.com/ending-taskbar-troubles-in-windows-10-effective-solutions-and-tips/"><u>Ending Taskbar Troubles in Windows 10: Effective Solutions & Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-llifes-role-as-we-enter-the-metaverse-phase/"><u>Exploring LLife’s Role as We Enter the Metaverse Phase</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/googles-latest-masterpiece-palm-2-vs-openais-gpt-4-an-in-depth-analysis-of-the-ai-revolution/"><u>Google's Latest Masterpiece, PaLM 2 Vs. OpenAI's GPT-4 – An In-Depth Analysis of the AI Revolution</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/highlighting-twitvideos-twitters-viral-video-trends/"><u>Highlighting TwitVideos Twitter's Viral Video Trends</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-guide-to-mastering-igtv-content-creation/"><u>In 2024, The Ultimate Guide to Mastering IGTV Content Creation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/methodology-to-overhaul-windows-11s-new-text-based-search/"><u>Methodology to Overhaul Windows 11'S New Text-Based Search</u></a></li>
-<li><a href="https://facebook.techidaily.com/mirage-in-the-network-uncovering-impersonators/"><u>Mirage in the Network: Uncovering Impersonators</u></a></li>
-<li><a href="https://facebook.techidaily.com/monetizing-friendships-how-social-websites-earn-big/"><u>Monetizing Friendships: How Social Websites Earn Big</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-the-purpose-of-facebooks-moderation-council/"><u>What Is The Purpose Of Facebook’s Moderation Council?</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/1725289842644-iso/"><u>アビファイルへの自由なISOからの変換手順</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-breakthrough-strategies-for-youtube-short-problem-solving/"><u>[New] 2024 Approved Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-get-the-videos-you-love-from-pinterest-for-free/"><u>[Updated] Get the Videos You Love From Pinterest for Free</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-augment-your-design-abilities-the-10-most-powerful-android-graphics-tools/"><u>[Updated] In 2024, Augment Your Design Abilities The 10 Most Powerful Android Graphics Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-connecting-live-streamers-easily-share-from-twitch-to-fb/"><u>[Updated] In 2024, Connecting Live Streamers Easily Share From Twitch to FB</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-leading-android-moba-games-unveiled-for-2024/"><u>[Updated] Leading Android MOBA Games Unveiled for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-premium-best-ten-spotifys-superior-recording-tools-for-2024/"><u>[Updated] Premium Best Ten Spotify's Superior Recording Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/identifying-and-eliminating-iphone-spying-tools-using-malwarefox-solutions/"><u>Identifying and Eliminating iPhone Spying Tools Using MalwareFox Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-streamlining-your-archive-converting-snapchats-ephemeral-snaps/"><u>In 2024, Streamlining Your Archive Converting Snapchat's Ephemeral Snaps</u></a></li>
+<li><a href="https://facebook.techidaily.com/infuse-text-with-tune-utilizing-soundemojis-in-chats/"><u>Infuse Text with Tune: Utilizing Soundemojis in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-assesses-president-trumps-status/"><u>Social Network Assesses President Trump's Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-unliking-on-websites/"><u>The Impact of Unliking on Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-stance-on-online-communities-negative-dominant/"><u>U.S. Stance on Online Communities: Negative Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-the-go-to-video-editor-for-mac-professionals-adobe-premiere-pro/"><u>Updated 2024 Approved The Go-To Video Editor for Mac Professionals Adobe Premiere Pro</u></a></li>
 </ul></div>
 

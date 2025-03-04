@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Presence Is a Frightening Reality
-date: 2025-01-28T05:38:11.536Z
-updated: 2025-01-31T20:01:38.498Z
+date: 2025-02-14T12:10:19.708Z
+updated: 2025-02-15T00:35:43.198Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to[Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
  This immediately aligns with Facebook's decade-old objective of dominating the social media space. Because of this unrivaled dominance, Meta is like a god unto itself: it faces no market-enforced accountability.
@@ -45,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Meta Wields Too Much Power
@@ -65,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
@@ -77,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ​​​​​​
 
@@ -96,16 +96,16 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -137,22 +137,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-dive-deep-into-google-meet-a-free-host-and-participants-guide/"><u>[Updated] Dive Deep Into Google Meet A Free Host & Participant's Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-optimal-yt-thumbnails-crafting-perfect-video-previews/"><u>[Updated] In 2024, Optimal YT Thumbnails Crafting Perfect Video Previews</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-inside-stardust-a-comprehensive-guide-to-mastery-in-stardew-and-its-intriguing-ginger-isle/"><u>2024 Approved Inside Stardust A Comprehensive Guide to Mastery in Stardew and Its Intriguing Ginger Isle</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-peek-into-pixel-play-resolution-basics-explained/"><u>2024 Approved Peek Into Pixel Play Resolution Basics Explained</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-insiders-look-at-editing-in-youtube-studio/"><u>2024 Approved The Insider's Look at Editing in YouTube Studio</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-online-visibility-profile-pics-that-attract-more-engagement/"><u>Enhancing Your Online Visibility: Profile Pics That Attract More Engagement</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tial-12-flipscreen-cam-titles-for-optimal-vlogging-for-2024/"><u>Essential 12 Flipscreen Cam Titles for Optimal Vlogging for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/excluding-political-and-religious-discussions-in-social-media/"><u>Excluding Political & Religious Discussions in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/framework-for-handling-underage-profile-complaints/"><u>Framework for Handling Underage Profile Complaints</u></a></li>
-<li><a href="https://facebook.techidaily.com/harmonizing-the-feeds-a-tale-of-two-networks/"><u>Harmonizing the Feeds: A Tale of Two Networks</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-fast-forward-to-forgotten-reddit-threads/"><u>In 2024, Fast Forward to Forgotten Reddit Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/its-getting-easier-to-customize-your-facebook-feed/"><u>It's Getting Easier to Customize Your Facebook Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-approaches-to-restore-deactivated-facebook-id/"><u>Key Approaches to Restore Deactivated Facebook ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-messenger-kids-sleep-mode-for-smoother-experience/"><u>Navigating Through Messenger Kids' Sleep Mode for Smoother Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-securing-facebook-profile-and-group-links/"><u>Step-by-Step: Securing Facebook Profile & Group Links</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-error-messages-successfully-installing-incompatible-drivers/"><u>Troubleshooting Error Messages: Successfully Installing Incompatible Drivers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-effective-storytelling-through-youtube-and-facebook/"><u>[New] Effective Storytelling Through YouTube and Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-googles-enhanced-technique-for-flawless-speech-transcription/"><u>[New] In 2024, Google's Enhanced Technique for Flawless Speech Transcription</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-speedy-retrieval-for-elusive-snaps-for-2024/"><u>[New] Speedy Retrieval for Elusive Snaps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-total-data-usage-24-hour-videography-in-gbs/"><u>[Updated] In 2024, Total Data Usage 24-Hour Videography in GBs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-guide-to-growing-instagram-video-audiences-for-2024/"><u>[Updated] The Guide to Growing Instagram Video Audiences for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-choreographing-spellbinding-short-films/"><u>2024 Approved Choreographing Spellbinding Short Films</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-yuva-3-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Lava Yuva 3 Phone without Google Account?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-prying-eyes-german-mandate-against-facebooks-whatsapp-data-invasion/"><u>No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-interaction-as-an-income-source/"><u>Online Interaction as an Income Source</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-stealth-mode-concealing-your-facebook-and-instagram-enjoyment/"><u>Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-your-social-media-routine-best-fb-configs/"><u>Revolutionize Your Social Media Routine - Best Fb Configs</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-trusted-in-social-trade-essential-marketplace-security-tips/"><u>Stay Trusted in Social Trade: Essential Marketplace Security Tips</u></a></li>
 </ul></div>
 

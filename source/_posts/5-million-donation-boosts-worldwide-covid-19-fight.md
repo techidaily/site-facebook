@@ -1,7 +1,7 @@
 ---
 title: $5 Million Donation Boosts Worldwide COVID-19 Fight
-date: 2024-08-23T02:05:17.222Z
-updated: 2024-08-24T02:05:17.222Z
+date: 2025-02-09T21:25:17.195Z
+updated: 2025-02-14T17:31:18.726Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/be7eb26b929d376d352a2b6560c781f129b853a98
 
  In an effort to help more communities get access to the COVID-19 vaccines, Facebook announced that it's donating $5 million to the World Health Organization's (WHO)[Go Give One](https://gogiveone.org/) fundraiser. The goal of the fundraiser is to ensure that everyone gets access to the COVID-19 vaccine, including those living in developing countries.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
 
  A post on [the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
@@ -27,9 +31,17 @@ thumbnail: https://thmb.techidaily.com/be7eb26b929d376d352a2b6560c781f129b853a98
 
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image Credit: Facebook
 
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
 
@@ -38,6 +50,10 @@ Image Credit: Facebook
  Facebook is working with the Kaiser Family Foundation, BlackDoctor.org, and the National Academy of Medicine in the US to "to amplify content that features black doctors, nurses and researchers answering common questions about COVID-19 vaccines."
 
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
 
@@ -48,20 +64,18 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Fights for Vaccine Equity
 
  It looks like Facebook is trying to help promote the COVID-19 vaccines both on and off the platform. While Facebook's donation will go towards helping the most vulnerable communities receive the COVID-19 vaccine, the platform-wide vaccine campaigns will also encourage users to get vaccinated.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,8 +84,24 @@ Image Credit: Facebook
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-masterful-video-marketing-techniques-youtube-editions-top-5-list/"><u>[New] 2024 Approved Masterful Video Marketing Techniques - YouTube Edition's #Top 5 List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-premium-mp4-channel-updater-for-2024/"><u>[Updated] Premium MP4 Channel Updater for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-snippets-from-cinema-to-skillful-editors-arsenal/"><u>2024 Approved Snippets From Cinema to Skillful Editors' Arsenal</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-engagements-unpacking-verified-metas-vs-blue-badges-battlegrounds/"><u>Elite Engagements: Unpacking Verified Metas Vs. Blue Badges Battlegrounds</u></a></li>
+<li><a href="https://win-bits.techidaily.com/extend-the-lifespan-of-your-computer-with-these-cost-free-tricks-beating-the-end-of-support-in-windows-11-gadgetflow/"><u>Extend the Lifespan of Your Computer with These Cost-Free Tricks, Beating the End of Support in Windows 11 | GadgetFlow</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-purity-5-must-try-methods/"><u>Facebook Purity: 5 Must-Try Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-hub-podcast-and-live-audio-expansion/"><u>Facebook's Latest Hub: Podcast & Live Audio Expansion</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-x-fold-2-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo X Fold 2 Phone FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-metas-enhanced-privacy-policy-changes/"><u>Inside Meta's Enhanced Privacy Policy Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-editing-account-details-on-facebook/"><u>Instructions: Editing Account Details on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-community-clean-mastery-of-new-facebook-group-policies/"><u>Keeping Your Community Clean: Mastery of New Facebook Group Policies</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-online-video-blurring-a-free-and-simple-solution-for-2024/"><u>New Online Video Blurring A Free and Simple Solution for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/personalizing-the-new-control-center-on-iphone-using-ios-18-a-step-by-step-guide/"><u>Personalizing the New Control Center on iPhone Using iOS 18: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/retrace-mechanic-setup/"><u>Retrace Mechanic Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-chats-facebook-introduces-messenger-and-insta-tweaks/"><u>Revolutionizing Chats: Facebook Introduces Messenger & Insta Tweaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/switching-your-facebook-page-for-a-modern-identity/"><u>Switching Your Facebook Page for a Modern Identity</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-xiaomi-14-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Xiaomi 14 Location | Dr.fone</u></a></li>
+</ul></div>
 

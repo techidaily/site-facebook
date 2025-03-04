@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2025-01-31T06:55:23.168Z
-updated: 2025-02-01T01:34:03.109Z
+date: 2025-02-08T11:05:48.983Z
+updated: 2025-02-15T00:43:36.663Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Get a Facebook Account Memorialized
@@ -45,7 +45,7 @@ To get a Facebook account memorialized, follow these steps:
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
@@ -55,16 +55,12 @@ To get a Facebook account memorialized, follow these steps:
 
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
@@ -88,7 +84,7 @@ To get a Facebook account memorialized, follow these steps:
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
@@ -99,6 +95,10 @@ To get a Facebook account memorialized, follow these steps:
  Facebook takes a couple of days to review a request. After that, the account will be deleted if you can satisfy Facebook that the person has actually passed away.
 
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
 
@@ -123,20 +123,20 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-explore-and-apply-instagrams-latest-filters-for-stunning-feeds/"><u>[New] Explore and Apply Instagram's Latest Filters for Stunning Feeds</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-revenue-in-20-second-chunks-youtube-shorts-magic-for-2024/"><u>[Updated] Crafting Revenue in 20-Second Chunks YouTube Shorts Magic for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-revolutionize-visual-content-leading-montage-tools-for-phones/"><u>[Updated] Revolutionize Visual Content Leading Montage Tools for Phones</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-follows-and-unfollows-tips-for-effective-use/"><u>Decoding Facebook Follows and Unfollows: Tips for Effective Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-facebook-content-moderation-authority/"><u>Decoding the Facebook Content Moderation Authority</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-facebooks-architectural-framework/"><u>Delving Into Facebook’s Architectural Framework</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-deception-how-design-undermines-privacy/"><u>Digital Deception: How Design Undermines Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-benefits-of-facebooks-touch-features/"><u>Discovering the Benefits of Facebook's Touch Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-strategies-reactivating-locked-out-fb-accounts/"><u>Effective Strategies: Reactivating Locked-Out Fb Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-disassembly-method-for-facebook-communities/"><u>Efficient Disassembly Method for Facebook Communities</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-honor-magic-6-pro-screen-sharing-drfone-by-drfone-android/"><u>How To Do Honor Magic 6 Pro Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-isolating-still-images-from-motion-in-windows-11-photos/"><u>In 2024, Isolating Still Images From Motion in Windows 11 Photos</u></a></li>
-<li><a href="https://win-web.techidaily.com/schutze-deine-dateien-mit-dem-norton-pc-cloud-backup-fuhre-es-einfach-durch/"><u>Schütze Deine Dateien Mit Dem Norton PC Cloud Backup - Führe Es Einfach Durch!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-issue-how-to-get-your-discord-application-running-smoothly-again/"><u>Solving the Issue: How to Get Your Discord Application Running Smoothly Again</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-complete-manual-taking-editing-and-sharing-display-images-for-2024/"><u>The Complete Manual Taking, Editing, and Sharing Display Images for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unleashing-the-power-of-luts-in-adobe-premiere-video-editing/"><u>[New] Unleashing the Power of LUTs in Adobe Premiere Video Editing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-ultimate-picks-best-6-fb-lite-videos-for-2024/"><u>[Updated] Ultimate Picks Best 6 FB Lite Videos for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-expert-tips-for-recording-fan-favorite-sports-games/"><u>2024 Approved Expert Tips for Recording Fan-Favorite Sports Games</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comprehensive-guide-capturing-your-best-moments-in-genshin-impact-across-computers-and-smartphones/"><u>Comprehensive Guide: Capturing Your Best Moments in Genshin Impact Across Computers & Smartphones</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-audience-peak-time-to-review/"><u>Facebook's Audience Peak: Time to Review?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-14-plus-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From iPhone 14 Plus?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-vivo-t2x-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Vivo T2x 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/live-radio-at-your-fingertips-an-easy-recording-guide-for-2024/"><u>Live Radio at Your Fingertips An Easy Recording Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-mindful-choices-on-your-internet-usage-plan/"><u>Making Mindful Choices on Your Internet Usage Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-unblock-stuck-fb-notification-bits/"><u>Methods to Unblock Stuck FB Notification Bits</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-rules-discover-facebooks-transparent-approach/"><u>Navigating the Rules: Discover Facebook’s Transparent Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-media-cryptocurrency-promos/"><u>The Future of Social Media: Cryptocurrency Promos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transform-video-proportions-instantly-using-our-aspect-ratio-modifier-tool-perfect-viewing-experience-every-time/"><u>Transform Video Proportions Instantly Using Our Aspect Ratio Modifier Tool - Perfect Viewing Experience Every Time.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-technique-saving-and-storing-your-powerpoint-slides-as-a-dvd-in-windows-os/"><u>Ultimate Technique: Saving and Storing Your PowerPoint Slides as a DVD in Windows OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-makes-mastodon-different/"><u>What Makes Mastodon Different?</u></a></li>
 </ul></div>
 

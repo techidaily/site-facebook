@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Truth: Why Did Major Apps Crash?"
-date: 2025-01-27T23:14:27.070Z
-updated: 2025-01-31T22:56:24.213Z
+date: 2025-02-11T14:04:02.893Z
+updated: 2025-02-15T11:42:49.581Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/035705869a176d12c457c62dcd5ac8433382a242d
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,20 +51,18 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-resolving-partial-muting-in-facebook-video-chats-updated-guide-for-2024/"><u>[New] Resolving Partial Muting in Facebook Video Chats (Updated Guide) for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-photo-grandeur-with-our-best-grid-apps-list/"><u>2024 Approved Photo Grandeur with Our Best Grid Apps List</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/deciphering-and-addressing-error-0x80004005-a-troubleshooting-blueprint/"><u>Deciphering and Addressing Error 0X80004005 – A Troubleshooting Blueprint</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/decoding-the-differences-between-iphone-15-pro-max-vs-samsung-s24-ultra-smartphone-showdown/"><u>Decoding the Differences Between iPhone 15 Pro Max Vs. Samsung S24 Ultra Smartphone Showdown</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/does-ai-solve-advanced-mathematics/"><u>Does AI Solve Advanced Mathematics?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/how-to-seamlessly-share-media-files-between-whatsapp-youtube-and-mobile-devices/"><u>How to Seamlessly Share Media Files Between WhatsApp, YouTube, and Mobile Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/modern-techniques-to-tackle-non-responsive-rust-applications-pro-tips/"><u>Modern Techniques to Tackle Non-Responsive Rust Applications - Pro Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-veiled-path-to-compromised-data-security/"><u>The Veiled Path to Compromised Data Security</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-and-managing-your-online-bandwidth-expenditure/"><u>Understanding & Managing Your Online Bandwidth Expenditure</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthing-birthday-reminders-in-your-fb-timeline/"><u>Unearthing Birthday Reminders in Your FB Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocked-facebook-offers-complete-control-of-oculus-go-to-devices/"><u>Unlocked: Facebook Offers Complete Control of Oculus Go to Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-social-connections-start-with-facebook-dating/"><u>Unlocking Social Connections: Start with Facebook Dating</u></a></li>
-<li><a href="https://facebook.techidaily.com/unpacking-the-latest-facebook-interface-overhaul/"><u>Unpacking the Latest Facebook Interface Overhaul</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-legality-of-upload-photographs/"><u>Unraveling the Legality of Upload Photographs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-masterclass-in-creating-the-ideal-home-4k-editing-pc-for-2024/"><u>[New] Masterclass in Creating the Ideal Home 4K Editing PC for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-revolutionizing-receiving-a-new-paradigm-in-openings/"><u>[New] Revolutionizing Receiving A New Paradigm in Openings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-blueprint-of-successful-video-endorsements/"><u>[New] The Blueprint of Successful Video Endorsements</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-ranked-mac-pro-video-maker-plus-audio/"><u>[Updated] In 2024, Top-Ranked Mac Pro Video Maker Plus Audio</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-finest-6-video-snaggers-for-mac-users-now-for-2024/"><u>[Updated] The Finest 6 Video Snaggers for Mac Users Now for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-changes-in-social-media-fb-update-guide/"><u>Exploring Changes in Social Media: FB Update Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-begin-your-online-romance-via-facebook/"><u>How to Begin Your Online Romance via Facebook</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-fix-code-31-errors/"><u>How to Fix Code 31 Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-sponsored-content-tailoring-on-networking-sites/"><u>Limit Sponsored Content Tailoring on Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-purchasing-perils-escaping-exaggerated-offers-in-the-social-commerce-world/"><u>Preventing Purchasing Perils: Escaping Exaggerated Offers in the Social Commerce World</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-for-the-corporate-world-on-fb-platforms/"><u>Social Savvy for the Corporate World on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-network-ensures-tighter-security-on-quest-headset/"><u>Which Social Network Ensures Tighter Security on Quest Headset?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-does-my-iphones-display-stay-on-too-long-solutions-inside/"><u>Why Does My iPhone's Display Stay On Too Long? Solutions Inside</u></a></li>
 </ul></div>
 

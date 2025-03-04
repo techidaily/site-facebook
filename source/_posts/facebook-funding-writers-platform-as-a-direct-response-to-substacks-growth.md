@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2025-01-25T17:16:53.626Z
-updated: 2025-01-31T21:41:58.671Z
+date: 2025-02-08T02:10:58.196Z
+updated: 2025-02-15T00:11:31.061Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,22 +67,24 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-mirthful-media-youtubes-top-20-for-a-chuckle/"><u>[New] 2024 Approved Mirthful Media YouTube's Top 20 for a Chuckle</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-closer-look-easy-methods-to-zoom-in-minecraft/"><u>[New] Closer Look Easy Methods to Zoom in Minecraft</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-capturing-the-joy-of-lol-gameplay-three-effective-methods/"><u>[New] In 2024, Capturing the Joy of LOL Gameplay - Three Effective Methods</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[Updated] In 2024, Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fast-fixes-syncing-iphone-photos-with-computer/"><u>2024 Approved Fast Fixes Syncing iPhone Photos with Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-top-social-planners-for-timely-posting/"><u>7 Top Social Planners for Timely Posting</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-gaps-in-digital-socialization-with-facebook-updates/"><u>Bridging Gaps in Digital Socialization with Facebook Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-a-social-media-platform-shape-our-local-commerce-landscape/"><u>Can a Social Media Platform Shape Our Local Commerce Landscape?</u></a></li>
-<li><a href="https://facebook.techidaily.com/clear-out-your-social-presence-delete-business-page-protocols/"><u>Clear Out Your Social Presence: Delete Business Page Protocols</u></a></li>
-<li><a href="https://facebook.techidaily.com/commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-audiences-the-functionality-of-hashtags-in-online-networks-on-fb/"><u>Connecting Audiences: The Functionality of Hashtags in Online Networks on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/covert-online-presence-hiding-fb-pages-via-archives/"><u>Covert Online Presence: Hiding FB Pages via Archives</u></a></li>
-<li><a href="https://facebook.techidaily.com/current-executive-leadership-of-facebook/"><u>Current Executive Leadership of Facebook</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-your-apple-iphone-6s-plus-from-your-apple-id-by-drfone-ios/"><u>In 2024, How To Unlink Your Apple iPhone 6s Plus From Your Apple ID</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/revolutionizing-game-soundscapes-with-ps-console-tweaks/"><u>Revolutionizing Game Soundscapes with PS Console Tweaks</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138568889-9780595831678-too-soon-old-too-late-smart/"><u>Too Soon Old-Too Late Smart | Free Book</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-3-essential-iphone-13-gadgets-for-maintaining-a-flawless-appearance-insights/"><u>Top 3 Essential iPhone 13 Gadgets for Maintaining a Flawless Appearance - Insights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-15-luts-for-enhanced-gopro-footage-quality/"><u>[New] Best 15 LUTs for Enhanced GoPro Footage Quality</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-snap-a-different-shot-11-best-instagram-tools/"><u>[New] In 2024, Snap A Different Shot - 11 Best Instagram Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-heaviest-airborran-aerial-haulers-ultimate-choices/"><u>[Updated] Heaviest Airborran Aerial Haulers - Ultimate Choices</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-the-hurdles-of-non-responsive-logitech-gaming-applications-expert-fixes-inside/"><u>Beat the Hurdles of Non-Responsive Logitech Gaming Applications – Expert Fixes Inside</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>Boosting Your Channel Strategies for Skyrocketing View Counts</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-llifes-viability-as-we-step-into-the-metaverse/"><u>Examining LLife's Viability As We Step Into the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-digital-presence-practical-steps-to-add-2fa-to-gmail-and-outlook-accounts/"><u>Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-video-merger-software-alternatives-online-tools-you-need/"><u>In 2024, Free Video Merger Software Alternatives Online Tools You Need</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mac-video-editing-made-easy-vn-video-editor-and-its-alternatives-for-2024/"><u>Mac Video Editing Made Easy VN Video Editor and Its Alternatives for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/maximize-efficiency-with-our-top-rated-power-strip-now-available-for-a-steal-on-amazon-zdnets-picks/"><u>Maximize Efficiency with Our Top-Rated Power Strip, Now Available for a Steal on Amazon (ZDNET's Picks)!</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-whispers-insights-on-fb-investigations/"><u>Rethinking Whispers: Insights on FB Investigations</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/solo-mode-living-without-a-facebook-pal/"><u>Solo Mode: Living Without a Facebook Pal</u></a></li>
+<li><a href="https://facebook.techidaily.com/sync-up-sports-facebook-twitter-unite-for-the-league/"><u>Sync-Up Sports: Facebook, Twitter Unite for the League</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/techniques-to-improve-focal-depth-in-online-platforms/"><u>Techniques to Improve Focal Depth in Online Platforms</u></a></li>
 </ul></div>
 

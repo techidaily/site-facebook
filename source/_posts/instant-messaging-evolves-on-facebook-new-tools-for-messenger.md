@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2025-01-25T06:41:45.702Z
-updated: 2025-02-01T05:37:11.524Z
+date: 2025-02-07T21:05:10.861Z
+updated: 2025-02-15T03:27:07.913Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,17 +83,18 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elevate-your-intellect-with-top-11-general-knowledge-quiz-networks/"><u>[New] 2024 Approved Elevate Your Intellect with Top 11 General Knowledge Quiz Networks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-blending-images-into-a-masterpiece-of-mosaics/"><u>[Updated] Blending Images Into a Masterpiece of Mosaics</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/discover-the-leading-8-web-resources-for-free-3d-text-psdfiles/"><u>Discover the Leading 8 Web Resources for Free 3D Text PSDFiles</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/from-pixels-to-perfection-the-advantages-of-srgb-over-rgb/"><u>From Pixels to Perfection The Advantages of Srgb over Rgb</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-the-future-web-decoding-facebooks-metaverse-concepts/"><u>Inside The Future Web: Decoding Facebook’s Metaverse Concepts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-insights-how-to-make-your-videos-a-hit-for-2024/"><u>Instagram Insights How to Make Your Videos a Hit for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-audio-fade-ins-and-outs-made-easy-2-fcp-techniques/"><u>New Audio Fade Ins and Outs Made Easy 2 FCP Techniques</u></a></li>
-<li><a href="https://discover-community.techidaily.com/optimierung-der-videobearbeitung-von-sd-zu-hd4k-auf-pcs-und-mac-computern/"><u>Optimierung Der Videobearbeitung Von SD Zu HD/4K Auf PCs Und Mac-Computern</u></a></li>
-<li><a href="https://facebook.techidaily.com/predictive-more-cryptos-more-social-ads/"><u>Predictive: More Cryptos, More Social Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/remain-vigilant-hidden-messages-on-facebook-app/"><u>Remain Vigilant: Hidden Messages on Facebook App</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-image-ownership-on-web-platforms/"><u>Understanding Image Ownership on Web Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-exposed-the-shadow-behind-fb-written-code/"><u>Who Exposed the Shadow Behind FB’ Written Code</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-endless-memories-free-saving-on-instagram-stories/"><u>[New] Endless Memories FREE Saving on Instagram Stories</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-facebooks-full-screen-feature/"><u>[Updated] 2024 Approved A Comprehensive Guide to Facebook's Full Screen Feature</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-audio-clips-to-written-content-harnessing-ms-words-transcription-features/"><u>[Updated] 2024 Approved From Audio Clips to Written Content Harnessing MS Word's Transcription Features</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-high-res-horizons-in-depth-analysis-of-samsung-ue590-tv/"><u>[Updated] 2024 Approved High-Res Horizons In-Depth Analysis of Samsung UE590 TV</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-the-art-of-age-precision-on-tiktok/"><u>[Updated] Master the Art of Age Precision on TikTok</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-20-free-unlicensed-pubg-screenshot-compilations/"><u>[Updated] Top 20 Free Unlicensed PUBG Screenshot Compilations</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-personal-messages-on-whatsapp-with-facebook-images/"><u>Enhancing Personal Messages on WhatsApp with Facebook Images</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y78-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y78 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instafb-embraces-meta-drops-nfts-for-limited-testing-period/"><u>Insta/FB Embraces Meta Drops NFTs for Limited Testing Period</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-hashtag-efficacy-for-brand-promotion-on-facebook/"><u>Navigating Hashtag Efficacy for Brand Promotion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-for-clarity-on-your-social-page/"><u>Organizing for Clarity on Your Social Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-childrens-online-space-in-messenger-kids-app/"><u>Securing Children's Online Space in Messenger Kids App</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-iphone-13-pro-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your iPhone 13 Pro on MetroPCS</u></a></li>
 </ul></div>
 

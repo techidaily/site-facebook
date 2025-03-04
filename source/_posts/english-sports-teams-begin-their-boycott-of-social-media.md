@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2025-01-29T03:33:14.748Z
-updated: 2025-02-01T03:51:03.850Z
+date: 2025-02-09T11:18:57.431Z
+updated: 2025-02-14T19:55:16.191Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## England Sports' Social Media Blackout Has Begun
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -81,21 +81,24 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-essential-tips-for-hosting-a-successful-facebook-live-event/"><u>[New] 2024 Approved Essential Tips for Hosting a Successful Facebook Live Event</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-facebook-copyright-what-if-my-videos-removed-immediately-due-to-copyright-in-2024/"><u>[New] Facebook Copyright | What If My Videos Removed Immediately Due to Copyright, In 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-enhancing-your-snapchat-experience-mobile-recordings/"><u>[Updated] In 2024, Enhancing Your Snapchat Experience Mobile Recordings</u></a></li>
-<li><a href="https://win-popular.techidaily.com/1728472092796-usbdvd/"><u>「コンピュータ修復用USBまたはDVDを簡単に作る方法 -ステップバイステップ」</u></a></li>
-<li><a href="https://win-help.techidaily.com/boucle-infinie-de-suppression-automatique-des-telechargements-sous-windows-10-trouver-les-4-correctifs-essentiels/"><u>Boucle Infinie De Suppression Automatique Des Téléchargements Sous Windows 10 : Trouver Les 4 Correctifs Essentiels</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-page-participation-with-fb-polls/"><u>Enhancing Page Participation with FB Polls</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/exploring-chatgpt-navigating-the-realm-of-ai-generated-content/"><u>Exploring ChatGPT: Navigating the Realm of AI-Generated Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-banned-from-whatsapp-user-data-in-germany/"><u>Facebook Banned From WhatsApp User Data in Germany</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/facebooks-rivalry-with-social-media-comparing-tiktok-and-snap-for-2024/"><u>Facebook's Rivalry with Social Media Comparing TikTok & Snap for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-facebook-to-meta-saga/"><u>Revolutionizing Relationships: Facebook to Meta Saga</u></a></li>
-<li><a href="https://facebook.techidaily.com/scrutinizing-(securityfbcom)-is-it-real-fb-safety-email/"><u>Scrutinizing @<security@fb.com>: Is It Real FB Safety Email?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-popularity-phenomenon-elevate-your-virtual-forum/"><u>The Popularity Phenomenon: Elevate Your Virtual Forum</u></a></li>
-<li><a href="https://media-tips.techidaily.com/transforming-mpeg-files-into-mp4-5-must-try-simple-methods/"><u>Transforming MPEG Files Into MP4: 5 Must-Try Simple Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/upgrading-your-social-media-security-measurement-on-facebook/"><u>Upgrading Your Social Media Security Measurement on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-choose-a-facebook-company-profile-examining-8-essential-reasons/"><u>Why Choose a Facebook Company Profile - Examining 8 Essential Reasons</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-template-tips-for-efficient-and-effective-youtube-intros/"><u>[New] Template Tips for Efficient and Effective YouTube Intros</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-advanced-techniques-flawless-insertion-of-vimeo-video-in-slides/"><u>[Updated] Advanced Techniques Flawless Insertion of Vimeo Video in Slides</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/exclusive-collection-of-2018-mclaren-x-2-imagery-and-digital-wallpapers-by-yl-software/"><u>Exclusive Collection of 2018 McLaren X 2 Imagery and Digital Wallpapers by YL Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-list-free-apps-elevating-your-social-presence/"><u>Exclusive List: FREE Apps Elevating Your Social Presence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-nintendo-switch-lite-affordable-portable-gaming-by-nintendo/"><u>Exploring the Nintendo Switch Lite: Affordable Portable Gaming by Nintendo</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-symbol-meanings-explained-and-how-to-use-them-properly/"><u>Facebook Symbol Meanings, Explained (and How to Use Them Properly)</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-feature-for-enhanced-informed-sharing/"><u>Facebook's New Feature for Enhanced Informed Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-factors-in-social-media-content-selection/"><u>Hidden Factors in Social Media Content Selection</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-xr-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone XR iOS? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-oppo-a2-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Oppo A2? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-top-10-music-videos-on-facebook-how-to-make-a-facebook-song-video/"><u>In 2024, Top 10 Music Videos on Facebook | How to Make A Facebook Song Video?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/in-depth-tech-reviews-and-updates-toms-guide/"><u>In-Depth Tech Reviews & Updates | Tom's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nirvana-discovering-the-top-20-social-sites-and-apps/"><u>Network Nirvana: Discovering the Top 20 Social Sites & Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-fixes-for-regaining-access-after-fb-intrusion/"><u>Quick Fixes for Regaining Access After FB Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-remedies-for-top-11-social-media-headaches-on-fb/"><u>Quick Remedies for Top 11 Social Media Headaches on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-narzo-n55-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Narzo N55 has been deleted.</u></a></li>
+<li><a href="https://facebook.techidaily.com/reigniting-your-facebook-interaction-simple-strategies/"><u>Reigniting Your Facebook Interaction: Simple Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-journey-1500-days-of-knowledge/"><u>The Journey: 1,500 Days of Knowledge</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-enabling-facebooks-browsing-archive/"><u>Understanding the Impact of Enabling Facebook’s Browsing Archive</u></a></li>
 </ul></div>
 

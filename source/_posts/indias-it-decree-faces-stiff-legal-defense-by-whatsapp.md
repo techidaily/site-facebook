@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2025-01-28T22:37:10.134Z
-updated: 2025-01-31T21:47:44.887Z
+date: 2025-02-10T09:10:00.292Z
+updated: 2025-02-15T08:50:54.344Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India's New IT Rules Threaten User Privacy
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
@@ -99,22 +99,21 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-disabling-apex-legends-cross-play-best-platform-tactics-unveiled/"><u>[New] In 2024, Disabling Apex Legends Cross-Play Best Platform Tactics Unveiled</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-masterful-monikers-a-compendium-of-cool-channel-titles-for-2024/"><u>[Updated] Masterful Monikers A Compendium of Cool Channel Titles for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-pushing-boundaries-upward-an-incisive-mavic-pro-review/"><u>[Updated] Pushing Boundaries Upward An Incisive Mavic Pro Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-facebook-marketplace-scams-and-how-to-avoid-them/"><u>5 Facebook Marketplace Scams and How to Avoid Them</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-changes-that-have-redirected-online-community-gatherings/"><u>6 Changes That Have Redirected Online Community Gatherings</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-social-media-content-calendar-tools-for-scheduling-posts/"><u>8 Social Media Content Calendar Tools for Scheduling Posts</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/a-night-in-with-apple-vision-pro-the-bittersweet-experience-of-binging-my-cherished-series-insights/"><u>A Night In with Apple Vision Pro: The Bittersweet Experience of Binging My Cherished Series | Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/activating-and-benefitting-from-the-sleep-mode-on-messenger-kids/"><u>Activating and Benefitting From the Sleep Mode on Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now!</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-fun-and-safe-combinations-on-facebook-real/"><u>Are Fun and Safe Combinations on Facebook Real?</u></a></li>
-<li><a href="https://facebook.techidaily.com/chasing-success-fb-commits-5m-to-challenge-substacks-journalist-community/"><u>Chasing Success: FB Commits $5M to Challenge Substack’s Journalist Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/combatting-online-fraud-action-needed-from-facebook-and-google/"><u>Combatting Online Fraud: Action Needed From Facebook & Google</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-13-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 13 Pro Max With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-follow-forward-guide-accumulating-1000-likesmonth-on-ig/"><u>In 2024, The Follow-Forward Guide Accumulating 1,000 Likes/Month on IG</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/modern-tile-designs-innovative-patterns-for-your-home/"><u>Modern Tile Designs: Innovative Patterns for Your Home</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-accessible-ai-frontier-gpt-4-for-everyone/"><u>The Accessible AI Frontier: GPT-4 for Everyone</u></a></li>
-<li><a href="https://fox-search.techidaily.com/top-5-ultimate-trojan-eliminators-proven-techniques-and-latest-updates/"><u>Top 5 Ultimate Trojan Eliminators: Proven Techniques & Latest Updates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-five-star-duo-of-picture-taking-and-musical-integration-for-2024/"><u>[New] Five-Star Duo of Picture Taking & Musical Integration for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-blueprint-for-srt-file-excellence/"><u>[New] The Ultimate Blueprint for SRT File Excellence</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-sound-top-10-microphones-for-2024/"><u>[Updated] Mastering Sound Top 10 Microphones for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-iphone-13-analysis-features-performance-and-more/"><u>Comprehensive iPhone 13 Analysis: Features, Performance & More</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-find-any-individual-with-these-eight-innovative-people-search-platforms/"><u>How to Find Any Individual with These Eight Innovative People Search Platforms</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-artisans-approach-integrating-typefaces-in-ae/"><u>In 2024, The Artisan's Approach Integrating Typefaces in AE</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-13-pro-max-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>iPhone 13 Pro Max Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-direct-linking-to-facebook-site/"><u>Managing Direct Linking to Facebook Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-feed-essential-mobile-setting-tweaks-in-fb-app/"><u>Mastery Over Feed: Essential Mobile Setting Tweaks in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-facebook-profile-altering-significant-personal-date/"><u>Perfecting Facebook Profile: Altering Significant Personal Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-social-trading-key-strategies-for-online-safety-on-fb/"><u>Secure Social Trading: Key Strategies for Online Safety on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sanctions-justifiable-trump-halt-not-eternal/"><u>Social Media Sanctions: Justifiable Trump Halt, Not Eternal</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-clearing-frozen-fb-alerts-and-posts/"><u>Strategies for Clearing Frozen FB Alerts and Posts</u></a></li>
+<li><a href="https://games-able.techidaily.com/tap-swipe-win-android-and-iphone-tetris-competitions/"><u>Tap, Swipe, Win: Android & iPhone Tetris Competitions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-next-step-for-connectivity-might-fb-open-stores-locally-soon/"><u>The Next Step for Connectivity: Might FB Open Stores Locally Soon?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-leading-wireless-trackballs/"><u>Ultimate Guide to the Leading Wireless Trackballs</u></a></li>
 </ul></div>
 

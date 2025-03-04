@@ -1,7 +1,7 @@
 ---
 title: Activists Spark Star Rating Anger, Drop Facebook's App Ratings
-date: 2024-08-23T02:03:51.328Z
-updated: 2024-08-24T02:03:51.328Z
+date: 2025-02-11T01:08:39.999Z
+updated: 2025-02-15T00:40:59.160Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/ba715f0751b3e95d85d54c2de37214787de2fc86e
 
  Facebook may be sitting at the top of the Social Networking category on Apple's App Store, but that doesn't necessarily mean that people are content with it—just that they're downloading it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Mobile App Rating Takes a Nosedive
 
  Pro-Palestinian activists are running a coordinated campaign to lower Facebook's mobile app rating on the Apple and Google app stores.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/ba715f0751b3e95d85d54c2de37214787de2fc86e
 
 ![Facebook open in a mobile browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-in-mobile-browser.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The team behind Facebook is reportedly taking this issue very seriously—they've marked it as "SEV1" or "severity 1," which is a descriptor used internally when there is a high-priority issue with the site.
 
  The only type of issue that would take higher priority than this is a "SEV0," which is used when site is down.
@@ -39,9 +47,17 @@ thumbnail: https://thmb.techidaily.com/ba715f0751b3e95d85d54c2de37214787de2fc86e
 
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of [anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
@@ -51,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/ba715f0751b3e95d85d54c2de37214787de2fc86e
 
  Facebook might be the prime example of the phrase "all publicity is good publicity." It's a platform that everyone seems to hate, and yet, we stay on it anyway.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,12 +80,24 @@ thumbnail: https://thmb.techidaily.com/ba715f0751b3e95d85d54c2de37214787de2fc86e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-much-money-can-you-make-via-youtube-ad-revenue-and-cpm-rates/"><u>[Updated] How Much Money Can You Make via YouTube Ad Revenue and CPM Rates?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-find-muted-conversations-on-snapchat/"><u>2024 Approved How to Find Muted Conversations on Snapchat</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/anticipating-the-arrival-of-oneplus-10-estimated-launch-pricing-insights-feature-highlights-and-latest-rumors/"><u>Anticipating the Arrival of OnePlus 10: Estimated Launch, Pricing Insights, Feature Highlights, and Latest Rumors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-sx530-the-simple-starter-for-aspiring-photographers/"><u>Canon's SX530: The Simple Starter for Aspiring Photographers</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-online-presence-facebooks-security-wisdom/"><u>Enhancing Your Online Presence: Facebook's Security Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-steps-and-six-rationale-for-quitting-facebook-today/"><u>Five Steps & Six Rationale for Quitting Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/friend-or-foe-how-to-tell-if-your-fb-is-compromised/"><u>Friend or Foe? How to Tell if Your FB Is Compromised</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/go-beyond-boundaries-with-panasonic-hx-a1-wearable-camera/"><u>Go Beyond Boundaries with Panasonic HX-A1 Wearable Camera</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpretation-of-social-media-pictograms-in-fb-chats/"><u>Interpretation of Social Media Pictograms in FB Chats</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-with-purpose-rotate-and-rethink-with-youtubes-latest-tools-for-2024/"><u>Pivoting with Purpose Rotate and Rethink with YouTube's Latest Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponement-in-play-facebook-oversight-body-rests/"><u>Postponement in Play: Facebook Oversight Body Rests</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-conversations-a-guide-to-facebooks-advanced-moderation-tools/"><u>Streamlining Conversations: A Guide to Facebook's Advanced Moderation Tools</u></a></li>
+<li><a href="https://win-blog.techidaily.com/transforme-seu-audio-em-video-com-seguranca-metodo-facil-pelo-canal-da-movavi/"><u>Transforme Seu Áudio Em Video Com Segurança: Método Fácil Pelo Canal Da Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-mystery-how-did-crowdstrike-influence-windows-2024-meltdown-crisis-a-historical-insight/"><u>Unveiling The Mystery: How Did CrowdStrike Influence Windows' 2024 Meltdown Crisis? A Historical Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-eyes-opening-disclosures-in-recent-fb-papers/"><u>What Are The Eyes-Opening Disclosures in Recent FB Papers?</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->

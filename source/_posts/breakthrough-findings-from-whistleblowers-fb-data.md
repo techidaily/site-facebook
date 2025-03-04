@@ -1,7 +1,7 @@
 ---
 title: Breakthrough Findings From Whistleblower's FB Data
-date: 2024-08-15T18:44:14.691Z
-updated: 2024-08-16T18:44:14.691Z
+date: 2025-02-09T01:35:13.304Z
+updated: 2025-02-15T03:09:28.147Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered [what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
@@ -28,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7 Key Revelations From the Facebook Papers
 
  Given the number of documents turned over to the media, it took a coordinated effort between multiple organizations to comb through and deliver detailed analysis. But, now, there are several major revelations into practices at Facebook regarding human rights, political violence, hate speech, harmful content, and other damning portrayals writ large.
@@ -46,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -62,6 +64,24 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-harness-free-fb-link-downloaders-for-2024/"><u>[New] Harness Free FB Link Downloaders for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-banner-bliss-savor-your-complimentary-set-of-designs/"><u>[New] In 2024, Banner Bliss Savor Your Complimentary Set of Designs!</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-vivo-x-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/outlook-2010/"><u>昨年以降のOutlook 2010のメール設定、冒失なしでバックアップ方法を学ぶ</u></a></li>
+<li><a href="https://facebook.techidaily.com/emoji-education-interpreting-and-using-facebooks-icons-wisely/"><u>Emoji Education: Interpreting and Using Facebook's Icons Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/favorite-social-app-cast-your-ballot-now/"><u>Favorite Social App: Cast Your Ballot Now!</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/flip-the-script-on-sharing-seamless-transfer-of-fb-content-available/"><u>Flip the Script on Sharing: Seamless Transfer of FB Content Available!</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-login-process-with-instagrams-whatsapp-verification-code/"><u>Fortify Login Process with Instagram's WhatsApp Verification Code</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guida-passo-passo-per-caricare-un-videoclip-sul-computer-con-movavi/"><u>Guida Passo-Passo per Caricare Un Videoclip Sul Computer Con Movavi</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-best-3ip-top-audio-capture-apps/"><u>In 2024, Best 3iP Top Audio Capture Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-scrolls-my-personal-journey/"><u>Life Without Scrolls: My Personal Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-go-and-root-a-new-chapter-with-facebook-unlocking-potential/"><u>Oculus Go and Root: A New Chapter with Facebook Unlocking Potential</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/pinnacle-editing-suite-for-impeccable-videos/"><u>Pinnacle Editing Suite for Impeccable Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/spice-up-your-feeds-text-based-meme-magic/"><u>Spice Up Your Feeds Text-Based Meme Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ai-frontier-beckons-meta-sets-new-parameters/"><u>The AI Frontier Beckons - Meta Sets New Parameters</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-profile-an-introduction-to-using-avatars-on-fb-cover-photos/"><u>Transforming Your Profile: An Introduction to Using Avatars on FB Cover Photos</u></a></li>
+</ul></div>
 

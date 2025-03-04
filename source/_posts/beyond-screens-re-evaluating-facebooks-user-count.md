@@ -1,7 +1,7 @@
 ---
 title: "Beyond Screens: Re-Evaluating Facebook’s User Count"
-date: 2024-08-23T02:03:48.995Z
-updated: 2024-08-24T02:03:48.995Z
+date: 2025-02-11T18:43:35.833Z
+updated: 2025-02-14T20:54:39.477Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d37006e5965cff133da2576b0b3455692491cf1f8
 
  Since the report, the internet has been going crazy, and headlines have been looking at why Facebook is doomed, or failing, or not popular anymore, as if the platform's about to shut down. That's not the case at all, and people need to calm down!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where Have These Facebook Stats Come From?
 
  Meta released its [annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
@@ -35,6 +39,10 @@ Image Credit: Meta
 
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Has Barely Lost Any Users
 
  As Meta's report included rounded figures, we have to take an average decrease of 500,000 users. It could be slightly more, it could be slightly less. That equates to a decrease in users of 0.025%.
@@ -45,9 +53,6 @@ Image Credit: Meta
 
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 2\. It's Natural for Facebook to Lose Some Users
 
  When you're a social media platform as large as Facebook, it's only natural to eventually see a slight decline in users. This is especially the case when you're talking about an existing userbase of almost two billion individuals. Let's put our business hats on for a second.
@@ -61,8 +66,9 @@ Image Credit: Meta
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
 
  Delving even deeper, you can consider the critical mass curve for a platform's users. Critical mass is the minimum number of users you need to sustain value in the product with no other product changes. Usually businesses want to work up this curve towards critical mass, but there's a point when you exceed it.
@@ -70,8 +76,9 @@ Image Credit: Meta
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Meta Is Focusing on the Metaverse
 
  In 2021, Facebook (the company) changed its name to Meta. This is now the holding company that owns all of Facebook's products, including WhatsApp and Instagram. With this new name came a shift in focus–to the metaverse.
@@ -85,22 +92,20 @@ Image Credit: Meta
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Chill Out! Facebook Is Fine
 
  While we've been looking at why the drop in users isn't a big deal, it's important to acknowledge that Facebook did lose some users. Why? Because people's heads have been turned to other social platforms focusing on short-form content, especially the younger generation.
 
  We acknowledge Facebook's slight drop in users, we're OK to talk about it, but we're pretty sure it isn't the end of the world. In other words, chill out, because Facebook is doing just fine, thank you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,8 +114,22 @@ Image Credit: Meta
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-becoming-a-pro-with-obs-gaming-recordings/"><u>[New] Becoming a Pro with OBS Gaming Recordings</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-brightening-up-your-videography-gopro-fog-free-techniques/"><u>[Updated] Brightening Up Your Videography GoPro Fog-Free Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-transform-your-ig-story-with-melodic-elements-without-for-2024/"><u>[Updated] Transform Your IG Story with Melodic Elements (Without) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-imperfections-exposed-discovering-5-times-users-faced-letdowns/"><u>Facebook's Imperfections Exposed: Discovering 5 Times Users Faced Letdowns</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-facebook-notification-loading-speed/"><u>Fixing Erratic Facebook Notification Loading Speed</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/participation-in-facebooks-725-million-settlement-a-guide/"><u>Participation in Facebook's $725 Million Settlement: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/potency-in-pixels-hashtags-contribution-to-engagement-metrics-on-fb/"><u>Potency in Pixels: Hashtags' Contribution to Engagement Metrics on FB</u></a></li>
+<li><a href="https://games-able.techidaily.com/refrain-from-ps5-buying-heres-why/"><u>Refrain From PS5 Buying - Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giants-defend-free-speech-in-court/"><u>Social Media Giants Defend Free Speech in Court</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/swift-email-restoration-exchanging-success-stories/"><u>Swift Email Restoration: Exchanging Success Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychology-of-engaging-social-media-stories/"><u>The Psychology of Engaging Social Media Stories</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-fixes-for-sticky-keys-in-microsoft-windows-systems/"><u>Troubleshooting and Fixes for Sticky Keys in Microsoft Windows Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-twitters-historical-content-reservoirs/"><u>Unveiling Twitter's Historical Content Reservoirs</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrading-your-profile-the-ultimate-facebook-name-alteration/"><u>Upgrading Your Profile: The Ultimate Facebook Name Alteration</u></a></li>
+</ul></div>
 

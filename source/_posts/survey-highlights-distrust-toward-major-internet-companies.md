@@ -1,7 +1,7 @@
 ---
 title: Survey Highlights Distrust Toward Major Internet Companies
-date: 2025-01-30T03:59:23.794Z
-updated: 2025-02-01T02:24:01.009Z
+date: 2025-02-08T16:01:03.297Z
+updated: 2025-02-15T07:20:59.568Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Does the Poll Say?
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -109,19 +109,20 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-professional-guide-extracting-vimeo-content-as-mp4s/"><u>[New] Professional Guide Extracting Vimeo Content as MP4s</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-navigating-the-shift-turning-srt-into-subc/"><u>[Updated] In 2024, Navigating the Shift Turning SRT Into SUBC</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streamlining-your-workflow-with-macs-finest-snipers/"><u>2024 Approved Streamlining Your Workflow with Mac's Finest Snipers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/building-a-successful-brand-presence-through-spotify-advertising/"><u>Building a Successful Brand Presence Through Spotify Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-screen-free-time-via-facebooks-daily-alert-system/"><u>Embrace Screen-Free Time via Facebook's Daily Alert System</u></a></li>
-<li><a href="https://facebook.techidaily.com/explaining-messenger-kids-sleep-mode-and-its-purpose/"><u>Explaining Messenger Kids' Sleep Mode and Its Purpose</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stop-seeing-the-ads-you-hate-on-facebook/"><u>How to Stop Seeing the Ads You Hate on Facebook</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-open-source-video-software-for-all-users/"><u>In 2024, Navigating Open Source Video Software for All Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/ios-145-and-its-impact-on-facebook-user-profiling/"><u>IOS 14.5 and Its Impact on Facebook User Profiling</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719580725310-jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide!</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-in-avoiding-social-snares-of-high-order/"><u>Mastery in Avoiding Social Snares of High Order</u></a></li>
-<li><a href="https://facebook.techidaily.com/more-than-meets-the-eye-reassessing-the-facebook-dossier/"><u>More than Meets the Eye: Reassessing The Facebook Dossier</u></a></li>
-<li><a href="https://games-able.techidaily.com/resolving-dxgierrordevicehung-0x887a0006-on-win-1011/"><u>Resolving DXGI_ERROR_DEVICE_HUNG (0X887A0006) on Win 10/11</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/troubleshooting-hard-disk-errors-made-easy-by-yl-software-professionals/"><u>Troubleshooting Hard Disk Errors Made Easy by YL Software Professionals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-leading-software-titles-for-animation-artistry/"><u>[New] 2024 Approved Leading Software Titles for Animation Artistry</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-personality-showcase-100-crafted-caption-ideas/"><u>[New] Insta Personality Showcase - 100 Crafted Caption Ideas</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-effortless-video-capturing-on-win11-os/"><u>[Updated] 2024 Approved Effortless Video Capturing on Win11 OS</u></a></li>
+<li><a href="https://win-net.techidaily.com/1728486306169-windows-11/"><u>轻松将应用程序在 Windows 11 上转移到新桌面的简单指南</u></a></li>
+<li><a href="https://facebook.techidaily.com/confronting-the-myth-why-facebook-is-still-here/"><u>Confronting the Myth: Why Facebook Is Still Here</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decoding-chatgpt-understanding-its-interpreter-functionality/"><u>Decoding ChatGPT: Understanding Its Interpreter Functionality</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effective-ways-to-fix-missing-or-corrupt-msidll-errors-in-windows/"><u>Effective Ways to Fix 'Missing or Corrupt' msi.dll Errors in Windows</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Infinix?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-itel-p55s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Itel P55s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-set-to-sever-ties-with-giphy-soon/"><u>Is Facebook Set to Sever Ties with Giphy Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-a-less-distracted-digital-world-by-reducing-fb-reels/"><u>Navigating a Less Distracted Digital World by Reducing FB Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-leap-into-mobility-with-go-update/"><u>Portal’s Leap Into Mobility with Go Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-beckons-as-meta-drops-tests-on-popular-platforms/"><u>The Future Beckons as Meta Drops Tests on Popular Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-my-digital-footprint-the-inception-of-facebook-usage/"><u>Tracing My Digital Footprint: The Inception of Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-the-gavel-fall-anticipating-facebooks-judgment-on-trump/"><u>When Will the Gavel Fall? Anticipating Facebook's Judgment on Trump</u></a></li>
 </ul></div>
 

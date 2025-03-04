@@ -1,7 +1,7 @@
 ---
 title: 4 Things to Know About Meta's New Privacy Policy
-date: 2024-08-23T02:05:50.304Z
-updated: 2024-08-24T02:05:50.304Z
+date: 2025-02-12T07:31:20.054Z
+updated: 2025-02-14T22:52:21.923Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
 
 ![The current Meta Privacy Policy as of June 29, 2022](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/current_privacy_policy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![What kind of information Meta collects](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/examplie_of_current_policy.jpg)
 
 ![How does Meta share information policy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example_of_current_policy2.jpg)
@@ -49,22 +53,28 @@ Close
 
 ![information about what data Meta collects from new privacy policy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/new_policy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![how does Meta use your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/new_policy2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![How Meta shows ads information from new privacy policy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/new_policy3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Meta Will Not Gain Any New Rights to Your Data
 
  This update does not give Meta any new rights to your data. The company is likely emphasizing this in the wake of the [controversy around the WhatsApp Privacy Policy update in 2021](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) .
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. The Update Comes With New Tools to Protect Your Data
 
  This update gives clear instructions on [how to use the Facebook Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) that was first introduced in January 2022\. The Privacy Center is a hub of both privacy information and controls that help you understand and control your Meta experience.
@@ -74,43 +84,32 @@ Close
 ![how you can manage personal information on Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/manage_or_delete_info.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Privacy Checkup on Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/privacy_checkup.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
  With this update, sections about new features like Shops and Facebook View will be included in the Privacy Center, to give you a better understanding of how Meta collects information from these new features as well.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. You Cannot Opt Out of This Update
 
  You cannot opt out of this update, however this update does not have to change your Meta experience if you don't want it to. This update is more about education when it comes to data sharing and how your privacy is being impacted when you use Meta platforms.
 
  While you can't opt out of this update, you also don't have to do anything to manually update your accounts. You can completely ignore all notifications about this update and continue using Meta platforms like usual, but looking into the notifications and this eventual update can help you be more aware of how your information is being collected and shared.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## Why Should You Pay Attention to This New Update?
 
  This update will happen whether you are paying attention or not. However, looking through your Facebook or Instagram notifications about this update will give you important information about your privacy and how to take control of it on Meta's platforms using its new and pre-existing privacy settings.
 
  Educating yourself on the ins and outs of this new update is the best way to remain in control of your own privacy while enjoying the pleasures of entertainment and connection on social media.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +118,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-start-to-engaging-in-face-to-face-conversations-on-snapchat-for-2024/"><u>[Updated] Quick Start to Engaging in Face-to-Face Conversations on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-livestream-elite-top-equipment-for-youtube-content-creators/"><u>2024 Approved Livestream Elite Top Equipment For YouTube Content Creators</u></a></li>
+<li><a href="https://common-error.techidaily.com/diy-solutions-restoring-functionality-to-a-malfunctioning-left-click-mouse-button/"><u>DIY Solutions: Restoring Functionality to a Malfunctioning Left-Click Mouse Button</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-instructions-to-download-and-run-llama-2-in-your-local-environment/"><u>Easy Instructions to Download and Run LLAMA 2 in Your Local Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secretive-user-drain-explained/"><u>Facebook's Secretive User Drain Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebooks-regional-communities/"><u>Navigating the World of Facebook's Regional Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/pictorial-input-leads-to-dynamic-text-style-generation/"><u>Pictorial Input Leads to Dynamic Text Style Generation</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-xiaomi-14-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-essentials-of-instagram-filters-for-picture-perfection-for-2024/"><u>The Essentials of Instagram Filters for Picture Perfection for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-earning-gold-online-fb-and-insta-tactics/"><u>The Ultimate Guide for Earning Gold Online: FB and Insta Tactics</u></a></li>
+<li><a href="https://win-data.techidaily.com/the-ultimate-guide-top-4-techniques-for-archiving-your-iphones-voice-memos/"><u>The Ultimate Guide: Top 4 Techniques for Archiving Your iPhone's Voice Memos</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-duplication-fraud/"><u>Understanding Facebook Duplication Fraud</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-new-dating-feature-a-quick-guide/"><u>Unveiling Facebook's New Dating Feature: A Quick Guide</u></a></li>
+</ul></div>
 

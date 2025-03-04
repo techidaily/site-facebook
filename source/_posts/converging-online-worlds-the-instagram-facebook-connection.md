@@ -1,7 +1,7 @@
 ---
 title: "Converging Online Worlds: The Instagram-Facebook Connection"
-date: 2024-08-15T18:42:38.604Z
-updated: 2024-08-16T18:42:38.604Z
+date: 2025-02-09T23:33:01.283Z
+updated: 2025-02-14T21:29:32.704Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/a362218194355c666b0860326aa79761dfe27d251
 ## Converging Online Worlds: The Instagram-Facebook Connection
 
  Despite concerns that users have over the data-sharing between Instagram and Facebook, parent company Meta has announced that it's testing Accounts Center features that allow users to swap between profiles more easily and receive notifications from both apps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Meta Tests New Cross-Platform Account Center Features
 
@@ -36,9 +40,9 @@ Meta notes:
  If you want to [make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Accounts Center May Expand to More Apps
 
  The centralization of accounts raises security concerns, since leaks or breaches of one account's credentials could grant access to all linked accounts. Despite this, Meta is not planning to just centralize Instagram and Facebook.
@@ -48,20 +52,18 @@ Meta notes:
  In August 2022, Meta introduced Meta Accounts, a change to account structure for Oculus profiles and Meta Horizons.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Continues to Bring its Apps Closer
 
  The new Accounts Center feature test won't be the last we see of centralized Meta account access. If all goes according to plan, your profiles across Meta accounts may become a lot more connected than in the past.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,6 +72,19 @@ Meta notes:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-10-groundbreaking-final-cut-pro-extensions/"><u>[New] 10 Groundbreaking Final Cut Pro Extensions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-introducing-motion-blur-magic-in-your-iphone-photos/"><u>[Updated] Introducing Motion-Blur Magic in Your iPhone Photos</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/come-restauro-file-eliminati-nel-cestino-con-6-tecniche-efficaci/"><u>Come Restauro File Eliminati Nel Cestino Con 6 Tecniche Efficaci</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-the-features-of-free-versions-of-microsoft-word/"><u>Exploring the Features of Free Versions of Microsoft Word</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-visual-identity-on-facebook/"><u>Fortifying Your Visual Identity on Facebook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-pro-without-passcode-by-drfone-ios/"><u>How to Unlock iPhone 13 Pro Without Passcode?</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-magic-temporarily-secure-your-messages/"><u>Messenger’s Magic: Temporarily Secure Your Messages</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overheating-iphoneipad-find-out-why-and-repair-tips-inside/"><u>Overheating iPhone/iPad? Find Out Why and Repair Tips Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-structure-and-public-accessibility-of-facebook-local-groups/"><u>The Structure and Public Accessibility of Facebook Local Groups</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-vivo-v27e-frp-by-drfone-android/"><u>The Updated Method to Bypass Vivo V27e FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-internal-blueprint/"><u>Understanding Facebook's Internal Blueprint</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-our-findings-how-does-mistral-ais-le-chat-compare-to-the-renowned-chatgpt/"><u>Unveiling Our Findings: How Does Mistral AI's Le Chat Compare to the Renowned ChatGPT?</u></a></li>
+</ul></div>
 

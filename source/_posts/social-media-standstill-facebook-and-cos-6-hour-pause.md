@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2025-01-30T04:50:42.632Z
-updated: 2025-02-01T07:15:28.772Z
+date: 2025-02-12T05:34:57.762Z
+updated: 2025-02-14T17:21:49.786Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,22 +87,17 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-setting-the-scene-ideal-video-aspect-ratios-and-widths-for-youtube/"><u>[New] In 2024, Setting the Scene Ideal Video Aspect Ratios & Widths for YouTube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-10t-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 10T 5G Activity | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-infinix-note-30-5g-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Infinix Note 30 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-walls-of-time-for-nba-watchers/"><u>Breaking Down Walls of Time for NBA Watchers</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypass-lost-phones-security-fastest-way-to-fb-without-phone/"><u>Bypass Lost Phones' Security: Fastest Way to FB without Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparative-study-oculus-account-security-features/"><u>Comparative Study: Oculus Account Security Features</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-honor-magic-5-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/concealing-digital-footprints-on-facebook-from-strangers/"><u>Concealing Digital Footprints on Facebook From Strangers</u></a></li>
-<li><a href="https://facebook.techidaily.com/constructive-habits-for-reducing-online-social-engagement/"><u>Constructive Habits for Reducing Online Social Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-fun-on-fb-be-covering-up-hidden-dangers/"><u>Could Fun on FB Be Covering Up Hidden Dangers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/cross-platform-content-posting-instagram-reels-to-facebook/"><u>Cross-Platform Content: Posting Instagram Reels to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/crossing-paths-increased-bond-between-facebook-and-instagram/"><u>Crossing Paths: Increased Bond Between Facebook & Instagram</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-make-your-own-3d-videos-top-tools-for-beginners-and-pros-alike-for-2024/"><u>New Make Your Own 3D Videos Top Tools for Beginners and Pros Alike for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/optimal-strategies-for-wellness-campaigns-online-for-2024/"><u>Optimal Strategies for Wellness Campaigns Online for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/optimize-your-time-pick-the-fastest-5-chrome-addons-for-facebook-vids/"><u>Optimize Your Time Pick the Fastest 5 Chrome Addons for Facebook Vids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/pixelprofessionalzoom7-expertly-scaling-your-photography-for-2024/"><u>PixelProfessionalZoom7 Expertly Scaling Your Photography for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/understanding-and-correcting-crackling-sound-from-your-pcs-speakers-in-windows-os/"><u>Understanding and Correcting Crackling Sound From Your PC's Speakers in Windows OS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-fast-format-transformation-youtube-for-mac-ratio/"><u>[New] 2024 Approved Fast Format Transformation YouTube for Mac Ratio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-downloading-videos-directly-to-iphoneipad-youtubes-quick-guide/"><u>2024 Approved Downloading Videos Directly to iPhone/iPad - YouTube's Quick Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-unplugged-thrills-10-best-screen-free-gaming-on-android-devices/"><u>2024 Approved Unplugged Thrills 10 Best Screen-Free Gaming on Android Devices</u></a></li>
+<li><a href="https://win-net.techidaily.com/beginners-journey-to-secure-digital-assets-install-a-cryptocurrency-wallet-with-ease-using-yl-computing-tools/"><u>Beginner's Journey to Secure Digital Assets: Install a Cryptocurrency Wallet with Ease Using YL Computing Tools</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-overwatch-gameplay-recording-made-easy/"><u>In 2024, Overwatch Gameplay Recording Made Easy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-reels-crafted-by-a-true-creative-genius-for-2024/"><u>Instagram Reels Crafted by a True Creative Genius for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/live-broadcasting-bliss-comprehensive-list-of-hardware-and-software-for-successful-streams-for-2024/"><u>Live Broadcasting Bliss Comprehensive List of Hardware & Software for Successful Streams for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-pioneer-leaves-facebook/"><u>Social Media Pioneer Leaves Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-experts-guide-unveiling-hidden-online-communities/"><u>The Expert's Guide: Unveiling Hidden Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-overcoming-11-facebook-errors/"><u>The Ultimate Guide to Overcoming 11 Facebook Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-shadowban-strategies-for-avoidance/"><u>Understanding Shadowban: Strategies for Avoidance</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-future-social-spaces-the-potential-of-facebooks-metaverse/"><u>Unveiling Future Social Spaces: The Potential of Facebook's Metaverse</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "A Tale of Two Platforms: Will Meta Displace Facebook & Instagram in Europe?"
-date: 2024-08-15T18:45:33.148Z
-updated: 2024-08-16T18:45:33.148Z
+date: 2025-02-08T22:55:02.186Z
+updated: 2025-02-14T16:49:42.857Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/9ed4d2a342c503dc1182b48b6f97e1914eb836100
 
 So, is Meta about to pull Facebook and Instagram out of Europe?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Is Meta Threatening to Pull Facebook and Instagram From Europe?
 
  In the full [SEC filing](https://d18rn0p25nwr6d.cloudfront.net/CIK-0001326801/14039b47-2e2f-4054-9dc5-71bcc7cf01ce.pdf) , Meta explains that the recent changes to Privacy Shield will fundamentally alter their business model, making it impossible to offer existing "products and services" to its European users.
@@ -30,9 +34,9 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is the Privacy Shield No Longer Legal?
 
  So, back in 2011, Austrian lawyer Maximillian Schrems analyzed 1,222 pages of information Facebook held about him after requesting the data from the company. He found that Facebook held onto information he believed he had deleted from the service along with other information that had been shared without his permission. Schrems lodged a complaint with the Irish data protection commissioner, where Facebook was registered for tax purposes.
@@ -44,9 +48,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta Pull Facebook and Instagram?
 
  Most industry experts believe Meta's statement is an empty threat. European Union regulators have been working with their US counterparts in an attempt to shape a new deal for months. It's just that it hasn't yet crossed the line and as Meta's stock price and company value takes a beating elsewhere, shifting the focus is a useful distraction for the social media giant.
@@ -59,14 +63,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  European Facebook and Instagram users have very little to worry about until then.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,8 +76,19 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-the-complete-guide-to-sharing-your-desktop-on-discord/"><u>[New] In 2024, The Complete Guide to Sharing Your Desktop on Discord</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-next-level-entertainment-exclusive-windows-10-gaming-and-apps-for-2024/"><u>[Updated] Next-Level Entertainment Exclusive Windows 10 Gaming & Apps for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-navigating-mac-software-for-optimal-dvd-burning/"><u>2024 Approved Navigating Mac Software for Optimal DVD Burning</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-functionality-of-non-loading-fb-notifications/"><u>Enhancing Functionality of Non-Loading FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-endgame-data-afterlife/"><u>Facebook's Endgame: Data Afterlife</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-friendship-safe-social-media-etiquette/"><u>Fostering Friendship: Safe Social Media Etiquette</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-downloads-compatible-drivers-for-your-epson-scanner/"><u>Free Downloads: Compatible Drivers for Your Epson Scanner</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/shortcuts-to-fluent-urdu/"><u>Shortcuts to Fluent Urdu!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-secrets-the-meanings-behind-common-chat-emoji-uses-in-fb/"><u>Unlocking Secrets: The Meanings Behind Common Chat Emoji Uses in FB</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-visual-excellence-of-gigabytes-aorus-co49dq-a-deep-dive-review-on-color-fidelity-and-contrast-brilliance/"><u>Unveiling the Visual Excellence of Gigabyte's Aorus CO49DQ: A Deep Dive Review on Color Fidelity and Contrast Brilliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-anticipate-with-facebooks-interface-revamp/"><u>What to Anticipate with Facebook’s Interface Revamp</u></a></li>
+</ul></div>
 

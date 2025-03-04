@@ -1,7 +1,7 @@
 ---
 title: "Adolescent Advice Alert: Reconsidering Constant Instagram Engagement?"
-date: 2024-08-23T02:03:37.973Z
-updated: 2024-08-24T02:03:37.973Z
+date: 2025-02-14T09:59:53.914Z
+updated: 2025-02-15T12:47:15.154Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/80b6560d97681f28de9031de7e7f0da06668db1bd
 
 Here's what to know about the planned Instagram features.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Planned "Take a Break" Feature?
 
  Facebook says it wants to play its part in ensuring that young Instagram users don't spend too much time on the app, so it will be launching a Take a Break feature. The feature will encourage teens to step away from using the app temporarily.
@@ -35,6 +39,10 @@ This feature could possibly address those concerns.
 
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -46,8 +54,9 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Introducing These Features?
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
@@ -59,8 +68,9 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 
  While Facebook is doing something to help reduce the harm it allegedly causes children on its platforms, these new measures fall short of making a real impact.
@@ -71,14 +81,11 @@ Here's how Clegg explained it:
 
  For instance, since Facebook is aware of what type of content is potentially harmful, it should work on not showing that content to children in the first place, instead of intervening after it has been viewed multiple times.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,8 +94,24 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-melodymentor-detailed-sound-review/"><u>[New] In 2024, MelodyMentor Detailed Sound Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-downloading-facebook-videos-ultimate-5-list-ranked/"><u>2024 Approved Downloading Facebook Videos Ultimate 5 List Ranked</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/as-melhores-ferramentas-reprodutoras-de-dvd-livres-e-compativeis-com-windows-1110-explicadas-teste-ja/"><u>As Melhores Ferramentas Reprodutoras De DVD Livres E Compatíveis Com Windows 11/10 Explicadas | Teste Já!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/audiophile-odyssey-viewing-the-transformers-movies-from-beginning-to-end/"><u>Audiophile Odyssey: Viewing The Transformers Movies From Beginning to End</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/choosing-between-projectors-and-tvs-for-superior-4k-viewing-for-2024/"><u>Choosing Between Projectors & TVs for Superior 4K Viewing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-embraces-twitters-concept-for-better-sharing-awareness/"><u>Facebook Embraces Twitter's Concept for Better Sharing Awareness</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-build-a-professional-facebook-profile-you-can-be-proud-of/"><u>How to Build a Professional Facebook Profile You Can Be Proud Of</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-online-presence-fewer-facebook-friends/"><u>Managing Online Presence: Fewer Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-personal-data-update-on-fb/"><u>Master the Art of Personal Data Update on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-non-disclosure-in-online-forums/"><u>Navigating the Nuances of Non-Disclosure in Online Forums</u></a></li>
+<li><a href="https://facebook.techidaily.com/oversight-body-poised-to-issue-ruling-against-trumps-fb-prohibition/"><u>Oversight Body Poised to Issue Ruling Against Trump's FB Prohibition.</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/reestablishing-iphone-x-trust-restoring-biometric-lock-for-2024/"><u>Reestablishing iPhone X Trust Restoring Biometric Lock for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-silent-usb-headphones-on-your-windows-7-pc-proven-fixes-and-tips/"><u>Solving Silent USB Headphones on Your Windows 7 PC - Proven Fixes and Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-art-of-acceptance-unveiling-fb-friending-rules/"><u>The Subtle Art of Acceptance: Unveiling FB Friending Rules</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-s17e-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo S17e</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722877611912-top-8-premier-tv-streaming-platforms-a-comprehensive-guide/"><u>Top 8 Premier TV Streaming Platforms : A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-potential-why-metas-new-ai-giant-is-global-game-changer/"><u>Unleashing Potential: Why Meta's New AI Giant Is Global Game Changer</u></a></li>
+</ul></div>
 

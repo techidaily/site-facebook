@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2025-01-25T17:30:34.725Z
-updated: 2025-02-01T05:52:56.016Z
+date: 2025-02-14T09:04:33.395Z
+updated: 2025-02-15T07:50:31.647Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Beacon Tracking
 
  Facebook Beacon was launched to show targeted ads to users from third-party websites. It also encouraged people to share their activities with friends as well. Facebook Beacon saved the data of users' spending habits to[show targeted ads on Facebook](http://www.makeuseof.com/why-are-you-seeing-certain-ads-on-facebook/) —nothing different from what happens now.
@@ -34,16 +38,12 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
@@ -65,7 +65,7 @@ Close
 ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
@@ -78,23 +78,19 @@ Close
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. The Spread of Fake News
 
 ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 
  This can directly relate to Facebook's ability to promote a particular post in users' feeds. Unsurprisingly, many authoritative figures use this failure to meet their political and personal ambitions.
 
  Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Failure to Moderate in Developing Countries
 
@@ -107,6 +103,10 @@ Close
  There are still dozens of languages not sufficiently covered by Facebook's algorithmic moderation. This causes difficulties in interpreting and moderating content on Facebook.
 
  Since many social media experts are highlighting this issue, let’s hope that Facebook can provide equality in content moderation for people around the globe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Failed Many Times but Let's Not Lose Hope
 
@@ -131,24 +131,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-screencast-guide-to-flawless-presentations-and-demos/"><u>[New] 2024 Approved The Screencast Guide to Flawless Presentations and Demos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-mastering-photography-with-nikon-d7500-for-2024/"><u>[New] Mastering Photography with Nikon D7500 for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-broadcast-iptv-across-platforms-for-2024/"><u>[Updated] Broadcast IPTV Across Platforms for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quintessential-scores-in-8-distinct-movie-spheres/"><u>2024 Approved Quintessential Scores in 8 Distinct Movie Spheres</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/amplify-clarity-in-cloud-calls-zooming-out-distortion-for-2024/"><u>Amplify Clarity in Cloud Calls Zooming Out Distortion for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/anticipated-facebook-features-emphasizing-stories-with-reels-and-rooms/"><u>Anticipated Facebook Features: Emphasizing Stories with Reels & Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-the-true-face-of-metaverse/"><u>Beyond Likes and Shares: The True Face of Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-complexity-insights-from-facebooks-openness-center/"><u>Breaking Down Complexity: Insights From Facebook's Openness Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-news-essential-insights-from-leaked-fb-data/"><u>Breaking News: Essential Insights From Leaked FB Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-3d-photo-presence-on-facebook-platform/"><u>Building a 3D Photo Presence on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-llife-thrive-in-the-dawn-of-the-metaverse/"><u>Can LLife Thrive in the Dawn of The Metaverse?</u></a></li>
-<li><a href="https://facebook.techidaily.com/connect-with-melodies-enjoy-spotifys-mini-panel-on-facebook/"><u>Connect with Melodies: Enjoy Spotify's Mini-Panel on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/customize-and-control-revolutionizing-how-you-see-on-facebook/"><u>Customize & Control: Revolutionizing How You See on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149103040-discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc.</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/h264-vs-h265/"><u>H.264 Vs. H.265: ビデオファイルの違いを見極めるための基本情報</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-approaches-for-large-media-file-transfers-from-iphones-to-macs/"><u>In 2024, Proven Approaches for Large Media File Transfers From iPhones to Macs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/kinemaster-pro-guide-crafting-uninterrupted-storytelling-for-2024/"><u>Kinemaster Pro Guide Crafting Uninterrupted Storytelling for 2024</u></a></li>
-<li><a href="https://fox-within.techidaily.com/ultimate-review-disk-drill-vs-wondershare-recoverit-for-data-restoration-solutions/"><u>Ultimate Review: Disk Drill Vs. Wondershare Recoverit for Data Restoration Solutions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1726030068921-youtubeitunes/"><u>YouTubeのミュージックビデオがiTunesフォルダに保存する方法</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mixed-media-mastery-evaluating-splitcams-edge/"><u>[Updated] 2024 Approved Mixed Media Mastery Evaluating SplitCam's Edge</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-essential-tips-for-optimal-screen-recording-with-showmore-for-2024/"><u>[Updated] Essential Tips for Optimal Screen Recording With ShowMore for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-monitors-unveiled-the-ultimate-guide-for-sourcing-a-stellar-4k-screen/"><u>2024 Approved Monitors Unveiled The Ultimate Guide for Sourcing a Stellar 4K Screen</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/elevating-your-stream-with-advanced-screen-capture-tech-for-2024/"><u>Elevating Your Stream with Advanced Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-watch-reveals-two-cameras-option-in-question/"><u>Facebook Watch Reveals, Two Cameras Option in Question</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-on-fb-or-linkedin-finding-your-preference/"><u>Groups on FB or LinkedIn: Finding Your Preference</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/guide-overcoming-0x00000116-bsod-issues-with-simple-steps/"><u>Guide: Overcoming 0X00000116 BSOD Issues with Simple Steps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-infinix-note-30-vip-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Infinix Note 30 VIP Phone?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/justifying-the-investment-in-advanced-ai-writing-tools-is-it-worth-it/"><u>Justifying the Investment in Advanced AI Writing Tools – Is It Worth It?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-access-regaining-control-of-a-missing-facebook-code/"><u>Mastering Access: Regaining Control of a Missing Facebook Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-sentiment-on-sns-detriments-outweigh-advantages/"><u>National Sentiment on SNS: Detriments Outweigh Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-online-presence-with-ripl-strategies/"><u>Optimize Your Online Presence With Ripl Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/scaling-up-social-reach-by-targeting-various-fb-clusters/"><u>Scaling Up Social Reach by Targeting Various FB Clusters</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-socializers-disguising-fb-connections/"><u>Stealth Socializers: Disguising FB Connections</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/superior-pcs-for-serious-workers/"><u>Superior PCs for Serious Workers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-hand-guiding-facebook-group-conversations/"><u>The Hidden Hand Guiding Facebook Group Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-silence-what-does-it-mean/"><u>Understanding the Silence: What Does It Mean?</u></a></li>
 </ul></div>
 

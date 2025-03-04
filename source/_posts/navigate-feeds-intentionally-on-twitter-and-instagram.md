@@ -1,7 +1,7 @@
 ---
 title: Navigate Feeds Intentionally on Twitter & Instagram
-date: 2025-01-28T03:16:04.702Z
-updated: 2025-01-31T19:23:40.523Z
+date: 2025-02-10T12:07:19.497Z
+updated: 2025-02-15T06:19:57.841Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
  To achieve this, social media platforms take data from posts you've interacted with in the past, posts currently trending well, and sponsored posts. That's what the algorithm does.
 
 ![A comparison between chronological and algorithmic feeds on Twitter.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Chronological-vs-Algorithmic-Feed-Example.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The amount of detail social media platforms can pull is immense, they even study how long you look at certain posts for!
 
@@ -76,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
 ![Screenshot of the Latest Tweets option on Twitter's webpage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Twitter-Latest-Tweets-Screenshot.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Head to the**Home** section on Twitter.
 2. Tap the**Sparkle** icon in the top right-hand corner.
 3. Tap**See Latest Tweets Instead** to switch to a chronological feed. You can change this back at any point.
@@ -87,11 +79,11 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
 ![Screenshot of Twitter timeline on mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Twitter-Mobile-Timeline-Screenshot.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Screenshot of Latest Tweets option on Twitter mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Twitter-Mobile-Latest-Tweets-Screenshot.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -108,15 +100,31 @@ To access the chronological timeline, follow these steps:
 
 ![Screenshot of Instagram's Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Instagram-Timeline-Screenshot-1.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Screenshot of Instagram's Chronological Option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Instagram-Chronological-Option-Screenshot-1.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Screenshot of Instagram's Chronological Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Instagram-Chronological-Feed-1.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  Of course, you can still view any Instagram account's posts and Stories in the most recent order by visiting their page. You can also set up a notification for any account so that Instagram notifies you when they upload a new Post, Story, or Live Video.
 
  That can help you keep up with some favorites in a timely manner. Keeping up with only important notifications is a good way to[optimize your Instagram feed for better mental health](http://www.makeuseof.com/how-to-optimize-instagram-better-mental-health/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Disable Facebook's Algorithmic Feed
 
@@ -131,10 +139,6 @@ Close
 5. When you click on**Most recent** , your news feed will switch over to chronological order.
 
 ![Screenshot of Facebook's Most Recent Timeline Setting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Most-Recent-Screenshot.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  It's more or less the same process to switch over to mobile devices:
 
@@ -151,16 +155,12 @@ Close
 ![Facebook-Change-Feed-3](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-3.PNG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
  It's worth noting that you'll have to choose this option each time you use Facebook. Unfortunately, the platform won't save your preference. While this is annoying, at least you get the option to change your feed order.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Choose Your Social Feed Preferences
 
@@ -183,22 +183,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-navigating-multiple-perspectives-with-fb-lives-split-view-functionality/"><u>[New] Navigating Multiple Perspectives with FB Live's Split View Functionality</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ultimate-5-mobile-photo-editing-iphone-x87-background-switch/"><u>[Updated] 2024 Approved Ultimate 5 Mobile Photo Editing IPhone X/8/7 Background Switch</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-optimal-frame-rate-mastery-through-controller-tweaks/"><u>[Updated] Optimal Frame Rate Mastery Through Controller Tweaks</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-quick-steps-to-record-movies-on-your-tech-devices-for-2024/"><u>[Updated] Quick Steps to Record Movies on Your Tech Devices for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-the-key-to-seamless-workflow-management/"><u>ChatGPT: The Key to Seamless Workflow Management</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/common-twitch-chat-queries-and-answers-for-newcomers/"><u>Common Twitch Chat Queries and Answers for Newcomers</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-silence-streaming-on-instagram-live/"><u>Embrace Silence: Streaming on Instagram Live</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/from-social-tv-viewing-to-funny-interactive-gifs-a-twitter-video-journey-for-2024/"><u>From Social TV Viewing to Funny, Interactive Gifs A Twitter Video Journey for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-engaging-social-media-posts-with-ripl/"><u>How to Create Engaging Social Media Posts With Ripl</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-nokia-c210-phone-by-drfone-android/"><u>How to Unlock a Network Locked Nokia C210 Phone?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-visual-privacy-on-facebook/"><u>Mastering Visual Privacy on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-word-in-pictures-becomes-a-multitude-of-styles-through-ai/"><u>One Word in Pictures Becomes a Multitude of Styles Through AI</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-itel-s23plus-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Itel S23+ Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/rights-over-your-online-images/"><u>Rights Over Your Online Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-secure-not-scammed-facebook-marketplace-safety-guide/"><u>Stay Secure, Not Scammed: Facebook Marketplace Safety Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-network-by-deleting-groups/"><u>Streamlining Your Network by Deleting Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-takedown-unpacking-government-regulatory-actions/"><u>Tech Titans Takedown: Unpacking Government Regulatory Actions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/full-guide-how-to-change-google-chrome-language/"><u>[FULL GUIDE] How to Change Google Chrome Language</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-a-time-capsule-in-digital-form-storing-historic-pictures-for-2024/"><u>[Updated] A Time Capsule in Digital Form Storing Historic Pictures for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-top-7-mac-compatible-videos-viewers/"><u>2024 Approved Top 7 Mac-Compatible Videos Viewers</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-silent-to-spotlight-igniting-momentum-in-your-fb-circle/"><u>From Silent to Spotlight: Igniting Momentum in Your FB Circle</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-magic-6-lite-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor Magic 6 Lite</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-influencers-respited-as-covid-myth-peddlers/"><u>Key Influencers Respited as Covid Myth Peddlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-times-to-share-on-social-media-platforms/"><u>Key Times to Share on Social Media Platforms</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722975472571-logitech-g910-software-latest-download-for-windows/"><u>Logitech G910 Software – Latest Download For Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-zte-axon-40-lite-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from ZTE Axon 40 Lite</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-connections-avoiding-facebook-hacks/"><u>Securing Connections: Avoiding Facebook Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-financial-factor-metas-contribution-to-reel-economies-for-artists/"><u>The Financial Factor: Meta's Contribution to Reel Economies for Artists</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-ultimate-6-online-stores-with-a-superior-selection-of-modern-televisions/"><u>The Ultimate 6 Online Stores with a Superior Selection of Modern Televisions</u></a></li>
 </ul></div>
 

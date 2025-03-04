@@ -1,7 +1,7 @@
 ---
 title: Bringing Life to Chats with Augmented Reality Updates From FB
-date: 2024-08-15T18:44:26.358Z
-updated: 2024-08-16T18:44:26.358Z
+date: 2025-02-10T04:02:24.706Z
+updated: 2025-02-14T16:32:58.574Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/2eefe00fc71984145735604d7f6409f58eabe8499
 
 So, what are Group Effects all about? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Amps Up Its Video Call Function With Group Effects
 
 ![Illustration of Video Conference Calls on Three Different Devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/video-conference-call-illustration.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook Messenger has added Group Effects, a new feature that allows everyone on a video call to join in on the same AR experience at the same time, making video calls more engaging and fun.
 
@@ -32,13 +40,15 @@ So, what are Group Effects all about? Keep reading to find out.
  Related:[Facebook Messenger Icons and Symbols: What Do They Mean?](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Messenger’s Group Effects Work
 
 ![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A huge shift from the platform's one-participant-at-a-time AR feature, the Group Effects feature allows you to play multiplayer games with your friends during a video call, so you can do more than just catch up.
@@ -50,8 +60,9 @@ So, what are Group Effects all about? Keep reading to find out.
  To start using Group Effects, open the Messenger app and**start a video call** or**create a room** . Tap the**smiley face icon** , and then select**Group Effects** . Now choose from the range of effects to start playing.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Adding Dimension to Messenger Video Calls
 
  Facebook is adding more creative ways to communicate and catch up with others, thereby breaking the monotony that sometimes comes with phone or video conversations.
@@ -60,14 +71,11 @@ So, what are Group Effects all about? Keep reading to find out.
 
  This is important as many people rely on video calls to feel closer to their loved ones, especially when seeing them in person is not an option.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,6 +84,19 @@ So, what are Group Effects all about? Keep reading to find out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-creating-a-singular-stream-from-diverse-youtube-videos/"><u>[New] 2024 Approved Creating a Singular Stream From Diverse YouTube Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unpacking-virtual-reality-its-upside-and-downside/"><u>[New] Unpacking Virtual Reality Its Upside & Downside</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-screen-time-youtubes-top-movies-list-for-2024/"><u>[Updated] Cutting Edge Screen Time YouTube's Top Movies List for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-instagram-marketing-ultimate-guide-to-video-success-for-2024/"><u>[Updated] Navigating Instagram Marketing Ultimate Guide to Video Success for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-ace-meetings-integrating-filters-to-stand-out-on-zoom/"><u>2024 Approved Ace Meetings Integrating Filters to Stand Out on Zoom</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-ethical-exposure-meta-on-private-photos-control/"><u>Ensuring Ethical Exposure: Meta on Private Photos Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-policy-centric-hub-transparency-now/"><u>Facebook Unveils Policy-Centric Hub: Transparency Now</u></a></li>
+<li><a href="https://win-tips.techidaily.com/how-to-utilize-yls-tech-for-instant-web-to-printer-conversion-yl-computing/"><u>How to Utilize YL's Tech for Instant Web-to-Printer Conversion - YL Computing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-nighttime-exposures-for-your-iphone-lens/"><u>In 2024, Nighttime Exposures for Your iPhone Lens</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-safety-feature-options/"><u>Navigating Facebook Safety Feature Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-online-presence-adjusting-facebook-nickname/"><u>Reimagining Online Presence: Adjusting Facebook Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-undetected-supports-on-fb/"><u>The Art of Undetected Supports on FB</u></a></li>
+</ul></div>
 

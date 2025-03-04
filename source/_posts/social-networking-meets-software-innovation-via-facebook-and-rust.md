@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2025-01-31T06:04:34.964Z
-updated: 2025-01-31T19:48:34.901Z
+date: 2025-02-11T12:57:48.533Z
+updated: 2025-02-14T18:31:53.444Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,15 +61,17 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-djd-snaps-adding-tracks-to-enhance-videos/"><u>[New] 2024 Approved DJ'd Snaps Adding Tracks to Enhance Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premier-auditory-options-for-iphones/"><u>[Updated] Premier Auditory Options for iPhones</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/come-recuperare-informazioni-da-un-ssd-che-rifiuta-lavvio-passaggi-chiave-per-il-successo/"><u>Come Recuperare Informazioni Da Un SSD Che Rifiuta L'avvio: Passaggi Chiave per Il Successo</u></a></li>
-<li><a href="https://facebook.techidaily.com/defeating-fbs-prying-eyes-with-off-facebook-settings/"><u>Defeating Fb's Prying Eyes with Off-Facebook Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/disassembling-your-online-congregation-with-ease/"><u>Disassembling Your Online Congregation with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/discreetly-dialing-up-likes-on-social-platforms/"><u>Discreetly Dialing Up Likes on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-newsfeed-filtering-say-no-to-fb-reels/"><u>Efficient Newsfeed Filtering - Say No to FB Reels</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Lava Blaze Pro 5G?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-transcending-huge-video-sizes-iphone-mac-connection-for-2024/"><u>Mastering the Art of Transcending Huge Video Sizes IPhone-Mac Connection for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-distinct-roles-of-siri-and-chatgpt-in-ai-assistance/"><u>The Distinct Roles of Siri and ChatGPT in AI Assistance</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-drone-enthusiasts-guide-to-vibration-reduction-and-image-quality/"><u>[New] 2024 Approved The Drone Enthusiast's Guide to Vibration Reduction and Image Quality</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-effortless-techniques-for-streamlined-ipad-video-recording/"><u>[New] Effortless Techniques for Streamlined iPad Video Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-channel-mastery-with-studio-power-ups/"><u>[New] In 2024, Unlocking Channel Mastery with Studio Power-Ups</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209883273-9781783253883-a-dictionary-of-dream-symbols/"><u>A Dictionary of Dream Symbols | Free Book</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-review-of-the-hp-zbook-studio-g9-unmatched-quality-for-professionals-seeking-versatile-graphics-solutions/"><u>Comprehensive Review of the HP ZBook Studio G9: Unmatched Quality for Professionals Seeking Versatile Graphics Solutions</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-top-notch-pc-gear-with-toms-hardware-reviews/"><u>Discover Top-Notch PC Gear with Tom's Hardware Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-elegance-sony-ps-lx310bt-turntable/"><u>Explore the Elegance: Sony PS-LX310BT Turntable</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-your-visuals-securing-your-facebook-pictures/"><u>Hide Your Visuals: Securing Your Facebook Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-computing-odyssey-the-fastest-global-ai-journey-yet/"><u>Meta's Computing Odyssey - The Fastest Global AI Journey Yet</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-early-relationships-a-fb-adventure/"><u>Revisiting Early Relationships: A FB Adventure</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-walkthrough-of-executing-the-tracert-command-in-windows-os/"><u>Step-by-Step Walkthrough of Executing the Tracert Command in Windows OS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/xbox-one-multiplayer-magic-a-step-by-step-guide-to-friendly-gamesharing/"><u>Xbox One Multiplayer Magic: A Step-by-Step Guide to Friendly Gamesharing</u></a></li>
 </ul></div>
 

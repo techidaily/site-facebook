@@ -1,7 +1,7 @@
 ---
 title: Facebook's Actions Signal Big Changes for Oculus Go Owners
-date: 2025-01-27T06:11:14.853Z
-updated: 2025-01-31T17:45:52.700Z
+date: 2025-02-13T22:00:30.720Z
+updated: 2025-02-15T01:16:25.252Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Oculus Go Is Getting Unlocked Root Access
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-top-buttons.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  John Carmack confirmed on Twitter that, after "pushing on for years," Facebook will finally unlock root access to the Oculus Go. This will be available with a future OS build that can be side-loaded in the Go.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-kai-use.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Oculus Go was first introduced back in 2018, and critics considered it a low-end VR headset primarily for media consumption. Facebook first dropped the Oculus Go from the enterprise website back in January 2020, and then it altogether discontinued it in June 2020\. Afterward, as of last December, the Oculus Go couldn't update apps anymore or accept new apps in its Go store.
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  The Oculus Go's root access represents many possibilities for the community as a whole. It will basically get rid of many of the limitations the headset currently has. And it opens the door for many other opportunities, like using external hardware with the Go. Of course, this will also depend on what the developers are willing to do for the Oculus Go once root access is available.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Root Access the Future of Oculus?
@@ -65,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  Related:[Things You Must Do When You First Get an Oculus Quest 2](https://www.makeuseof.com/things-must-do-when-first-get-oculus-quest-2/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Time to Play the Waiting Game
@@ -87,22 +87,16 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-swift-and-simple-method-for-screenshots-on-ios-devices/"><u>[New] In 2024, Swift and Simple Method for Screenshots on IOS Devices</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-desktop-techniques-for-effective-tiktok-live-sessions/"><u>2024 Approved Desktop Techniques for Effective TikTok Live Sessions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-the-landscape-of-color-correction-innovative-uses-of-luts-in-video-editing/"><u>2024 Approved Navigating the Landscape of Color Correction Innovative Uses of LUTs in Video Editing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ideal-chatgpt-query-templates-from-githubs-best-list/"><u>Ideal ChatGPT Query Templates From GitHub's Best List</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-14-pro-without-itunes-drfone-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 14 Pro Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/mastering-your-corsair-mouse-software-download-and-troubleshooting-guide/"><u>Mastering Your Corsair Mouse: Software Download & Troubleshooting Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/mindful-metrics-assessing-your-online-influence/"><u>Mindful Metrics: Assessing Your Online Influence</u></a></li>
-<li><a href="https://facebook.techidaily.com/missing-big-picture-in-tech-spotlight-on-4-unheralded-stories/"><u>Missing Big Picture in Tech: Spotlight on 4 Unheralded Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/patterns-in-internet-account-compromises/"><u>Patterns in Internet Account Compromises</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-shift-in-social-media-power-dynamics-as-fb-could-divest-gifpedia/"><u>Potential Shift in Social Media Power Dynamics as FB Could Divest Gifpedia</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/simplified-guide-posting-igtv-on-stories-for-2024/"><u>Simplified Guide Posting IGTV on Stories for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/speedy-service-selective-lite-android-solutions/"><u>Speedy Service: Selective Lite Android Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/steer-clear-elite-deceptive-networks-in-sight/"><u>Steer Clear: Elite Deceptive Networks in Sight</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stuck-with-late-imessage-arrival-solve-it-using-our-top-9-fixes/"><u>Stuck With Late iMessage Arrival? Solve It Using Our Top 9 Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-end-of-an-era-instas-chats-discontinued/"><u>The End of an Era: Insta’s Chats Discontinued</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-realme-narzo-n55-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Realme Narzo N55 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-the-secrets-of-building-bonds-through-facebooks-new-feature/"><u>Uncovering the Secrets of Building Bonds Through Facebook’s New Feature</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-ultimate-pc-guide-to-starting-live-on-tiktok/"><u>[Updated] In 2024, The Ultimate PC Guide to Starting Live on TikTok</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-ultimate-screen-recorder-a-2023-evaluation-of-camstudio/"><u>[Updated] In 2024, The Ultimate Screen Recorder A 2023 Evaluation of CamStudio</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pivots-to-clarity-with-new-policy-hub-introduction/"><u>Facebook Pivots to Clarity with New Policy Hub Introduction</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-make-a-youtube-thumbnail-on-mac/"><u>How to Make a YouTube Thumbnail On Mac</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-oppo-find-x6-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Oppo Find X6 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/incorporating-visual-media-into-free-writings-for-2024/"><u>Incorporating Visual Media Into Free Writings for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722898546325-modernizing-the-papacy-understanding-pope-franciss-approach-to-using-email/"><u>Modernizing the Papacy? Understanding Pope Francis's Approach to Using Email.</u></a></li>
+<li><a href="https://facebook.techidaily.com/phones-in-pursuit-predictive-algos-for-advertising/"><u>Phones in Pursuit: Predictive Algos for Advertising?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-engagements-bright-side-7-improvements-in-society/"><u>Social Engagement's Bright Side: 7 Improvements in Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-stewardship-implementing-the-new-features-for-group-management-on-fb/"><u>Social Sphere Stewardship: Implementing the New Features for Group Management on FB</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-8-guide-to-recording-system-sound-and-mic-inputs-for-2024/"><u>The Ultimate 8 Guide to Recording System Sound & Mic Inputs for 2024</u></a></li>
 </ul></div>
 

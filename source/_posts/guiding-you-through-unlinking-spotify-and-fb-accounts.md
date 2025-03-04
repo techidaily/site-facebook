@@ -1,7 +1,7 @@
 ---
 title: Guiding You Through Unlinking Spotify and FB Accounts
-date: 2025-01-28T02:39:39.938Z
-updated: 2025-01-31T17:22:52.135Z
+date: 2025-02-13T11:23:28.428Z
+updated: 2025-02-15T08:19:40.092Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,7 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Disconnect Your Spotify Account From Facebook
@@ -47,7 +47,7 @@ Here's what you should do to unlink Facebook from Spotify.
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
@@ -62,7 +62,7 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
@@ -77,20 +77,20 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -113,17 +113,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-novice-to-viewer-keeper-top-10-basic-yet-captivating-video-ideas/"><u>[New] In 2024, From Novice to Viewer-Keeper Top 10 Basic Yet Captivating Video Ideas</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-pushing-boundaries-innovative-hdr-portrait-techniques/"><u>[Updated] Pushing Boundaries Innovative HDR Portrait Techniques</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1-free-mac-software-by-dvdvideosoft-advanced-video-conversion-recording-and-editing-tools/"><u>1. FREE MAC Software by DVDVideoSoft: Advanced Video Conversion, Recording & Editing Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-quick-fixes-to-ensure-your-tiktok-accounts-corrected-age/"><u>2024 Approved Quick Fixes to Ensure Your TikTok Account's Corrected Age</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-tips-to-select-your-preferred-facebook-hub/"><u>Essential Tips to Select Your Preferred Facebook Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-for-expats-evaluating-group-merits-and-shortcomings/"><u>Facebook for Expats: Evaluating Group Merits & Shortcomings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-mirthful-moments-the-10-funniest-youtube-short-film-ideas-ever/"><u>In 2024, Mirthful Moments The 10 Funniest YouTube Short Film Ideas Ever</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-s-top-free-quicktime-video-editors-for-beginners-and-pros-for-2024/"><u>New S Top Free QuickTime Video Editors for Beginners and Pros for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/proactive-strategies-for-discovering-next-level-social-circles/"><u>Proactive Strategies for Discovering Next-Level Social Circles</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/share-sensation-strategies-your-path-to-online-fame/"><u>Share Sensation Strategies Your Path to Online Fame</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-strategies-for-in-depth-nba-game-watching/"><u>Top Strategies for In-Depth NBA Game Watching</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-enhanced-security-techniques-with-2fa-on-major-mail-apps/"><u>Unveiling Enhanced Security Techniques with 2FA on Major Mail Apps</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ultimate-7-video-streaming-apps-your-ally-in-going-live-with-youtube-from-iphones-and-android/"><u>2024 Approved Ultimate 7 Video Streaming Apps Your Ally in Going Live with YouTube From iPhones & Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/boosting-webcam-quality-with-ease-and-precision/"><u>Boosting WebCam Quality with Ease and Precision</u></a></li>
+<li><a href="https://blog-min.techidaily.com/complete-dvd-ripping-with-fixed-handbrake-software-full-quality-recovery-guaranteed/"><u>Complete DVD Ripping with Fixed HandBrake Software - Full Quality Recovery Guaranteed!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expertly-selected-best-gimbals-for-ultimate-camera-stability-for-2024/"><u>Expertly Selected Best Gimbals for Ultimate Camera Stability for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-privacy-vulnerability-fixing-it-now/"><u>Facebook Privacy Vulnerability: Fixing It Now</u></a></li>
+<li><a href="https://win-able.techidaily.com/forza-horizon-5-performance-boost-updating-your-graphics-drivers/"><u>Forza Horizon 5 Performance Boost: Updating Your Graphics Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-your-local-marketplace-adapt-if-fb-stores-pop-up-here/"><u>How Will Your Local Marketplace Adapt if FB Stores Pop Up Here?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-balancing-main-and-supplemental-filmmaking-elements/"><u>In 2024, Balancing Main & Supplemental Filmmaking Elements</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-xiaomi-redmi-a2-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Xiaomi Redmi A2</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-13t-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-moviemakerpro-insights-full-analysis/"><u>In 2024, MovieMakerPro Insights – Full Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/inhibiting-the-apps-browser-functionality/"><u>Inhibiting the App's Browser Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockdown-3-essential-steps-to-retrieve-hacked-facebook-profile/"><u>Lockdown! 3 Essential Steps to Retrieve Hacked Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/regulatory-rebalance-exploring-the-effects-of-new-antitrust-laws-in-america/"><u>Regulatory Rebalance: Exploring the Effects of New Antitrust Laws in America</u></a></li>
+<li><a href="https://facebook.techidaily.com/spark-conversation-social-media-mastery-with-ripl/"><u>Spark Conversation: Social Media Mastery with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-presence-essential-steps-before-unlinking-from-facebook/"><u>Taking Control of Your Online Presence - Essential Steps Before Unlinking From Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-effective-real-youtube-promotion/"><u>The Ultimate Guide to Effective, Real Youtube Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-sport-groups-pledge-no-online-presence/"><u>UK Sport Groups Pledge No Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-rules-for-facebooks-permitted-posts/"><u>Understanding the Rules for Facebook's Permitted Posts</u></a></li>
 </ul></div>
 

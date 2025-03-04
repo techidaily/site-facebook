@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2025-01-25T09:39:33.164Z
-updated: 2025-02-01T09:47:06.722Z
+date: 2025-02-13T09:01:16.764Z
+updated: 2025-02-15T09:33:14.912Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
@@ -53,10 +53,6 @@ Close
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Manage Comments Using Facebook Web
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
@@ -67,7 +63,7 @@ Close
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
@@ -75,11 +71,19 @@ Close
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
  And that's all you need to manage comments on your Facebook post.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
 
@@ -87,14 +91,10 @@ Close
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -128,19 +128,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-list-of-superior-real-time-streaming-networks/"><u>[New] In 2024, The Ultimate List of Superior Real-Time Streaming Networks</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-outstanding-10-screenshot-and-recording-titles-for-gamers-for-2024/"><u>[Updated] Outstanding 10 Screenshot and Recording Titles for Gamers for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-journey-to-freedom-with-free-movie-player-os-x-and-windows/"><u>2024 Approved Journey to Freedom with FREE MOVIE PLAYER (OS X & Windows)</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-what-is-chatgpt/"><u>2024 Approved What Is ChatGPT?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/digital-dominance-top-youtube-watch-count-chronicles/"><u>Digital Dominance Top YouTube Watch Count Chronicles</u></a></li>
-<li><a href="https://facebook.techidaily.com/evolving-into-a-new-identity-meta-announces-its-emergence-from-facebook/"><u>Evolving Into a New Identity - Meta Announces Its Emergence From Facebook</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-iphone-6-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from iPhone 6</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-changes-not-accepted-unchanged-whatsapp-features/"><u>Privacy Changes Not Accepted: Unchanged WhatsApp Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionize-your-fb-experience-addremove-links/"><u>Revolutionize Your FB Experience: Add/Remove Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-major-tech-blunders-of-last-year-a-roundup/"><u>The Major Tech Blunders of Last Year: A Roundup</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-tiktok-eclipsing-facebooks-growth-and-profits/"><u>The Rise of TikTok Eclipsing Facebook's Growth and Profits</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-os-x-mavericks-video-editing-tutorial-mastering-the-basics/"><u>Updated OS X Mavericks Video Editing Tutorial Mastering the Basics</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-facebook-blueprint/"><u>What Is Facebook Blueprint?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-depth-video-metrics-at-your-fingertips-social-blade-for-youtube-for-2024/"><u>[New] In-Depth Video Metrics at Your Fingertips Social Blade for YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-master-commanders-unleashed-ranking-7-total-war-champions/"><u>[New] Master Commanders Unleashed Ranking 7 Total War Champions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-tutorial-personalize-and-elevate-your-short-videos-for-2024/"><u>[Updated] Step-by-Step Tutorial Personalize and Elevate Your Short Videos for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-the-skill-of-learning-behind-screen-scenes/"><u>2024 Approved Master the Skill of Learning Behind Screen Scenes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-amazon-fire-hd-10-for-kids-edition-with-superior-safeguarding-capabilities/"><u>Expert Insight on Amazon Fire HD 10 for Kids Edition with Superior Safeguarding Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/first-facebook-smartwatch-potential-for-dual-cameras/"><u>First Facebook Smartwatch: Potential for Dual Cameras?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/language-precision-at-stake-is-chatgpt-or-google-translate-better-for-your-needs/"><u>Language Precision at Stake: Is ChatGPT or Google Translate Better for Your Needs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-metadata-management-preventing-pics-spread-online/"><u>Mastering Metadata Management: Preventing Pics Spread Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/participating-in-distribution-claiming-a-piece-from-facebooks-deal/"><u>Participating in Distribution: Claiming a Piece From Facebook’s Deal</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-online-identity-after-fb-account-infiltration/"><u>Safeguard Your Online Identity After FB Account Infiltration</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-guide-getting-your-money-back-from-fb-transactions/"><u>Stepwise Guide: Getting Your Money Back From FB Transactions</u></a></li>
+<li><a href="https://windows11.techidaily.com/strengthen-your-safe-space-top-5-corrections-in-windows-features/"><u>Strengthen Your Safe Space: Top 5 Corrections in Windows Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-mentioning-every-member-online/"><u>The Complete Guide to Mentioning Every Member Online</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-note-12-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi Note 12 5G Device</u></a></li>
 </ul></div>
 

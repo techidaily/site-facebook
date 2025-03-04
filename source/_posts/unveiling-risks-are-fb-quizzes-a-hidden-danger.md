@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Risks: Are FB Quizzes a Hidden Danger?"
-date: 2025-01-30T22:39:57.270Z
-updated: 2025-01-31T18:11:57.756Z
+date: 2025-02-09T20:50:07.714Z
+updated: 2025-02-15T05:25:42.993Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook Quizzes?
@@ -34,13 +34,13 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -49,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -67,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
@@ -75,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Report the Scam Quiz
@@ -96,10 +100,6 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Staying Safe on Facebook
 
  Facebook quizzes can be a serious cybersecurity risk, but you can take steps to protect your information. Before taking any quizzes on Facebook, take a close look at the questions. Stay away from quizzes that give you a bad feeling—always trust your gut.
@@ -119,22 +119,24 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-breaking-barriers-top-picks-of-virtual-reality-walkers/"><u>[New] Breaking Barriers Top Picks of Virtual Reality Walkers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-a-deeper-dive-into-ios-visual-data-repository/"><u>[New] In 2024, A Deeper Dive Into IO's Visual Data Repository</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-syncing-sounds-to-visuals-online/"><u>[Updated] 2024 Approved Syncing Sounds to Visuals Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-secure-communication-incorrances-of-2fa-in-mail-applications/"><u>Embracing Secure Communication: Incorrances of 2FA in Mail Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-an-audio-hub-for-podcasts-live-audio-rooms-and-more/"><u>Facebook Launches an Audio Hub for Podcasts, Live Audio Rooms, and More</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-enhanced-control-over-oculus-go-the-what-and-why-for-users/"><u>Facebook's Enhanced Control Over Oculus Go: The What and Why for Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-contrast-rich-interface-on-facebook-app/"><u>Guide to Contrast-Rich Interface on Facebook App</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/halt-and-rewind-mastering-live-streams-on-twitch-for-2024/"><u>Halt & Rewind Mastering Live Streams on Twitch for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-facebook-decide-what-to-allow/"><u>How Does Facebook Decide What to Allow?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-prepare-for-a-social-media-shutdown-8-tips-for-fb-users/"><u>How to Prepare for a Social Media Shutdown: 8 Tips for FB Users</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-set-night-mode-in-iphone/"><u>How to Set Night Mode in iPhone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-from-apple-iphone-12-mini-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled From Apple iPhone 12 mini? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-of-identity-shift-on-social-networks-via-photo-change/"><u>Mastery of Identity Shift on Social Networks via Photo Change</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-gen-listening-experience-unveiled-by-facebook/"><u>Next-Gen Listening Experience Unveiled by Facebook</u></a></li>
-<li><a href="https://techidaily.com/sign-a-pdf-v13-document-with-digital-signature-software-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Sign a PDF v1.3 document with digital signature software</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-step-by-step-overcoming-the-0x8024002e-update-hiccup-in-windows/"><u>Troubleshooting Step-by-Step: Overcoming the 0X8024002E Update Hiccup in Windows</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/winxvideo-ai-transformez-votre-contenu-visuel-avec-les-fonctions-de-mise-en-forme-et-damelioration-par-intelligence-artificielle/"><u>WinxVideo AI: Transformez Votre Contenu Visuel Avec Les Fonctions De Mise en Forme Et D'Amélioration Par Intelligence Artificielle</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-techniques-for-finding-original-images-in-instagram-posts/"><u>[New] Techniques for Finding Original Images in Instagram Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-making-the-most-of-your-multi-image-story-sessions-on-insta/"><u>[Updated] 2024 Approved Making the Most of Your Multi-Image Story Sessions on Insta</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-value-asmr-gear-premium-sound-affordably-priced/"><u>[Updated] Top Value ASMR Gear Premium Sound Affordably Priced</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youthful-youtube-ventures-crafting-creative-videos-on-a-mac/"><u>[Updated] Youthful YouTube Ventures Crafting Creative Videos on a Mac</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/1726029399055-dvd/"><u>映像のレンタルから自由へ：シンプルな DVD コピー保護キーのバイパス手段</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-rest-from-all-fb-alerts-and-notifications/"><u>Eternal Rest From All FB Alerts and Notifications</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/how-to-record-zoom-meeting-for-2024/"><u>How to Record Zoom Meeting for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-audio-clips-to-written-content-harnessing-ms-words-transcription-features/"><u>In 2024, From Audio Clips to Written Content Harnessing MS Word's Transcription Features</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-oppo-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Oppo FRP</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-a-blow-for-facebooks-data-collection/"><u>IOS 14.5: A Blow for Facebook's Data Collection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-personal-bubble-skip-these-3-invasive-apps/"><u>Protect Your Personal Bubble: Skip These 3 Invasive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflect-before-you-leave-a-trail-with-facebook-history/"><u>Reflect Before You Leave a Trail with Facebook History</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/scarica-gratuitamente-e-convertilo-mp4-avi-o-mkv-da-mpg-con-movavi/"><u>Scarica Gratuitamente E Convertilo: MP4, AVI O MKV Da MPG Con Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-set-up-a-supportive-social-space-on-fb/"><u>Strategies to Set Up a Supportive Social Space on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tap-into-newly-viewed-vids-on-social-network/"><u>Tap Into Newly Viewed Vids on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-escalated-usage-in-the-face-of-facebook-blackout/"><u>Telegram's Escalated Usage in the Face of Facebook Blackout</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-disappearing-snapshots-on-facebook-messenger/"><u>Watch Out: Disappearing Snapshots on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-crypto-stablecoins-a-simplified-explanation/"><u>What Are Crypto Stablecoins? A Simplified Explanation</u></a></li>
 </ul></div>
 

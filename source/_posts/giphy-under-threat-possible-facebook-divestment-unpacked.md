@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2025-01-26T21:22:57.854Z
-updated: 2025-01-31T22:48:07.342Z
+date: 2025-02-09T12:37:28.426Z
+updated: 2025-02-15T12:18:27.784Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Giphy's Acquisition by Facebook
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -95,20 +95,20 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-essential-techniques-for-procuring-facebook-vids/"><u>[Updated] 2024 Approved Essential Techniques for Procuring Facebook Vids</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-perfection-sizing-your-video-just-right/"><u>[Updated] Instagram Perfection Sizing Your Video Just Right</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-navigating-toward-unauthorized-access-a-c-span-journey/"><u>[Updated] Navigating Toward Unauthorized Access A C-Span Journey</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/engaging-generations-on-social-media-with-tiktok-campaigns/"><u>Engaging Generations on Social Media with TikTok Campaigns</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-tips-to-restore-microphone-functionality-in-the-latest-windows-11-update/"><u>Expert Tips to Restore Microphone Functionality in the Latest Windows 11 Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-novel-approach-outshines-apple-with-user-centric-linkage-services/"><u>Facebook’s Novel Approach Outshines Apple with User-Centric Linkage Services</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-strategy-for-developing-and-managing-youtube-collaborations/"><u>In 2024, The Ultimate Strategy for Developing & Managing YouTube Collaborations</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-itel-s23plus-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Itel S23+ Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastery-in-high-definition-configuring-xbox-series-x-for-crystal-clear-gaming/"><u>Mastery in High Definition: Configuring Xbox Series X for Crystal Clear Gaming</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-policy-on-trump-correct-action-with-time-limit/"><u>Platform Policy on Trump: Correct Action with Time Limit</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-fix-for-lost-login-reclaim-your-facebook-passcode/"><u>Quick Fix for Lost Login: Reclaim Your Facebook Passcode</u></a></li>
-<li><a href="https://facebook.techidaily.com/safe-sharing-strategy-social-media-tips-for-privacy-protection/"><u>Safe Sharing Strategy: Social Media Tips for Privacy Protection</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplifying-community-removal-on-social-media/"><u>Simplifying Community Removal on Social Media</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-ultimate-instructional-paper-on-windows-11s-speed-boost-feature/"><u>The Ultimate Instructional Paper on Windows 11'S Speed Boost Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-telegrams-upswing-when-fb-was-inaccessible/"><u>Understanding Telegram's Upswing When FB Was Inaccessible</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-notable-20-free-non-exclusive-pubg-screenshots/"><u>[Updated] In 2024, Notable 20 Free, Non-Exclusive PUBG Screenshots</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-storage-odyssey-navigating-cloud-leaders-of-2024/"><u>[Updated] The Ultimate Storage Odyssey Navigating Cloud Leaders of 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-trends-in-fb-safety-to-keep-abreast-of/"><u>Emerging Trends in FB Safety to Keep Abreast Of</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-safety-account-verification-is-securityfbcom-reliable/"><u>Facebook Safety Account Verification: Is security@fb.com Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-idea-to-execution-step-by-step-instructions-for-facebook-video-content/"><u>From Idea to Execution: Step-by-Step Instructions for Facebook Video Content</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-simple-ai-to-sophisticated-gpt-4/"><u>From Simple AI to Sophisticated GPT-4</u></a></li>
+<li><a href="https://win-help.techidaily.com/identifying-standard-signs-of-graphics-card-malfunctions-a-guide-by-yl-computing/"><u>Identifying Standard Signs of Graphics Card Malfunctions: A Guide by YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-samsung-galaxy-s23-ultra-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Samsung Galaxy S23 Ultra Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-affection-hidden-support-the-new-online-standard/"><u>Invisible Affection, Hidden Support: The New Online Standard</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-your-online-presence-through-integrated-facebook-services/"><u>Leveraging Your Online Presence Through Integrated Facebook Services</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mending-microsoft-store-crash-error-0x80072f17-guide/"><u>Mending Microsoft Store Crash: Error 0X80072f17 Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-separation-ditching-digital-acquaintances/"><u>Social Separation: Ditching Digital Acquaintances</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/streamline-your-content-strategy-with-ai-powered-batch-articles-upload-on-wordpress-expert-tips-by-yl-software-solutions/"><u>Streamline Your Content Strategy with AI-Powered Batch Articles Upload on WordPress, Expert Tips by YL Software Solutions</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swift-driver-fixes-for-logitech-sound-devices/"><u>Swift Driver Fixes for Logitech Sound Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-final-cut-deleting-your-facebook-account-completely/"><u>The Final Cut: Deleting Your Facebook Account Completely</u></a></li>
 </ul></div>
 

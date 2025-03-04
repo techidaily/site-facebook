@@ -1,7 +1,7 @@
 ---
 title: Building a Foundation of Trust with Facebook's Open Network Portal
-date: 2024-08-15T18:42:26.695Z
-updated: 2024-08-16T18:42:26.695Z
+date: 2025-02-08T05:19:42.106Z
+updated: 2025-02-15T06:14:31.473Z
 tags:
   - facebook
 categories:
@@ -31,14 +31,12 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
 
  Advocates are concerned about how the company uses and shares users’ information, how it polices and manages users’ speech, and how it regulates information on its platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## How to Navigate Facebook’s Transparency Center and Understand Its Policies
 
 ![Facebook transparency center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-transparency-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Below, you'll find out what you can learn when using [Facebook's Transparency Center](https://transparency.fb.com/data/) .
@@ -50,17 +48,15 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
  The aim of these reports is to give you insight into how Facebook enforces its policies, responds to data requests, and protects intellectual property—while ensuring that access to Facebook's technologies is not limited.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Policies
 
  The Policies tab explains Facebook's community standards. It talks about how the company tackles violent and criminal behavior, objectionable content (such as hate speech, sexual content, and nudity), respecting intellectual property, and more.
 
  You can also read up on other policies such as advertising policies, along with content related to WhatsApp and Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Enforcement
 
  This section helps you understand how Facebook enforces all of its policies. It details how the company detects, reviews, and takes action against violations, with the help of both its employees and technology.
@@ -70,8 +66,9 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
  Related:[Facebook Adds a New Penalty for Misinformation Sharers](https://www.makeuseof.com/facebook-adds-new-penalty-misinformation-sharers/ "Facebook Adds a New Penalty for Misinformation Sharers")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Features
 
  This section will help you understand Facebook’s efforts to safeguard elections and combat misinformation. Here, Facebook details the steps it is taking to "help protect the integrity of elections and reduce the spread of misinformation."
@@ -79,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
  In going through this section, you will gain more insight into the role that Facebook takes on in empowering people to vote—as well as fighting the spread of misinformation on the app. This includes the use of fact-checkers and ensuring that its policies are adhered to.
 
  Related: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Oversight
 
@@ -89,22 +90,20 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
  Read more: [What Is Facebook's Oversight Board and What Does It Do?](https://www.makeuseof.com/what-is-facebook-oversight-board/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Working on Transparency. But Is It Enough?
 
  It's clear that Facebook is trying to do something about the years-long criticism it has received in relation to transparency.
 
  While its Transparency Center is a step in the right direction, the tech giant still has a long way to go. It'll take a lot more than a single resource center to instil trust in its users, critics, and the relevant authorities.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,6 +112,18 @@ thumbnail: https://thmb.techidaily.com/00e6416ee52e959bd4b417b088ce280ff84f1d381
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-your-step-by-step-roadmap-for-instagrams-latest-feature-sharing-gifs/"><u>[New] 2024 Approved Your Step-by-Step Roadmap for Instagram's Latest Feature - Sharing GIFs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-tech-savvy-tips-to-ensure-perfect-call-recording-on-facetime/"><u>[New] In 2024, Tech-Savvy Tips to Ensure Perfect Call Recording on FaceTime</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-streamline-your-tiktok-experience-4-desktop-broadcast-strategies/"><u>[New] Streamline Your TikTok Experience 4 Desktop Broadcast Strategies</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-lava-yuva-3-pro-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-pics-to-words-enhancing-whatsapp-messages-with-facebook-images/"><u>From Pics to Words: Enhancing WhatsApp Messages with Facebook Images</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-11-pro-max-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix Apple iPhone 11 Pro Max Passcode not Working? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-or-finding-partners-a-look-into-facebook-dating/"><u>Making Friends or Finding Partners: A Look Into Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-safety-on-sites/"><u>Navigating Online Safety on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-final-click-controlling-posthumous-account-activity/"><u>The Final Click: Controlling Posthumous Account Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-decision-makers-at-facebook/"><u>Today's Decision-Makers at Facebook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/translate-compressed-files-into-subtitle-format-srt/"><u>Translate Compressed Files Into Subtitle Format (SRT)</u></a></li>
+</ul></div>
 

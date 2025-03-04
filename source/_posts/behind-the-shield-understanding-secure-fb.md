@@ -1,7 +1,7 @@
 ---
 title: "Behind the Shield: Understanding Secure FB"
-date: 2024-08-23T02:05:35.273Z
-updated: 2024-08-24T02:05:35.273Z
+date: 2025-02-13T16:20:00.569Z
+updated: 2025-02-14T22:31:57.597Z
 tags:
   - facebook
 categories:
@@ -43,12 +43,13 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
 
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -65,8 +66,9 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
  You can [take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Spyware Apps
 
  Once Facebook finally made it genuinely difficult to view a private Facebook profile, those desperate to view private Facebook profiles turned to more extreme options.
@@ -80,16 +82,17 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
  Check out our [complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the [steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
 
  Even with that combination, users will contrive to create the easiest password possible to remember. If you have an easy password, it is also easy for someone to guess it. You might not even know that your [Facebook account has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) to begin with.
@@ -100,15 +103,15 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
 
  Otherwise, start using stronger passwords, possibly using one of these [online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can [secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider [adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or [even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is a Facebook Locked Profile Viewer?
 
@@ -116,9 +119,6 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
 
  Furthermore, there are also Android APKs that promise to reveal a private Facebook account. An Android APK is [an Android app installation file](https://www.makeuseof.com/tag/what-is-apk-file/) , but you'll likely have to turn off your device security settings to install it. Now, there are places you can [download safe APK files from](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , but a random website promising to reveal private Facebook data isn't one of them. Apps promising to unlock a Facebook account, private or not, are highly likely to be malware and will steal your data instead of granting you access to a private Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## Facebook Is a Security and Privacy Nightmare
 
  A private Facebook profile should protect your data. But you shouldn't entirely rely on Facebook. The social media giant is as much of a privacy issue as people attempting to view your private profile.
@@ -127,14 +127,11 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
 
  In general, Facebook is a security and privacy nightmare. So, yes, protect your Facebook account against people preying on your data. But consider protecting yourself against the platform itself too.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,8 +140,23 @@ thumbnail: https://thmb.techidaily.com/c8cdb9a666b994c5df18bf9fb906f435b3e886e46
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-highest-quality-screen-time-movie-hits-list/"><u>[New] 2024 Approved Highest-Quality Screen Time Movie Hits List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unleash-creativity-fast-windows-10-photo-edits-made-simple/"><u>[New] In 2024, Unleash Creativity Fast Windows 10 Photo Edits Made Simple</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-essential-collection-of-high-speed-monitor-tools/"><u>[New] The Essential Collection of High-Speed Monitor Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-video-testimonial-why-its-so-important-for-marketing/"><u>[Updated] 2024 Approved Video Testimonial! Why It's So Important for Marketing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/comprehensively-understanding-recmeisters-screen-recording-strengths/"><u>Comprehensively Understanding Recmeister's Screen Recording Strengths</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-your-signature-snapshot-on-fb/"><u>Establishing Your Signature Snapshot on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-2023-video-strategy-emphasizing-conciseness-and-engagement-for-2024/"><u>Facebook's 2023 Video Strategy Emphasizing Conciseness and Engagement for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-targus-displaylink-driver-updates-for-windows-platforms/"><u>Get the Newest Targus DisplayLink Driver Updates for Windows Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-your-own-facebook-avatar/"><u>How to Create Your Own Facebook Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-log-into-facebook-if-you-lost-access-to-code-generator/"><u>How to Log Into Facebook If You Lost Access to Code Generator</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcome-minecraft-crashes-effortlessly-in-just-6-steps/"><u>Overcome Minecraft Crashes Effortlessly in Just 6 Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-transactions-navigating-facebooks-trading-traplands/"><u>Safeguarding Your Transactions: Navigating Facebook's Trading Traplands</u></a></li>
+<li><a href="https://facebook.techidaily.com/selfie-success-the-complete-guide-on-designing-an-avatar-themed-facebook-cover/"><u>Selfie Success: The Complete Guide on Designing an Avatar-Themed Facebook Cover</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/step-by-step-instructions-for-creating-personalized-email-footers-in-outlook-learn-how-with-zdnet/"><u>Step-by-Step Instructions for Creating Personalized Email Footers in Outlook – Learn How with ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-updated-feeds-tab-in-fb/"><u>Understanding the Updated Feeds Tab in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/worldwide-web-woe-social-media-goes-offline/"><u>Worldwide Web Woe: Social Media Goes Offline</u></a></li>
+</ul></div>
 

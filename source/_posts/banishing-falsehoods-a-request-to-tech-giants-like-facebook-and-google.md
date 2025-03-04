@@ -1,7 +1,7 @@
 ---
 title: "Banishing Falsehoods: A Request to Tech Giants Like Facebook and Google"
-date: 2024-08-23T02:03:46.813Z
-updated: 2024-08-24T02:03:46.813Z
+date: 2025-02-14T07:24:14.084Z
+updated: 2025-02-15T04:19:21.334Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 ## Banishing Falsehoods: A Request to Tech Giants Like Facebook and Google
 
  According to a report by consumer watchdog Which?, big tech companies such as Facebook and Google aren't doing enough to prevent scam advertisements on their platforms.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
@@ -32,6 +36,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  About 43% of victims said that they didn't even report the ad that scammed them.
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
 
@@ -51,14 +59,11 @@ Facebook further stated:
 
  While Facebook and Google claim to be doing their part to battle bad ads, the report by Which? suggests that the opposite is true.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,12 +72,24 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastering-automatic-youtube-playback-on-social-media-hubs/"><u>[Updated] 2024 Approved Mastering Automatic YouTube Playback on Social Media Hubs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-a-step-by-step-on-youtube-annotations/"><u>[Updated] A Step-by-Step on YouTube Annotations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-gamers-streaming-tools/"><u>[Updated] Best Gamers' Streaming Tools</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-honor-magic-vs-2-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/crafting-spectacular-hdr-images-blending-tips-in-adobe-lightroom/"><u>Crafting Spectacular HDR Images Blending Tips in Adobe Lightroom</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-official-canon-imageclass-mf4800-drivers-here/"><u>Download Official Canon ImageCLASS MF4800 Drivers Here!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-steam-content-file-locked-issue-a-step-by-step-guide/"><u>Fixing the 'Steam Content File Locked' Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-download-compatible-windows-11108-bluetooth-adapter-drivers-zexmte-edition/"><u>Free Download: Compatible Windows 11/10/8 Bluetooth Adapter Drivers - Zexmte Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broadcast-your-current-location-on-fb-messenger/"><u>How to Broadcast Your Current Location on FB Messenger</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-zte-axon-40-lite-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-ghostwriting-rules-within-group-posts/"><u>Implementing Ghostwriting Rules Within Group Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-content-allure-tips-to-lift-your-fan-interactions-on-fb/"><u>Mastering Content Allure: Tips to Lift Your Fan Interactions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-mode-for-facebook-eliminate-unexpected-glances/"><u>Stealth Mode for Facebook: Eliminate Unexpected Glances</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategizing-your-online-security-with-facebooks-improved-privacy-center/"><u>Strategizing Your Online Security with Facebook's Improved Privacy Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giants-sparring-over-ideologies/"><u>Tech Giants Sparring Over Ideologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-privacy-risks-in-facebooks-link-history/"><u>Unveiling Privacy Risks in Facebook's Link History</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-realms-awakening-what-is-the-metaverse/"><u>Virtual Realms Awakening: What Is the Metaverse?</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
